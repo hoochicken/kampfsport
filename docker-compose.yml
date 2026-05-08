@@ -1,0 +1,23 @@
+version: "3.3"
+
+services:
+
+  dictionary:
+    image: php:8.1-apache
+    container_name: dictionaryc
+    volumes:
+      - ./dictionary/site:/var/www/html
+    environment:
+      - "APACHE_DOCUMENT_ROOT=var/www/html/dictionary/site"
+    ports:
+      - 9099:80
+
+  php:
+    image: php:8.1-apache
+    container_name: dictionary
+    volumes:
+      - .:/var/www/html
+    environment:
+      - "APACHE_DOCUMENT_ROOT=var/www/html"
+    ports:
+      - 9098:80
