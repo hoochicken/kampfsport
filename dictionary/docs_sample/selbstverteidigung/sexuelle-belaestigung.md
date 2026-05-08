@@ -16,11 +16,11 @@ Ich (16 J.) komme gerade von meinem ersten Job: eigenes selbstverdientes Geld, v
 
 Ich stehe an der Theke und will gerade bestellen. Der Typ, ca. 35 Jahre, im Vollsuff steht plötzlich hinter mir. Er grapscht mir unter meine Jeansjacke, direkt an die Brüste. Mir wird heiss und kalt vor Angst. Er ist vollgetrunken.
 
-Der Dönermann macht nix. Meine Mama sitzt druassen im Auto. Und mein Gesichtsfeld wird klein und immer kleiner. Ich sehe nur noch einen Ausschnitt vom Dönerregal mir gegenüber.
+Der Dönermann macht nix. Meine Mama sitzt draussen im Auto. Und mein Gesichtsfeld wird klein und immer kleiner. Ich sehe nur noch einen Ausschnitt vom Dönerregal mir gegenüber.
 
-Wo ist der Dönermann, warum macht der nix? Ich muss mir selbst helfen!
+Wo ist der Dönermann, warum macht der nix? 
 
-Damals hatte ich noch kein Jiu oder irgendeinen Kmampfsport gemacht. Aber ich einfach so immer wieder den Ellenbogenstoss nach hinten geübt - für alle Fälle. Aber hinter mit war der Typ und hinter dem Typ eine Wand und an der Wand so ein schmaler Wandtisch.
+Damals hatte ich noch kein Jiu oder irgendeinen Kampfsport gemacht. Aber ich einfach so immer wieder den Ellenbogenstoss nach hinten geübt - für alle Fälle. Aber hinter mit war der Typ und hinter dem Typ eine Wand und an der Wand so ein schmaler Wandtisch.
 
 Wenn ich dem eine verpasse und der taumelt nach hinten, ist der dann vielleicht querschnittsgelähmt. Wie der arme Mann, von dem mein grosser Bruder erzählt hat. Den hat er als Zivi betreut. Und dem ist genau so ein Unfall passiert. Also, was mache ich?
 
