@@ -1,12 +1,21 @@
 ## Sexuelle Belästigung
 
-Diese Liste an sexuellen Belästigungen ist von mir erstellt. Es sind ausschliesslich sexuelle Belästigungen, die allein ich erfahren habe.
-
+Diese Liste an sexuellen Belästigungen ist von mir erstellt. Es sind ausschliesslich sexuelle Belästigungen, die ich erfahren habe.
 Nein, ich bin nicht besonders hübsch. Aber ich war mal jung und - aufgrund von offensichtlicher Unerfahrenheit - damit ein optimales Opfer.
+
+Manche Situationen sind echt dämlich. Und ich war mit denen damals echt überfordert. Lerne aus diesen Fehlern, mach es besser!
+
+### An den Leser
+
+**Du als Mädchen** erfährst hier, dass Dir sowas passieren kann. Lies das durch und überlege, was Du da machen würdest und könntest.
+
+**Du als Frau** erfährst hier nichts Neues. Du denkst wahrscheinlich: "Ach ja, kenn ich.", "Das ist nicht schlimm! Hab ich ständig!"
+
+**Du als Mann** profitierst davon, indem Du mal mitzukriegst, womit sich Frau (deine Tochter, Ehefrau, Schülerin) so rumzuschlagen hat.
 
 ### Fahrrad-Geschichte
 
-Ich (16 J.) fahre mit dem Fahrrad nach Hause. Es ist Sommer. Ich bin guter DInge und habe die riesige, unförmige Jeanslatzhose meiner Schwester an.
+Ich (16 J.) fahre mit dem Fahrrad nach Hause. Es ist Sommer. Ich bin guter DInge und habe die riesige, unförmige Jeans-Latzhose meiner Schwester an.
 
 Ein Auto hält neben mir und der Typ will mit mir essen gehen. Eigentlich fast nett. Aber ich bin 16 und zu Tode erschrocken.
 
@@ -18,7 +27,7 @@ Ich stehe an der Theke und will gerade bestellen. Der Typ, ca. 35 Jahre, im Voll
 
 Der Dönermann macht nix. Meine Mama sitzt draussen im Auto. Und mein Gesichtsfeld wird klein und immer kleiner. Ich sehe nur noch einen Ausschnitt vom Dönerregal mir gegenüber.
 
-Wo ist der Dönermann, warum macht der nix? 
+Wo ist der Dönermann, warum macht der nix?
 
 Damals hatte ich noch kein Jiu oder irgendeinen Kampfsport gemacht. Aber ich einfach so immer wieder den Ellenbogenstoss nach hinten geübt - für alle Fälle. Aber hinter mit war der Typ und hinter dem Typ eine Wand und an der Wand so ein schmaler Wandtisch.
 
@@ -58,11 +67,11 @@ Wieder in der Stadtbahn (wer hätte es gedacht). Ich komme von einer Probe, bin 
 Ein Typ (ca. 21 J.) setzt sich zu mir. Er sitzt mir diagonal gegenüber und stellt ein äusseres Bein auf den Sitz neben mir.
 Sein Bein ist wie eine Schranke, an der ich nicht vorbei kann. Er fängt ein Gespräch an.
 
-Er sei seit 3 Monaten in Deutschland etc. Mir fällt auf, dass er ähnlich wie mein damaliger Freund aussieht: kurze Haare, schlank. Das schwarze Hemd steht ihm gut.
+Er sei seit 3 Monaten in Deutschland etc. Mir fällt auf, dass er ähnlich wie mein derzeitiger Freund aussieht: kurze Haare, schlank. Das schwarze Hemd steht ihm gut.
 Aber mir fällt vor allem auf, dass einer seiner Zähne fehlt, ein Eck- oder Backenzahn.
 
-Wenn Zähne in einem ansonsten unberührten Gebiss fehlen, deutet das für mich auf eine Schlägerei hin. Er war (vielleicht) in einer Schlägerei, er könnte ein Schkäger sein.
-Das denke ich mir so.
+Wenn Zähne in einem ansonsten unberührten Gebiss fehlen, deutet das für mich auf eine Schlägerei hin. Er war (vielleicht) in einer Schlägerei, er könnte ein Schläger sein.
+Ob das stimmt weiss ich nicht, aber ich dachte das, als ich jung war.
 
 Ich steige an meiner (Wald)haltestelle aus und er auch! Und da weiss ich: Ich kann unmöglich mit dem nach Hause laufen, das ist unsicher.
 
@@ -85,7 +94,7 @@ Irgendetwas macht Klick in meinem Kopf. Und bei dem anderen macht es genauso Kli
 
 Aufgeregt lasse ich die Schütte Schütte sein und verlasse das Kaufhaus. (Ich meine mit Melanie. Wenn ja: sie war verwirrt, warum wir flüchten müssen.) Mister Scha folgt mir.
 
-Ich rein in den Spielzeug-Döring, weil: der hat einen Eingang vorne und - das wissen manche nicht - auch einen fast versteckten Ausgang hinten. Durch den Ausgang raus. Direkt in das Kinderschuh-Geschäft gegenüber. Das kenne ich nicht so gut, aber auch das hat eben einen zweiten Ausgang.
+Ich rein in den Spielzeug-Döring, weil: der hat einen Eingang vorne und - das wissen manche nicht - auch einen fast versteckten Ausgang hinten. Durch den Ausgang raus. Direkt in das Kinderschuh-Geschäft gegenüber. Das kenne ich nicht so gut, aber auch das hat ebenso einen zweiten Ausgang.
 
 Somit bin ich 2 Strassen weiter: abgehängt, puh!
 
