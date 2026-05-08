@@ -1,31 +1,111 @@
-<h1 align="center">
-<img src="https://raw.githubusercontent.com/peaceiris/mkdocs-material-boilerplate/main/docs_sample/images/graduate-cap.png" alt="MkDocs icon" width="170">
-<br>MkDocs Material<br>Boilerplate - Starter Kit
-</h1>
+# Kampfsport – Rundumschlag
 
+Repository-Link: https://github.com/hoochicken/kampfsport
 
-* Documentation: https://github.com/peaceiris/mkdocs-material-boilerplate
+Ein kompaktes Praxis-Handbuch für Kampfsport, Selbstverteidigung und Kampfprinzipien.
 
-![Eyecatch image of MkDocs Material Boilerplate (Starter Kit)](https://raw.githubusercontent.com/peaceiris/mkdocs-material-boilerplate/main/docs_sample/images/material.png)
+Dieses Buch konzentriert sich auf direkt anwendbares Wissen.
+Keine langen theoretischen Abhandlungen, keine Stil-Diskussionen, keine unnötige Philosophie.
 
+Der Fokus liegt auf:
 
+- stabilen Grundlagen
+- funktionierenden Prinzipien
+- praktischen Übungen
+- klaren Kampfkonzepten
+- kompaktem Wissen
 
-[![license](https://img.shields.io/github/license/peaceiris/mkdocs-material-boilerplate.svg)](https://github.com/peaceiris/mkdocs-material-boilerplate/blob/main/LICENSE)
-[![release](https://img.shields.io/github/release/peaceiris/mkdocs-material-boilerplate.svg)](https://github.com/peaceiris/mkdocs-material-boilerplate/releases/latest)
-[![GitHub release date](https://img.shields.io/github/release-date/peaceiris/mkdocs-material-boilerplate.svg)](https://github.com/peaceiris/mkdocs-material-boilerplate/releases)
-[![GitHub Actions status](https://github.com/peaceiris/mkdocs-material-boilerplate/workflows/github%20pages/badge.svg)](https://github.com/peaceiris/mkdocs-material-boilerplate/actions)
+Jeder Abschnitt ist so aufgebaut, dass er auf eine einzelne Doppelseite passt:
 
-[![Netlify Status](https://api.netlify.com/api/v1/badges/9c95ccf4-5c1e-447b-8025-dd0b6f8764a5/deploy-status)](https://app.netlify.com/sites/mkdocs-material/deploys)
+- linke Seite: kompakter Text
+- rechte Seite: Bilder und kurze Erklärungen
 
-<!-- https://shields.io/ -->
+Dadurch entsteht kein klassisches Lesebuch, sondern ein trainierbares Nachschlagewerk.
 
+## Struktur
 
+Das Buch ist modular aufgebaut:
 
-## Details
+- Großkapitel
+  - Kapitel
+    - Abschnitte
+      - Unterabschnitte
 
-Read more 👉 [Documentation - MkDocs Material Boilerplate]
+Jeder Abschnitt behandelt genau ein Thema.
 
-[Documentation - MkDocs Material Boilerplate]: https://peaceiris.github.io/mkdocs-material-boilerplate/
+Beispiele:
+
+- Kampfstellungen
+- Distanz
+- Schlagprinzipien
+- Gleichgewicht
+- Bewegung
+- Kontrolle
+- Timing
+- Druckaufbau
+- Ellenbogentechniken
+- Selbstverteidigung
+
+## Schreibstil
+
+Der Stil orientiert sich an:
+
+- Trainingshandbüchern
+- Feldhandbüchern
+- Trainerunterlagen
+- praxisorientierten Kampfsport-Notizen
+
+Die Sprache ist bewusst:
+
+- kurz
+- direkt
+- sachlich
+- praktisch
+
+## Ziel
+
+Das Ziel des Projekts ist es, möglichst viel praktisches Kampfsportwissen in kompakter Form zugänglich zu machen.
+
+Jeder Abschnitt soll:
+
+- schnell lesbar sein
+- direkt trainierbar sein
+- eine klare Kernidee vermitteln
+
+## Formatierung
+
+Die Inhalte werden in Markdown geschrieben.
+
+Grundregeln:
+
+- kurze Absätze
+- klare Überschriften
+- wenig Fließtext
+- keine unnötigen Wiederholungen
+- Fokus auf Praxis
+
+## Repository
+
+Dieses Repository enthält:
+
+- Rohfassungen
+- Kapitelentwürfe
+- strukturierte Abschnitte
+- Übungen
+- Bildideen
+- Überarbeitungen
+
+## Mitwirken
+
+Konstruktive Vorschläge, Korrekturen und Ideen sind willkommen.
+
+## Lizenz
+
+Noch nicht festgelegt.
+
+---
+
+„Sicherer Stand ist eine sichere Basis.“
 
 
 
