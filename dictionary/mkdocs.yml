@@ -63,7 +63,7 @@ extra:
 # Page tree
 nav:
   - "Einleitung": "index.md"
-  - "Prompts": "prompts.md"
+  - "Prompts Init": "prompts.md"
   - "Jiu - Theorie":
       - "Einleitung": "jiu-theorie/einleitung.md"
       - "Geschichte": "jiu-theorie/geschichte.md"
@@ -83,6 +83,7 @@ nav:
       - "Kombinationen": "jiu-praxis/kombinationen.md"
       - "Waffen": "jiu-praxis/waffen.md"
       - "Kata": "jiu-praxis/kata.md"
+      - "Prompts": "prompts.md"
   - "Selbstverteidigung":
       - "Einleitung &amp; Gesetzlage": "selbstverteidigung/einleitung-gesetzlage.md"
       - "Psychologie": "selbstverteidigung/psychologie-schokoriegel-koerperliche-ueberlegenheit.md"
@@ -133,3 +134,4 @@ nav:
   - "Prüfungen": "pruefungen.md"
   - "Zusammenfassung": "zusammenfassung.md"
   - "Literatur": "literatur.md"
+  - "Prompts": "prompts.md"

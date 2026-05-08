@@ -1,39 +1,39 @@
 ## Positionen
 
-Die Kampfstellung ist die Grundlage jeder Kampftechnik.
-Ohne sicheren Stand gibt es weder Gleichgewicht noch Kontrolle.
-Ein guter Stand ermöglicht Stabilität, schnelle Bewegung und optimale Kraftübertragung auf Schlag- und Tritttechniken.
+Als Kampfstellung bezeichnet die Körperposition, die man einimmt.
+Sicherer Stand ergibt es Gleichgewicht Kontrolle und optimale Kraftübertragung bei Schlag- und Tritttechniken.
+Die Gewichtsverteilung variiert je nach Situation.
 
 ### Frontale Kampfstellung
 
-Der Körper steht frontal zum Gegner. Beide Schultern und die Hüfte zeigen nach vorne. Die Füße stehen etwa schulterbreit auseinander.
-Das Gewicht ist gleichmäßig verteilt, die Hände schützen Kopf und Oberkörper.
+Die Füße stehen etwa schulterbreit auseinander. Das Bein der starken Hand steht hinten. (Als Rechtshänder nimmst du also das rechte Bein nach hinten.) Der Oberkörper steht fast frontal zum Gegner.
+Hände schützen Kopf und Oberkörper.
 
 Die frontale Stellung ermöglicht schnelle und direkte Angriffe nach vorne.
-Besonders geeignet sind: Frontkicks, Gerade Fauststöße. Durch die frontale Körperausrichtung können beide Seiten gleichermassen eingesetzt werden.
+Durch die frontale Körperausrichtung können beide Seiten gleichermassen eingesetzt werden.
+Besonders geeignet sind: Frontkicks, Gerade Fauststöße, Aufwärtshaken.
 
 Die frontale Kampfstellung präsentiert eine große Trefferfläche. Brust und Bauch sind leichter angreifbar als in seitlichen Positionen.
 
 ### Seitliche Kampfstellung
 
-Der Körper wird seitlich zum Gegner gedreht. Eine Schulter zeigt nach vorne, die andere nach hinten.
-Das hintere Bein trägt meist mehr Gewicht. Die Hände bleiben hoch und schützen Kopf und Körper.
+Du stehst seitlich zum Gegenüber. Das Bein der starken Hand steht hinten. (Als Rechtshänder nimmst du also das rechte Bein nach hinten.) Der Oberkörper steht fast frontal zum Gegner.
+Das Gegenüber sieht nur deine Körperseite mit Schulter und Bein, NICHT Brust.
+Das hintere Bein trägt meist mehr Gewicht. Dadurch ist das vordere Bein schneller einsetzbar (für Kick, Block).
+Die Hände bleiben hoch und schützen Kopf und Körper.
 
-Die seitliche Stellung verkleinert die Trefferfläche deutlich.
-Besonders geeignet sind: Sidekicks, seitliche Ellenbogentechniken sowie schnelle Vor- und Rückbewegungen.
+Besonders geeignet sind: Jabs, Sidekicks, seitliche Ellenbogentechniken sowie schnelle Vor- und Rückbewegungen.
 
-Durch die Körperdrehung kann viel Kraft aus Hüfte und Bein erzeugt werden.
-Im sportlichen Regelwerk ist die seitliche Stellung oft besonders praktisch, da Angriffe auf den Rücken verboten sind. Dadurch fallen viele mögliche Trefferflächen weg.
+Manche Regelwerke untersagen Angriffe zum Rücken => die seitliche Stellung verringert Trefferflächen massive.
 
 **Halb-seitliche Kampfstellung**: Die halb-seitliche Stellung liegt zwischen frontaler und seitlicher Ausrichtung.
-Der Körper ist leicht eingedreht, bleibt aber beweglich in beide Richtungen.
 
 "Sicherer Stand ist eine sichere Basis.“
 
-## Konkrete Übungen
+## Tipps
 
-- Kampfstellung vor dem Spiegel halten
-- Vor- und Rückwärtsbewegung aus der Stellung
-- Wechsel zwischen frontaler und seitlicher Stellung
+- stehe immer auf dem Fussballen => Schnelligkeit sichern
+- leicht gebeugt, Hände vor Körper => Deckung
+- Bauchmuskulatur anspannen =>
 - Gleichgewichtsübungen mit geschlossenen Augen
-- Schlag- und Kicktechniken direkt aus der Stellung ausführen
+- Wechsel zwischen frontaler und seitlicher Stellung
