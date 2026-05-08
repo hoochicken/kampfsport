@@ -77,7 +77,7 @@
 * Fokus
 * Solo-Drills
 * Kata
-* Medidation
+* Meditation
 * Intervalltraining / Tabatas
 * Schattenboxen
 * Randori & Sparring
