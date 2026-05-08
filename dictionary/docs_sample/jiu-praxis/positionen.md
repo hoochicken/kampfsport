@@ -76,7 +76,4 @@ Die starke Gewichtsverlagerung auf das hintere Bein macht die Stellung auf Dauer
 - Halte Kiba Dachi für 30 Sekunden und steigere die Zeit allmählich
 - Wechsle zwischen Zenkutsu Dachi und Kiba Dachi, ohne die Füsse zu versetzen
 - Wechsle zwischen frontaler, seitlicher, Zenkutsu-, Kiba- und Neko-Ashi-Stellung
-- Stehe Weiche Angriffen nur durch Gewichtsverlagerung aus, ohne die Füsse zu bewegen
-
-
-
+- Weiche Angriffen nur durch Gewichts- und Körperverlagerung aus, ohne die Füsse zu bewegen
