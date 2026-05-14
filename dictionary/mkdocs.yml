@@ -74,9 +74,12 @@ nav:
   - "Jiu - Praxis":
       - "Einleitung": "jiu-praxis/einleitung.md"
       - "Fallschule": "jiu-praxis/fallschule.md"
+      - "Stellungen": "jiu-praxis/stellungen.md"
       - "Positionen": "jiu-praxis/positionen.md"
       - "Bewegungslehre &amp; Distanzlehre": "jiu-praxis/bewegungslehre-distanzlehre.md"
-      - "Atemi &amp; Standup": "jiu-praxis/atemi-standup.md"
+      - "Atemi &amp; Standup": "jiu-praxis/atemi-arms-standup.md"
+      - "Atemi &amp; Standup - Arme": "jiu-praxis/atemi-arms-standup.md"
+      - "Atemi &amp; Standup - Beine": "jiu-praxis/atemi-legs-standup.md"
       - "Verteidigung": "jiu-praxis/verteidigung.md"
       - "Hebel im Stand": "jiu-praxis/hebel-im-stand.md"
       - "Würfe": "jiu-praxis/wuerfe.md"
