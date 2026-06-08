@@ -1,6 +1,8 @@
 # Distanzlehre
 
-es gibt verschiedene Distanzen, die in der Selbstverteidigung eine Rolle spielen. jede Distanz weist  entsprechenden aktionsmöglichkeiten auf. im Folgenden werden die Distanzen im Einzelnen durchgegangen und die entsprechenden Aktionsmöglichkeiten aufgezeigt. wie immer gilt, dass hier nur eine geringe Anzahl an Aktionsmöglichkeiten aufgenommen wird, allein über dieses Kapitel 
+es gibt verschiedene Distanzen, die in der Selbstverteidigung eine Rolle spielen. jede Distanz weist  entsprechenden aktionsmöglichkeiten auf. im Folgenden werden die Distanzen im Einzelnen durchgegangen und die entsprechenden Aktionsmöglichkeiten aufgezeigt. wie immer gilt, dass hier nur eine geringe Anzahl an Aktionsmöglichkeiten aufgenommen wird, allein über dieses Kapitel ließe sich ein ganzes Buch fühlen, bzw werden Bücher gefüllt.
+
+wir bewegen uns hier von der weitesten Distanz(sprechweite) bis hin zu extrem Nahdistanz auf dem Boden. in jeder Distanz gibt es Möglichkeiten zur Bewältigung der Situation. auch wenn eine Aktion nicht geklappt hat er öffnet sich in der nächsten Distanz eine neue Möglichkeit
 
 ## 1. sprechweite 
 
@@ -25,3 +27,6 @@ der Gegner besitzt eine Waffe diese Waffe kann sein ein
 * Kampf: möchtest werde ich den Kampf stellst, seid ihr bewusst, dass du 100% geben musst eine halbherzige Verteidigung, wird wahrscheinlich nicht erfolgreich sein, alles oder nichts
 * Gegenstände: Versuche Gegenstände zwischen dich und der Waffe hinzubekommen, ein Rucksack, den du wirfst, eine Jacke die du wirst, ein Stuhl, den du über den Boden kickst.(Tipp an Türsteher, immer ein passenden Stuhl mit an der Tür stehen haben, den du im Zweifelsfall bereits zwischen dir und einem potenziellen Angreifer positioniert hast
 * fokus: der Fokus beim Kampf gegen eine Waffe sollte auf der Waffenhand liegen. es geht nicht darum Punkte zu machen, und dem anderen die Nase zu brechen. die gebrochene Nase bringt nichts wenn der Bauch aufgeschnitten ist. voller Fokus auf die Waffenhandel auf die Verteidigung, die Kontrolle.
+
+## 3. beinweite
+
