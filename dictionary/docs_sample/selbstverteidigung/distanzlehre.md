@@ -30,3 +30,8 @@ der Gegner besitzt eine Waffe diese Waffe kann sein ein
 
 ## 3. beinweite
 
+nun ist der Gegner noch mehr gekommen er befindet sich in sogenannter Beinweite das heißt er kann uns mit dem Arm noch nicht zu 100% erreicht, ihr könnt dafür aber das kicken
+
+* Verteidigungsstellung: spätestens jetzt ist es an der Zeit, die hätte nach oben zu nehmen, die Hände verbleiben dabei offen Punkt dadurch ist es für Außenstehende klar, dass er dich verteidigt, und nicht dass du dich mit Fäusten auf ein anderes vorbereitest
+* Stopkick: der Socke ist ein Frontkick der zum Bauch ausgeführt wird. hier kann man optimal auch einen Switch Krieg Einsetzen, der einem hilft, einige Zentimeter in der Distanz gut zu machen und das auf schnelle Weise
+* Switchkick: der gerade ist wichtig eignet sich dazu einige wertvolle Dezimeter nach vorne gut zu machen. selbst bei unvorteilhafter Beinlängendifferenz kann man so ein stopkick perfekt anbringen und das in geringer Zeit
