@@ -35,3 +35,10 @@ nun ist der Gegner noch mehr gekommen er befindet sich in sogenannter Beinweite 
 * Verteidigungsstellung: spätestens jetzt ist es an der Zeit, die hätte nach oben zu nehmen, die Hände verbleiben dabei offen Punkt dadurch ist es für Außenstehende klar, dass er dich verteidigt, und nicht dass du dich mit Fäusten auf ein anderes vorbereitest
 * Stopkick: der Socke ist ein Frontkick der zum Bauch ausgeführt wird. hier kann man optimal auch einen Switch Krieg Einsetzen, der einem hilft, einige Zentimeter in der Distanz gut zu machen und das auf schnelle Weise
 * Switchkick: der gerade ist wichtig eignet sich dazu einige wertvolle Dezimeter nach vorne gut zu machen. selbst bei unvorteilhafter Beinlängendifferenz kann man so ein stopkick perfekt anbringen und das in geringer Zeit
+
+## 4. armweite
+
+der Gegner ist nun schon so nah, dass er in der Regel kannst du ihn dann auch erreichen bzw dich auf einen eventuellen Angriff von ihm vorbereiten.
+
+* helmchen die passive helmchenverteidigung. wenn der Gegner nicht gezielt nach Lücken sucht, wird die Verteidigung sehr leicht dabei sollte man ihn sich in den Rhein bewegen, das heißt die Distanz verkürzen. damit unterläuft man die gefährliche Schlagdistanz und kommt in ellenbogenweite. natürlich kann der Gegner hier auch Ellenbogen wir versuchen ihn zu überraschen indem wir zuerst ein Ellenbogen setzen oder eine andere Aktion ausführen, weil wir die Distanz von ihm ungeplant verändert haben
+* nasenschlag: ein Schlag auf die Nase und sei es nur mit der offenen Hand aufgeführt, ist sehr wirkungsvoll automatisch werden Tränen in die Augen schießen und den Gegner blenden.
