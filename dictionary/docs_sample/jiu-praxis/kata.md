@@ -53,4 +53,11 @@ In einer Kata zeigt man die Wirksamkeit einer Jujutsu-Technik, dass man eine Tec
 
 **Platzierung im Prüfungsprogramm**: Die erste Kata oder freie Selbstdarstellung wird im 4. Dan verlangt. Es gibt keine früher angesetzte Vorbereitung zu einer Kata. Dies bewirkt, dass der Prüfling vor einer unbekannten, ggf. furchteinflössenden Aufgabe steht. Ggf. führt dies zum Aufgeben des Prüflings schon vor der Prüfung.
 
+## Anstrengende Kata
 
+* Wiederholung: die Kata ist eine optimale Schulung. durch die häufige Wiederholung werden die Techniken eingeschleift. 
+* intensives Training: es ist keine extensive Auseinandersetzung mit Jutsu, sondern eine intensive, die fokussiert ist auf eine sehr begrenzte Anzahl von Techniken. 
+* memorisierung: durch die Wiederholung bzw das Erlernen einer Kata bzw das Erlernen einer Kata wird wird die Erinnerungsfähigkeit geschult Detail und Fokussierung durch die intensive Beschäftigung mit einer begrenzten Anzahl von Techniken können diese Techniken bis hin zur (fast) Perfektion trainiert werden 
+* bungo / imagination: wichtig ist die Vorstellung, was diese Technik genau tut. dadurch wird die Imagination gesteigert. es macht einen Unterschied ob die Technik gerade ein geradeausschlag ist oder eine Block 
+* Kräftigung: durch den Zimmer ist tiefen stand und weitere ungewöhnliche Techniken, wird die Muskulatur direkt gefördert 
+* lebenslanges Lernen: eine Kata ist kein überflüssiger balast, sondern ermöglicht dir, lebenslang an gewissen Techniken zu verfeinern. es ist eines der größten Geschenke des Kampfsports. wo immer du bist, wenn du dich langweilst kannst du gewisse Kombinationen von der Karte herausgreifen und üben. oder sogar die Kata im gesamten. die Kata ist dein lebenslanger Freund und Begleiter
