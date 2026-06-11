@@ -54,7 +54,7 @@ wenn du eine Verletzung hast , so Teile dies den Partner mit . wenn der Partner 
 
 mit Angst kann man nicht ernsthaft trainieren. es passiert nur Fehler, oder die Angst ist sogar so groß, das richtig zugeschlagen wird. achte bei dir und deinem Partner empfindlich darauf ob Angst entstanden ist verbalisiere dies spricht den Partner direkt darauf an
 
-""**ich habe gerade ein bisschen angst** kannst du bitte ein bisschen langsamer machen, dann kann ich mich besser auf die Situation einstellen. vielleicht hast du auch einen Tipp für mich"
+"**ich habe gerade ein bisschen angst** kannst du bitte ein bisschen langsamer machen, dann kann ich mich besser auf die Situation einstellen. vielleicht hast du auch einen Tipp für mich"
 
 "** ich habe das Gefühl, dass du gerade ein bisschen Angst hast** ich werde jetzt nur noch auf den körper schlagen. dein Gesicht ist sicher . du kannst also mich die ganze Zeit anschauen."
 
@@ -66,7 +66,7 @@ woran du erkennst ob dein Partner Angst hat? achte auf die Körpersprache deines
 * hektischen Bewegungen oder
 * unverhältnismäßige Härte 
 
-in diesem Fall solltest du die Angst auf jeden Fall zur Sprache bringen. im schlimmsten Fall hast du Angst unter anderem, und der Haut mit heben und Stechen aufeinander rum, solange bis ich einer von euch ganz doof verletzt. handle klug!
+in diesem Fall solltest du die Angst auf jeden Fall zur Sprache bringen. im schlimmsten Fall hast du Angst und der andere auch. dann hat ihr  mit heben und Stechen aufeinander rum, solange bis ich einer von euch ganz doof verletzt. handle klug!
 
 geschichte: ich war bei einem Freund Verein trainieren. meine Partnerin sagte immer wieder: Stopp. ich verstand das nicht weil das Gelenk noch viel Spiel hatte. ich habe erst verstanden, dass sie ein Problem mit ihrem Gelenk hat, als sie handgelenkschoner geholt hat. da wurde mir klar, dass sie dir nur dabei haben kann, wenn Sie eine Verletzung hat. sie hat mich dann böse angeschaut. das war mir dann schon etwas peinlich. ich hätte einfach fragen können, um zu verstehen
 
