@@ -103,3 +103,24 @@ ist eine Variante von Position zwei Ring. es lässt sich anhand eines Beispiels 
 der nächste Herausforderer wird aus dem Pool der wir verbliebenen noch frischen Kämpfer ersetzt. 
 
 angenommen, man hat einen sehr starken Kämpfer auf einer Matte, der immer wieder dominiert. dann wird er sehr lange auf dieser Matte bleiben Punkt und er wird immer wieder neue und frische Partner haben.
+
+## deine Sparrings-aufgabe
+
+Sparring ist Kampf und damit sehr komplex. am Anfang mag es dir vielleicht schwer fallen, da überhaupt Ordnung reinzukriegen. weil man muss ja auf alles achten: auf die Kampfstellung, auf die Deckung auf die Sauberkeit der Kicks auf die Kombination, auf den Blick etc pp 
+
+hier meinen toptip wie du dich weiterentwickelst 
+
+stelle dir eine ganz klare trainingsaufgabe. z.B kann dies sein:
+
+* jab-punch-Lowkick, immer und immer wieder
+* ausweichbewegung vor JEDER aktion
+* abschlusskick nach jeder kombi 
+
+nimm deinen Fokus wirklich nur auf eine einzige Detail was du verbessern möchtest. mach das ein bis zwei oder drei sparrings durch
+du wirst bemerken, dass du dann wirklich besser wirst
+
+sobald du dich mit einer Sache einigermaßen sicher fühlst nimm die nächste Sache dazu mit der Zeit wirst du bemerken, dass dein Technik Reparatur immer weiter ansteigt.
+
+letzter Hinweis: habt ihr gerade davor ein Training gehabt und eine bestimmte Technik geübt, bietet es sich an, genau diese Technik jetzt im sparring zu üben dann ist der Kopf noch frisch. 
+
+ich gehe genau nach diesem Schema vor. was im Training machen mache ich auch im Sparring. dadurch merke ich gleich ob mir eine Technik liegt oder  nicht. eine Ausnahme: ich habe mir vorher schon vorgenommen welche technik ich gezielt trainieren möchte.
