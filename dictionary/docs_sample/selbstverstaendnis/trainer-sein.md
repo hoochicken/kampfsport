@@ -44,6 +44,24 @@ du wirst eine ganze Menge nicht Fragen bekommen zu Bereichen, über die noch gar
 * schließe deine Erklärung ab und lass deine Trainees weiter trainieren. schnappe dir dann am Rande der Matte eintraining und probiere aus , dann kannst du direkt rückmeldung geben 
 * dann kannst du im nächsten Training diese Frage wieder aufgreifen
 
+### die Stille Angst eines Trainers
+
+"ich zeige meinen Schülern niemals alles. ich halte immer etwas zurück, damit ich die Oberhand behalte."
+
+diese Aussage wurde mir über den Algorithmus in mein Facebook gespült. und sie war vollkommen ernst gemeint.
+
+diese Aussage zugrunde liegt die Stille Angst eines jeden Trainers: dass der Trainee besser werden könnte als man selbst. dadurch ist die eigene Sicherheit, die eigene Position gefährdet. scheinbar. 
+
+lass dich nicht auf diese Angst ein  dann siehst vollkommen unbegründet. 
+
+du trainierst sicherlich seit vielen Jahren ein Sport. genau deshalb hat man dich zum Trainer berufen. du hast mehrere Jahre trainingssicherheit in Ausführungen und Erklärung der Technik. stelle dir nun folgende Fragen bzw. beachte folgende aspekte
+
+* wie soll ein Schüler dies in ein zwei fünf Monaten denn überbieten, was du in der zehnfachen Zeit gelernt hast?
+* und selbst wenn, ist es nicht genau das was du erreichen möchtest? dass du dein Wissen optimal an einen Schüler weitergeben kannst? das ist doch ein riesiger Erfolg!
+* und selbst wenn: der Schüler fühlt nur sich selbst, du aber kannst den Schüler von außen betreuen und ihn auf Fehler aufmerksam machen und ihn darin verbessern was er nicht sieht darin kannst du ihn noch besser machen!
+
+**beispiel**: schau dir doch mal Boxkämpfe an von großen Boxern (). in der Ecke stehen oft irgendwelche alten hutzelmännchen, die die besten Tipps für die Boxer reinrufen. die Trainer dieser Weltmeister sind natürlich nicht mehr so gut selbst im Boxen. die Aufgabe von Trainern ist es nicht Weltmeister zu werden. die Aufgabe ist es, Weltmeister zu machen
+
 ### Erhaltung und weiterbildung 
 
 weil man oft nur das Training hat, dass man gerade geht. und da ist man ja mit Training geben beschäftigt. Möglichkeiten zum technikerhalt sind folgende
