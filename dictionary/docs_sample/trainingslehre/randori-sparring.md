@@ -34,4 +34,20 @@ sparring ist kein wildes herumklopfen aufeinander, sondern das sollte planmäßi
 
 **fussschoner** fußschoner sieht aus wie sehr große Puschen, die man vor dem Fernseher anzieht. sie haben aber keine Sohle, so dass man direkt mit dem Blusen Fuß auf dem Boden steht. sie schützen vor allem den Partner davor dass ein zeh  unbeabsichtigt ein Auge quetscht und es zerstört
 
+**ellenbogenschoner** und **knieschoner**: sind beim Sparring auch Ellenbögen und Knie zugelassen, empfiehlt es sich eben diese Schoner anzuziehen. dadurch schützt man den anderen . denn gerade Ellenbögen können sehr böse Auswirkungen haben die man mit dem Schoner wesentlich abmindert
+
 **brustschutz** ist  für Frauen, er schützt die Brust sinnvoll vor allem bei schmerzempfindlichen Brüsten. kleiner Tipp: neben den Brustschutz der aus einem Top besteht mit einlegbaren Schalen. der ist wesentlich beweglicher, als diese komische vollschalen-Brünne, die überall am Körper reibt und die Beweglichkeit vollkommen einschränkt
+
+## verbotene Techniken
+
+beim sparen gibt es tatsächlich verbotene Techniken Punkt ob ihr das so handhabt Komma ist mir egal Komma bei mir auf der Matte ist das genauso Punkt folgende Techniken sind verboten
+
+* gerade fusstechniken zu Kopf, verletzungsgefahr dee wirbelsäule
+* gerade fusstechnik zum knie, jegliche fusstechnik zum knie
+* back roundhouse kick, weil gedrehte kicks kaum zu kontrollieren sind und die ferse echt böse treffen kann
+* ellenbögen (allenfalls   mit schoner und nach abmachung)
+* fingerstiche etc. zu augen, haare reissen etc.
+* keine Hebel im Stand, zu groß ist die Verletzungsgefahr, wenn man stolpert und nicht aus dem Himmel rauskommt
+
+es kann sein, dass ich hier tatsächlich noch Techniken vergessen habe aber ich denke die Richtung sollte klar sein. wir wollen alle gesund von der Matte laufen und dafür tun wir alles
+
