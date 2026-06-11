@@ -10,7 +10,9 @@ die Techniken in einer Kombination sind in der Regel nicht gleichberechtigt. es 
 
 im Folgenden findest du mehrere Beispiele, die dir dies erläutern
 
-## Hand und Zug mit Gegenhand
+## Beispiele 
+
+### Hand und Zug mit Gegenhand
 
 Beim Kombinationen schlägt die vordere Hand direkt nach vorne. Gleichzeitig zieht die hintere Hand aktiv zur Deckung zurück, als würde man kräftig an einem Seil ziehen.
 
@@ -20,7 +22,7 @@ Wenn ein Schlag nicht funktioniert, hängt dies oft mit der vorangehenden Techni
 
 Hinweis Doppelpunkt achte darauf dass der Gegenzug deine Deckung nicht nachteilig beeinflusst . das ist ein bisschen eine grat Wanderung
 
-## jab, punch, Lowkick (dom)
+### jab, punch, Lowkick (dom)
 
 Beispiel ist die Technik Kombination jab, punchn, lowkick, letzteres mit dem dominanten Bein).
 
@@ -46,6 +48,30 @@ zur schnellen Ausführung des logics muss das lowkick-Bein leicht und frei sein.
 die letzte Technik einer Kombination sollte deine größte Aufmerksamkeit bekommen! denn sie ist immer die kampfstellung. auch wenn eine dreierkombination gesagt wird , erinnere dich daran dass du nach Ausführung der Kombination deine kampfstellung wieder einen ist damit du optimal geschützt bist
 
 dies gilt auch versicherungstechniken. achte darauf dass der Partner sicher liegt und nur umständlich aufstehen kann, während du in immer im Blick hast und gegebenenfalls noch einmal nachzufassen
+
+übersetze dir eine Kombination immer wie folgt 
+
+* jab punch  =>   jab punch  Kampfstellung
+* jab punch lowkick =>   jab punch lowkick Kampfstellung
+
+## Programmierung 
+
+Kombination eignen sich optimal für finden. man führt eine Kombination zwei dreimal aus, in einer Heftigkeit, so dass der Gegner unter Druck gerät und Angst vor der nächsten genau dieser Kombination hat bei der nächsten Ausführung der Kombination wird man nur die allererste Technik aus in diesem Moment denkt der Gegner bereits, dass er weiß was auf in Zukunft nach der ersten Technik führst du aber eine Variante ein 
+
+Beispiel
+
+* 3x Jab punch lowkick
+* 4. mal jab, frontkick
+
+weitere Hinweise zur Programmierung des gegners/priming findest du im verteidigungskapitel
+
+## kombination anreichern
+
+Kombination eignen sich optimal dazu, dann Kampfstil zu verbessern. z.B kannst du deine Kombination wie folgt an reichern
+
+* vor jeder Kombination führst du eine ausweichbewegung nach links und rechts aus Komma um den Gegner zu verwirren
+* nach jeder Kombination führst du einen abschlusskick aus nach jeder Kombination führst du einen Jab aus und weichst zurück 
+* nach jeder Kombination führst du einen jab aus und gehst zur Seite
 
 ## methodische Übungsreihe
 
