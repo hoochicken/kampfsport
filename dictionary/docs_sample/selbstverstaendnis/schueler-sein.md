@@ -12,10 +12,15 @@ Hinweis: gibt dennoch dein Hirn nicht ab Punkt sei aufmerksam und lasse dich nic
 
 ## hinderliche einstellungen
 
-* "Das kann ich nicht und werde ich nie können": Als Anfänger ist alles neu und man ist überfordert. Neue Trainingsklamotten, den Gürtel irgendwie binden, Angegriffen-werden, Block machen, Wurfdurchführen etc. und das alles auf einmal. Dein Gehirn arbeitet auf Höchstleistung, es ist okay, überfordert zu sein. Je häufiger du trainierst, umso routinierter wirst du.
-* "Das kenne ich schon": Kennen heisst nicht Können. Mancher Anfänger überschätzt sich oft und unterschätzt die Technik (Dunning-Krüger-Effekt). Info: Um eine Technik sicher ausführen zu können, muss ein Mensch diese mindestens 1000 Mal geübt haben. Das versteht man oft erst später, wenn man mehr Erfahrung hat. Sei geduldig mit Dir. Wichtig ist, dass Du die Technik ausführst; nicht dass du das schon irgendwann einmal getan hast.
+"Das kann ich nicht und werde ich nie können"
 
-### trainings-lustlosigkeit
+Als Anfänger ist alles neu und man ist überfordert. Neue Trainingsklamotten, den Gürtel irgendwie binden, Angegriffen-werden, Block machen, Wurfdurchführen etc. und das alles auf einmal. Dein Gehirn arbeitet auf Höchstleistung, es ist okay, überfordert zu sein. Je häufiger du trainierst, umso routinierter wirst du.
+
+"Das kenne ich schon"
+
+Kennen heisst nicht Können. Mancher Anfänger überschätzt sich oft und unterschätzt die Technik (Dunning-Krüger-Effekt). Info: Um eine Technik sicher ausführen zu können, muss ein Mensch diese mindestens 1000 Mal geübt haben. Das versteht man oft erst später, wenn man mehr Erfahrung hat. Sei geduldig mit Dir. Wichtig ist, dass Du die Technik ausführst; nicht dass du das schon irgendwann einmal getan hast.
+
+### trainings-hänger und lustlosigkeit
 
 An manchen Tagen geht einem der Trainer auf den Keks. Sei es menschlich, technisch, was auch immer. Oft sind das temporäre Schwankungen, einfach erdulden, das richtet sich oft wieder.
 
