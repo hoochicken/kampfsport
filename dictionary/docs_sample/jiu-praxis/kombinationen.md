@@ -4,6 +4,21 @@ als Kombination bezeichnet man die Aufeinanderfolge zweier oder mehrerer Technik
 
 das hat zur Folge, dass du manchmal eine Technik versuchst richtig zu machen, und du einfach nicht drauf kommst was an der Technik falsch ist. dann ist auf der Hintergrund, dass die vorangehende Technik angepasst werden muss um die Ausführung der nächsten Technik perfekt zuzulassen
 
+## methodische Übungsreihe
+
+die methodische Übungsreihe eignet sich optimal, um eine Kombination zu erlernen. siehe dort
+
+dieser Text kommt zu Training
+
+die methodische übungsreihe ist eine wie man sich Kombinationen und komplexeren Zusammenhängen nähert . und das ist ganz einfach : 
+* zuerst führt man zum Beispiel 10x die 1. Technik aus 
+* anschließend führt man die ersten beiden Techniken aus, auch 10x 
+* wieder anschließend hängt man die nächste Technik dran und führt alles 10x aus jeweils  
+
+dadurch lernt man nicht auf einmal sieben Techniken , sondern nähert sich diesem technik-komplex dieser Kombination schrittweise . 
+
+**Hinweis** der Ausgangspunkt kann auch eine zentrale , besonders schwere Technik sein vor die man oder nach der man dann die weiteren Technik einbaut
+
 ## die akzentuierte technik
 
 die Techniken in einer Kombination sind in der Regel nicht gleichberechtigt. es ist auch nicht möglich, alles mit 100%iger stärker auszuführen, eben weil sich die Techniken ineinander verflechten. oft gibt es daher eine Haupt- oder Pike Technik, die besonderes Gewicht erhält. sie bekommt quasi den Akzent in der Kombination. wenn du eine Kombination lernst, überlege gut welches Deine akzentuierte Technik ist
@@ -73,18 +88,3 @@ Kombination eignen sich optimal dazu, dann Kampfstil zu verbessern. z.B kannst d
 * nach jeder Kombination führst du einen abschlusskick aus 
 * nach jeder Kombination führst du einen Jab aus und weichst zurück 
 * nach jeder Kombination führst du einen jab aus und gehst zur Seite
-
-## methodische Übungsreihe
-
-die methodische Übungsreihe eignet sich optimal, um eine Kombination zu erlernen. siehe dort
-
-dieser Text kommt zu Training
-
-die methodische übungsreihe ist eine wie man sich Kombinationen und komplexeren Zusammenhängen nähert . und das ist ganz einfach : 
-* zuerst führt man zum Beispiel 10x die 1. Technik aus 
-* anschließend führt man die ersten beiden Techniken aus, auch 10x 
-* wieder anschließend hängt man die nächste Technik dran und führt alles 10x aus jeweils  
-
-dadurch lernt man nicht auf einmal sieben Techniken , sondern nähert sich diesem technik-komplex dieser Kombination schrittweise . 
-
-**Hinweis** der Ausgangspunkt kann auch eine zentrale Komma besonders schwere Technik sein vor die man oder nach der man dann die weiteren Technik einbaut
