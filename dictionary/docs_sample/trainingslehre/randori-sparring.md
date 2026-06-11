@@ -51,3 +51,27 @@ beim sparen gibt es tatsächlich verbotene Techniken Punkt ob ihr das so handhab
 
 es kann sein, dass ich hier tatsächlich noch Techniken vergessen habe aber ich denke die Richtung sollte klar sein. wir wollen alle gesund von der Matte laufen und dafür tun wir alles
 
+## Sparring lernen 
+
+am Anfang muss man sich erstmal an das Bein gewöhnen Punkt entsprechend niederschwellig sollten die Aufgaben sein. die trainees werden mit technik auf technik bedingtem Sparring an diesen Handlungskomplex herangeführt Punkt jetzt fragst du dich sicherlich: was ist bedingtes Sparring
+
+## technik auf technik
+
+Technik auf Technik bedeutet, dass man das zeitlich chaos eines freien Kampfes herausnimmt. stattdessen wird Technik auf Technik trainiert. 
+
+das heißt : Partner a macht eine Technik. dann macht Partner B eine Technik. nachdem  B  die Technik ausgeführt hat darf wieder Partner A.
+
+dies kann man natürlich auch variieren indem man sagt man macht Kombination auf Kombination. Partner a darf eine Dreierkombination machen. dann macht Papa B seine Dreierkombination. dann wieder Partner
+
+### begingtes sparring
+
+bei bedington Sparring gibt man eine sparringsaufgabe. zwangsaufgaben können z.B sein
+
+* nur führhand: ihr habt jetzt nur eure Führhand  versucht so viel wie möglich zu treffen und versucht so wenig wie möglich getroffen zu werden
+* nur gerade hände: die Sparringspartner dürfen nur gerade Hände machen, also jap und punch zum Kopf und zum Körper Punkt erkläre dazu, dass es ausweichen und ganz leicht ist, weil es keine runden Schläge gibt Punkt geht man aus der Linie, wird man nicht getroffen
+* Gefangener Fuß: der vordere Fuß der Partner muss immer innerhalb eines bestimmten Bereichs bleiben, z.B innerhalb nur einer Matte oder innerhalb eines Hula Hoop Reifens. dadurch wird das Ausweichengeschult
+* nur hände
+* nur Kicks
+
+
+
