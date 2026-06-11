@@ -123,6 +123,7 @@ stelle dir eine ganz klare trainingsaufgabe. z. B. kann dies sein:
 * Bastion bleib auf genau einer Matte und verteidige diese Matte
 * Druck dem anderen Druck indem du immer auf den zu ihm zu läufst und ihm keine Chance lässt sich zu fangen
 * Leber als einzige Zielfläche, jeder Haken jeder mittelkick geht zur Leber
+* Finte jede Angriff ist von einer Finte / Freeze begleitet
 
 nimm deinen Fokus wirklich nur auf eine einzige Detail was du verbessern möchtest. mach das ein bis zwei oder drei sparrings durch
 du wirst bemerken, dass du dann wirklich besser wirst
