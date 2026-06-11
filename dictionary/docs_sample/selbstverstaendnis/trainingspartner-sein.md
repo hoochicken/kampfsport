@@ -1,4 +1,38 @@
-# Trainingspartner sein
+## Trainingspartner sein
+
+### Motivieren
+
+beim Kampfsport werden viele Übungen zu zweit ausgeführt. folglich hat man einen Partner, mit dem man zusammen trainiert. das scheint auf den ersten Blick selbstverständlich, aber auch hier gibt es diverse Eigenheiten die zu beachten sind sobald man mit einem Partner zusammenarbeitet, baut man mit ihm eine Art Beziehung auf man agiert als ein eigenes Ökosystem und unterstützt sich im Idealfall gegenseitig. gehen wir nun einmal von der Annahme aus, dass ihr euch gegenseitig unterstützen wollt. das bedeutet, dass du den Partner jederzeit: den Druck habe ich jetzt viel mehr gemerkt der Wurf hat uns viel besser geklappt. wäre ein k.o gewesen, aber du hast locker gemacht vielen herzlichen Dank. in einem Kampf wäre das glaube ich das Ende des Kampfes gewesen, wie geil
+
+### Tipps geben
+
+es gibt mehrere Arten, miteinander zu trainieren. entscheidend finde ich zwei Modi: 
+
+1. sich die ganze Zeit Rückmeldung gibt über die Techniken und deren Ausführung. 
+2. man ist ein Flow zu, dass alle Fünfe gerade sein und trainiert auf Wiederholungen.
+
+es bietet sich an zunächst auf Technik zu achten, bis die Gruppe und dann in den Flow überzugehen . dadurch erreicht man technische Sicherheit und anschließend viel Spaß: 
+
+* korrigiere den anderen nicht zu Tode 
+
+### Tipps bekommen
+
+Tipps zu bekommen, ist super. andererseits ist es auch kacke, weil das ja bedeutet, dass man etwas nicht richtig gemacht hat Blende diesen Aspekt bei deinem Training komplett aus. nimm einen Tipp immer als das was es ist, deine gute Technik wird noch besser gerade als Erwachsener ist es oft anstrengend, gibt es anzunehmen. man müsste ja eigentlich schon alles wissen. man wird vielleicht auf der Arbeit ständig korrigiert etc. finde mit deinem Partner einen guten Modus. gegebenenfalls nimm ihn nach dem Training beiseite und suche das Gespräch mit ihm.
+
+* sollte jemand dich zu Tode korrigieren, sage einfach heute bin ich müde ich würde gerne heute ein bisschen weniger intensiv trainieren. 
+
+**Geschichte**: die Gruppe besteht nur aus Männern, die größer und schwerer sind als ich. als mir dann der fünfte Trainingspartner erklärt hat, wie ich die Technik zu machen hätte hätte erklärte ich etwas platzig ich einfach zu müde sei und einfach nur noch trainieren wolle. das wäre in Ordnung gewesen, aber ich habe es in frustriertem Ton gesagt. besser wäre natürlich gewesen das Gespräch zu suchen kleiner Nebeneffekt,: er hat es wohl weitererzählt, und seitdem habe ich die Liebsten Trainingspartner der Welt
+
+### sicherheit
+
+die Sicherheit des Partners und deine eigene sollte an erster Stelle liegen. auch wenn du loslegen möchtest, und deine Techniken voll entfalten möchtest, deine komplette Kraft hineinlegen möchtest, wenn dein Partner halb so schwer ist wie du oder einen schlechten Tag hat, oder beides zusammen, dann könntest du ihn ernsthaft verletzen.
+
+trainiere schnell und locker, dann lernst du am meisten. 
+
+oder andersrum gesagt: stell dir mal vor du würdest tatsächlich jemanden ernsthaft verletzen, das Knie zertrümmern, weil du einfach dein lowkick probieren wolltest. wahrscheinlich ist er, dass du dir jahrelang daraufhin Gedanken machst, und dich zu Todesstern den Sport an den Nagel hängt.
 
 * Partner-sein ist der erste Schritt zum Trainer-sein.
+
+
+
 
