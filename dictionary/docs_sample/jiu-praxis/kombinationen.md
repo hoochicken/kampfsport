@@ -35,11 +35,11 @@ Beispiel ist die Technik Kombination jab, punchn, lowkick, letzteres mit dem dom
 * die Kombination soll schnell sein 
 * der lowkick trägt den Akzent
 
-zur schnellen Ausführung des logics muss das lowkick-Bein leicht und frei sein. nur dann kannst du damit schnell kicken. das bedeutet, dass bei Ausführung des punches das komplette Gewicht auf dem vorderen Bein liegen muss! 
+zur schnellen Ausführung des lowkick muss das lowkick-Bein leicht und frei sein. nur dann kannst du damit schnell kicken. das bedeutet, dass bei Ausführung des punches das komplette Gewicht auf dem vorderen Bein liegen muss! 
 
 **Folge**: bei Ausführung der Schlaghand muss das Gewicht auf dem Standbein liegen, dass wir den Kick benötigt wird. dadurch verringer verringert sich der Schub des schubbeins auf fast null . der Punch wird zwangsläufig schwächer werden  
 
-**Fazit** auch wenn es sich so anhört Komma als ob zweier Kombination japane und die dreierkombination Japan flow Kick sehr eng miteinander verwandt sind Komma das ist nicht unbedingt der Fall . der Punch wird in beiden Techniken Kombinationen gegebenenfalls vollkommen anders ausgeführt
+**Fazit** auch wenn es sich so anhört Komma als ob zweier Kombination jab-punch und die dreierkombination jab-punch-lowkick  sehr eng miteinander verwandt sind Komma das ist nicht unbedingt der Fall . der Punch wird in beiden Techniken Kombinationen gegebenenfalls vollkommen anders ausgeführt
 
 **alternativ**: man führt die Kombination jab Punch mit Akzent auf dem Punch aus. danach folgt zwangsläufig ein eine Gewichtsverlagerung, und der Logik folgt mit einem etwas größeren Abstand
 
