@@ -23,6 +23,23 @@ Tipps zu bekommen, ist super. andererseits ist es auch kacke, weil das ja bedeut
 
 **Geschichte**: die Gruppe besteht nur aus Männern, die größer und schwerer sind als ich. als mir dann der fünfte Trainingspartner erklärt hat, wie ich die Technik zu machen hätte hätte erklärte ich etwas platzig ich einfach zu müde sei und einfach nur noch trainieren wolle. das wäre in Ordnung gewesen, aber ich habe es in frustriertem Ton gesagt. besser wäre natürlich gewesen das Gespräch zu suchen kleiner Nebeneffekt,: er hat es wohl weitererzählt, und seitdem habe ich die Liebsten Trainingspartner der Welt
 
+### respekt
+
+behandle ich Partner mit Respekt. das bedeutet, lache ihn nicht aus, sondern wie ihn immer ernst. es ist niemanden, wenn du jemanden ausmacht. ich spreche hier aus Erfahrung.
+
+### Absichtlicher Nachteil
+
+es kommt vor, dass du mit Papa trainierst, die technisch weniger gewarnt sind, die körperlich unterlegen sind und ähnliches. wie soll man mit so jemanden trainieren? das ist einfach vor allem beim Sparring kann es sinnvoll sein, sich ein Absichtlichen Nachteil zu geben kann es sinnvoll sein damit das Training für dich auch fordern bleibt, kannst du einige der folgenden Techniken anwenden
+
+* beschränkung auf eine Technik : o trainiere nur eine Technik Punkt damit kannst du die einschleifen Punkt der Partner kann sich darauf einstellen und entsprechend seine Verteidigung aufbauen
+* entferne ein Gliedmaß: entferne einfach ein Gliedmaß, z.B die rechte Schlaghand z.B die rechte Schlaghand. dann kannst du nur mit mit führ Hand angreifen, dadurch trainierst du massiv die für Hand ; der Partner kann sehr leicht ausweichen
+* greife nur mit geraten Angriffen an Teile dies dem Partner mit Punkt Teil ihm auch mit und Komma dass er bei jedem Angriff einfach nur nach links oder nach rechts ausweichen muss
+* achte bewusst auf ein technisches Detail Komma zum Beispiel deinen tiefen stand und deine Hüfte Punkt dadurch trainierst du deine oberschenkelmuste massiv und dein stand
+* Augen schließen (nur im Bodenkampf)
+* arm unter gürtel entferne beim bodenkampf ein Arm in dem du in deinen Gürtel einklemmst passen natürlich auf deinen Arm auf Komma dass da nicht irgendwie verdreht wird Punkt durch die wegnahme des arms bist du dann ganz anders gefordert
+
+Ziel ist es Komma dass du währenddessen gefordert bist du kannst dir also sehr viel anpassen Punkt dadurch habt ihr beide optimal spaß weil ihr euch beide verausgabt
+
 ### sicherheit
 
 die Sicherheit des Partners und deine eigene sollte an erster Stelle liegen. auch wenn du loslegen möchtest, und deine Techniken voll entfalten möchtest, deine komplette Kraft hineinlegen möchtest, wenn dein Partner halb so schwer ist wie du oder einen schlechten Tag hat, oder beides zusammen, dann könntest du ihn ernsthaft verletzen.
