@@ -8,7 +8,7 @@ ist man im Training, kommt oft auch zwangsläufig der Punkt, an dem man sich mit
 
 am besten lernst du, wenn du dich dem schülersein voll und ganz hin gibst erlebe die Disziplin, bitte neue Gewohnheiten aus. erfreue Dich daran, dass jemand Pünktlichkeit fordert und seit 15 Minuten vor Trainingsbeginn am Start( wenn Arbeit endet knapp, pünktlich ist in manchen Fällen nicht möglich). achte auf saubere Kleidung und bringe älteren Schülern Respekt entgegen. 
 
-Hinweis: gibt dennoch dein Hirn nicht ab Punkt sei aufmerksam und lasse dich nicht aufgerufen siehe dazu das Kapitel "Meister sein"
+Hinweis: gibt dennoch dein Hirn nicht ab Punkt sei aufmerksam und lasse dich nicht aufgerufen siehe dazu das Kapitel "Meister sein" und kes unten "wie du einen guru erkennst"
 
 ## hinderliche einstellungen
 
@@ -30,3 +30,19 @@ Trainer zeigt etwas Gefährliches (weiss es nicht, oder ist an sich ein Depp). D
 
 Hier hilft: spiele den Wissbegierigen und Hake nach: "Oh, ich habe gerade Probleme mit meinem Knie. Ist es okay, wenn ist in den Talfallzug seitlich reingehe. Dann ist das Knie optimal geschützt."
 
+### wie du einen guru erkennst
+
+es gibt im Kampfsport viele schwarze Schafe. dies hängt damit zusammen Kampfsport an sich mit Kraft und damit mit Überlegenheit zu tun hat und damit mittelbar mitmacht. ein höherer Schüler ein"Meister", ist zu respektieren. einem Guru sitzt du auf  wenn z.B folgende Dinge im Verein passieren
+
+* alle geben die Meister immer recht, auch dann wenn er unrecht hat
+* es wird keinerlei Kritik am Meister geübt
+* die gegebenen Erklärungen sind sehr einfach und passen immer. sie sind so einfach dass man selbst weiß, dass es gar nicht so einfach sein kann
+* "bei uns sind nur liebe Leute" Ende ist eine häufig zu finden der Behauptung
+* der Meister entschuldigt sich nicht manchmal weißt er sogar einem anderen die Schuld zu obwohl er selbst ein Fehler gemacht hat
+* der Meister erzählt Geschichten wie toll er ist und was er alles schon gemeistert hat bei den Geschichten machen immer die anderen den Fehler
+* manche Schüler verschwinden grußlos und ohne Tschüss zu sagen aus dem Dojo. eigentlich waren sie nett Punkt im Nachhinein werden über sie komische Geschichten erzählt
+* den hilfstrainern wird keine trainingspauschale bezahlt. es ist selbstverständlich dass sie das Training ableisten
+* der Meister macht schlechte Witze oder hat eine sprachliche Eigenheit oder ein sprachlichen Akzent. die Schüler übernehmen diese sprachliche Eigenheit, weil sie ihrem Vorbild also sehr nacheifern wollen(und machen zum Teil die gleichen grammatikalischen Fehler)
+* es passieren offensichtliche ungerechtigkeiten und Ungereimtheiten Punkt die Schüler stehen voll dahinter obwohl offensichtlich ist dass sie etwas ganz falsch läuft
+
+Hinweis: ich war genau einmal in so einem Verein. ich war damals anfangs 20 und habe bei vielen Dingen weggesehen. selbst als der Trainer mich dann sexuell belästigt hat habe ich versucht da weiter zu trainieren Punkt ich war da zu tief drin. geh einen Schritt zurück und schau dir genau an, mit wem du dir denn hier hast es sind alles nur Menschen und sie haben alle sehr menschliche Fehler.
