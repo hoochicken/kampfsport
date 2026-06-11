@@ -10,7 +10,9 @@ die oberste Aufgabe des Trainers ist es, dem Trainee Sicherheit zu sorgen. alle 
 
 in der Regel lässt sich der andere nicht einfach so werfen und gibt eine Gegenkraft. das Ergebnis ist, dass zwei Leute mit Kraft etwas versuchen, und dann kann es gefährlich werden. 
 
-gerade wenn ein **Wurf** probiert wird, kann es bisweilen sehr gefährlich werden. denn hier summieren sich die Kraft von zwei Personen und die Schwerkraft auf.
+gerade wenn ein **Wurf** probiert wird, kann es bisweilen sehr gefährlich werden. denn hier summieren sich die Kraft von zwei Personen und die Schwerkraft auf. das gilt insbesondere bei großem Gewichtsunterschied. die Verletzungsgefahr für den kleineren Partner ist hier em7nent und muss monitort werden
+
+( ich habe mir mal fast die Nase gebrochen weil ich - ungelogen! y gegen die stehende Faust eines sehr  schweren Partners gelaufen bin, der konnte gar nichts dafür . das hat ganz schön gesaftet)
 
 wenn du merkst dass deine trainees ein bisschen zu begeistert sind kannst du zwischen den Runden( wenn es ganz gefährlich ist brich eine Runde lieber ab), erinnere die Trainees daran vorsichtig zu sein 
 
@@ -18,7 +20,7 @@ sag z.B folgendes
 
 "keiner gewinnt ein Preis, keiner kriegt hunderttausend Euro also können wir hier ganz entspannt trainieren. wir wollen alle gesund von dieser Matte laufen und morgen ganz gemütlich arbeiten . passt aufeinander auf"
 
-wenn es bei zweien ganz schlimm ist, dann bricht den Kampf ab
+wenn es bei zweien ganz schlimm ist, dann bricht den Kampf sofort ab
 
 ## Schutzausrüstung
 
@@ -110,11 +112,17 @@ Sparring ist Kampf und damit sehr komplex. am Anfang mag es dir vielleicht schwe
 
 hier meinen toptip wie du dich weiterentwickelst 
 
-stelle dir eine ganz klare trainingsaufgabe. z.B kann dies sein:
+stelle dir eine ganz klare trainingsaufgabe. z. B. kann dies sein:
 
 * jab-punch-Lowkick, immer und immer wieder
 * ausweichbewegung vor JEDER aktion
 * abschlusskick nach jeder kombi 
+* distanz: lange Distanz halten, für für einen Angriff schnell rein und wieder rausspringen
+* jedes Mal ein stoppkick gegen den Partner
+* jedes Mal wenn der Partner kommt einen vehementen störangriff
+* Bastion bleib auf genau einer Matte und verteidige diese Matte
+* Druck dem anderen Druck indem du immer auf den zu ihm zu läufst und ihm keine Chance lässt sich zu fangen
+* Leber als einzige Zielfläche, jeder Haken jeder mittelkick geht zur Leber
 
 nimm deinen Fokus wirklich nur auf eine einzige Detail was du verbessern möchtest. mach das ein bis zwei oder drei sparrings durch
 du wirst bemerken, dass du dann wirklich besser wirst
