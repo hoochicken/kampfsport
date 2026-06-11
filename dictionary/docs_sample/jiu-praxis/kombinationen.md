@@ -56,14 +56,14 @@ dies gilt auch versicherungstechniken. achte darauf dass der Partner sicher lieg
 
 ## Programmierung 
 
-Kombination eignen sich optimal für finden. man führt eine Kombination zwei dreimal aus, in einer Heftigkeit, so dass der Gegner unter Druck gerät und Angst vor der nächsten genau dieser Kombination hat bei der nächsten Ausführung der Kombination wird man nur die allererste Technik aus in diesem Moment denkt der Gegner bereits, dass er weiß was auf in Zukunft nach der ersten Technik führst du aber eine Variante ein 
+Kombination eignen sich optimal für Finten. probiere mal folgendes im Sparring:  führe deine Kombination zwei-, dreimal aus, in einer Heftigkeit, so dass der Gegner unter Druck gerät und Angst vor der nächsten genau dieser Kombination hat. bei der nächsten Ausführung der Kombination wird man nur die allererste Technik ausgeführt. in diesem Moment denkt der Gegner bereits, dass er weiß was auf in Zukunft nach der ersten Technik führst du aber eine Variante ein 
 
 Beispiel
 
 * 3x Jab punch lowkick
 * 4. mal jab, frontkick
 
-weitere Hinweise zur Programmierung des gegners/priming findest du im verteidigungskapitel
+weitere Hinweise zur Programmierung des gegners / priming findest du im verteidigungskapitel
 
 ## kombination anreichern
 
