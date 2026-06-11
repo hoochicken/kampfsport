@@ -2,6 +2,8 @@
 
 als Sparring bezeichnet man einen Übungskampf. man nennt es auch Randori Punkt darin kann sich der Trainee erproben, wie er seine Techniken spontan und ohne Absprache anwenden kann.
 
+meine trainees Lieben das Barring. sie sind mit Feuer dabei und freuen sich, weil sie sich hier richtig austoben können. währenddessen konzentriere ich mich auf die wichtigste Aufgabe die der Trainer dann hat
+
 ### aufgabe des Trainers: sicherheit
 
 die oberste Aufgabe des Trainers ist es, dem Trainee Sicherheit zu sorgen. alle sollen gesund von der Matte heruntergehen, auf den eigenen Füßen. in der Regel bringt es Sparring mit sich, dass man eine Technik ausprobieren möchte( Schlag oder Kik, Wurf) dafür muss man eine gewisse Kraft einsetzen. 
@@ -63,15 +65,41 @@ das heißt : Partner a macht eine Technik. dann macht Partner B eine Technik. na
 
 dies kann man natürlich auch variieren indem man sagt man macht Kombination auf Kombination. Partner a darf eine Dreierkombination machen. dann macht Papa B seine Dreierkombination. dann wieder Partner
 
-### begingtes sparring
+### bedingtes sparring
 
-bei bedington Sparring gibt man eine sparringsaufgabe. zwangsaufgaben können z.B sein
+bei bedingtem Sparring gibt man eine sparringsaufgabe. zwangsaufgaben können z.B sein
 
 * nur führhand: ihr habt jetzt nur eure Führhand  versucht so viel wie möglich zu treffen und versucht so wenig wie möglich getroffen zu werden
 * nur gerade hände: die Sparringspartner dürfen nur gerade Hände machen, also jap und punch zum Kopf und zum Körper Punkt erkläre dazu, dass es ausweichen und ganz leicht ist, weil es keine runden Schläge gibt Punkt geht man aus der Linie, wird man nicht getroffen
 * Gefangener Fuß: der vordere Fuß der Partner muss immer innerhalb eines bestimmten Bereichs bleiben, z.B innerhalb nur einer Matte oder innerhalb eines Hula Hoop Reifens. dadurch wird das Ausweichengeschult
 * nur hände
 * nur Kicks
+* etc.
 
+## setup-Sparring
 
+Setup Sparring ist wenn ein trainingspaar eine bestimmte Übung ausführt. nach der Ausführung dieser Technik beginnt erst das freie Sparring .
 
+beispiel der Hüftwurf wird ganz normal wie im normalen Training ausgeführt. sobald der Partner am Boden liegt, beginnt der eigentliche Kampf 
+
+dadurch nimmt man die potenzielle Gefährlichkeit eines Wurfes aus dem Sparren heraus. der Wurf kann 100% kontrolliert ausgeführt werden. erst danach geht das freie Sparring los
+
+## positions-sparring
+
+vor allem im Bodenkampf verwendet man Position Sparring zwei Partner befinden sich in einer Position. 
+
+der Unterlegene Partner bekommt die Aufgabe aufzustehen, der überlegene Partner bekommt die Aufgabe einer submission. 
+
+der Kampf endet sobald einer der Partner seine Aufgabe erfüllt hat. danach geht die Runde von neuem los in derselben Position . 
+
+Position Sparring ist grandios, um eine Befreiung immer wieder zu drillen oder eine satmischen immer wieder zu drillen Punkt man muss sich diese Position nicht schwer arbeiten, sondern kann sich wirklich auf das Finish oder der technical Stand-Up konzentrieren.
+
+natürlich ist auch ein Griffkampf denkbar was positionsparring oder auch an der Käfigwand.
+
+## Sharkpool / haifischbecken
+
+ist eine Variante von Position zwei Ring. es lässt sich anhand eines Beispiels am leichtesten erklären du hast zehn Leute auf der Matte. davon kommen sechs als Pärchen auf die Kampfflächen. diese machen dann positionswaring Punkt sobald ein Kampf beendet ist, bleibt der Gewinner auf der Matte. 
+
+der nächste Herausforderer wird aus dem Pool der wir verbliebenen noch frischen Kämpfer ersetzt. 
+
+angenommen, man hat einen sehr starken Kämpfer auf einer Matte, der immer wieder dominiert. dann wird er sehr lange auf dieser Matte bleiben Punkt und er wird immer wieder neue und frische Partner haben.
