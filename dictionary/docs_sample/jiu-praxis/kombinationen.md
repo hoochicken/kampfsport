@@ -70,7 +70,8 @@ weitere Hinweise zur Programmierung des gegners / priming findest du im verteidi
 Kombination eignen sich optimal dazu, dann Kampfstil zu verbessern. z.B kannst du deine Kombination wie folgt an reichern
 
 * vor jeder Kombination führst du eine ausweichbewegung nach links und rechts aus Komma um den Gegner zu verwirren
-* nach jeder Kombination führst du einen abschlusskick aus nach jeder Kombination führst du einen Jab aus und weichst zurück 
+* nach jeder Kombination führst du einen abschlusskick aus 
+* nach jeder Kombination führst du einen Jab aus und weichst zurück 
 * nach jeder Kombination führst du einen jab aus und gehst zur Seite
 
 ## methodische Übungsreihe
