@@ -48,7 +48,13 @@ trainiere schnell und locker, dann lernst du am meisten.
 
 oder andersrum gesagt: stell dir mal vor du würdest tatsächlich jemanden ernsthaft verletzen, das Knie zertrümmern, weil du einfach dein lowkick probieren wolltest. wahrscheinlich ist er, dass du dir jahrelang daraufhin Gedanken machst, und dich zu Todesstern den Sport an den Nagel hängt.
 
-* Partner-sein ist der erste Schritt zum Trainer-sein.
+wenn du eine Verletzung hast , so Teile dies den Partner mit . wenn der Partner seltsame Anweisungen gibt Komma dass man bei den Hebeln aufpassen soll , Frage zurück! . vielleicht hatte eine Verletzung an einem Gelenk und der Schmerz tritt viel früher ein als die Beweglichkeit des Gelenks dir mitteilt
+
+geschichte: ich war bei einem Freund Verein trainieren. meine Partnerin sagte immer wieder: Stopp. ich verstand das nicht weil das Gelenk noch viel Spiel hatte. ich habe erst verstanden, dass sie ein Problem mit ihrem Gelenk hat, als sie handgelenkschoner geholt hat. da wurde mir klar, dass sie dir nur dabei haben kann, wenn Sie eine Verletzung hat. sie hat mich dann böse angeschaut. das war mir dann schon etwas peinlich. ich hätte einfach fragen können, um zu verstehen
+
+### Hinweis
+
+Partner-sein ist der erste Schritt zum Trainer-sein.
 
 
 
