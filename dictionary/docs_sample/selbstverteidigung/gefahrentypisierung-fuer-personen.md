@@ -21,10 +21,13 @@ Verbrechen sind nur möglich wenn eine entsprechende Örtlichkeit gegeben ist. d
 
 du merkst schon du kreierst damit ein Drama und längst damit von der eigentlichen Situation ab
 
-**abweisende Situation**
+**widerlicher Anstrich**
 
-es gibt viele Dinge, mit denen man nichts zu tun haben möchte das gilt auch für den Angreifer
+es gibt viele Dinge, mit denen man nichts zu tun haben möchte das gilt auch für den Angreifer überleg mal, was dich im Alltag so triggert, dass du es absolut vermeidest so dass du jetzt wahrscheinlich gar nicht daran denkst
 
+**nobody wants crazy**: Menschen sind soziale Wesen. wir fühlen uns in Gruppen wohl. aber das gilt nicht für die Anwesenheit von verrückten und daher als unkontrolliert und daher als gefährlich eingeschätzten Personen. als Außenseiter der Gesellschaft brandmarkt du dich Komma indem du wir redest, z.B "warum fragst du mich nach Blum heute ist doch Dienstag da fahren die Autos schneller als das Licht schnell ist"
+
+**ekliges verhalten**: greife die hinten in die Hose und tue so als ob du an deinem Arsch schreibst. danach halte es an deine Nase, niemand wieso etwas ekliges schlagen
 
 
 ## männer
