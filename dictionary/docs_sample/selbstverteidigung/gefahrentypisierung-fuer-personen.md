@@ -126,6 +126,10 @@ der Grund dafür ist einfach erklärt:
 * "**keiner wird dir glauben**: ich werde dafür sorgen dass keiner der glaubt. im Zweifelsfall glaubt man den vernünftigen den für Erwachsenen Punkt also sag lieber nichts das wird schlecht für dich"
 * "** du hast mich nicht lieb** ich gebe dir alles, mehr als sie irgendjemand sonst gegeben hat und du bist so undankbar"
 
+**schuld und scham** durch Schuld und schamzuweisung mit dem Kind erklärt, dass es selbstquasi der täter wäre
+
+* "**das geht doch alles von dir aus** du hast dich doch immer bei mir auf den Schoß gesetzt damit hast du mich provoziert Punkt das ist auch der Polizei klar
+
 **drohungen** durchdrungen auf Leib und Leben des Kindes, der eigenen Person, oder befreundeten Personen die das Kind eingeschüchtert
 
 *  "** die Polizei holt Dich dann** die Polizei wird dich festnehmen weil du lügst, dann ist unsere Familie kaputt
@@ -135,21 +139,31 @@ der Grund dafür ist einfach erklärt:
 * "**hasi ist tot** schau mal ich habe sein Genick umgedreht bei dir geht das genauso schnell
 * "** dann töte ich deinen kleinen Bruder** du hast also die Wahl ob dein Bruder lebt oder nicht Punkt du machst doch deinen kleinen Bruder also sei still"
 
+dass ein Kind daher sich keine anderen Person anvertraut, ist ja klar. es wird bedroht, hinterfragt, der Lüge bezichtigt, diese Strategien ziehen darauf ab, dass Selbstbewusstsein des Kindes vollkommen zu untergraben.
 
+Hinweis: ich habe mit meinen Kindern viel über dieses Thema gesprochen. und habe genau diese Sätze, wie sieht der das sagen, Ihnen vorgesprochen. damit Sie wissen dass es diese Argumente gibt. und dass diese aber nur eine Strategie sind. sie sind ein Zeichen dafür dass der andere Angst hat. Angst vor Entdeckung. 
 
-## täter
+auch im Kindertraining spreche ich solche Argumente gezielt an. um mehr Abstand zu schaffen, teile ich, dass es sein könnte dass ihnen eine Freundin oder ein Freund so etwas mal erzählt. auf diese Weise kann ein Kind, dass Missbrauch erfährt, wertfrei diese Informationen aufnehmen, ohne dass es sich beobachtet fühlt oder Verpflichtung oder scham erfährt
+
+**woran erkannt man missbrauchte kinder** das ist ein ganz heißer abschnitt. wiederholt sage ich hier, ich habe hier keine Kompetenz Punkt nur angelesenes. was ich aber mitteilen möchte ist folgende warnanzeigen: 
+
+* **betretenes ruhigwerden** das Kind ist  eher unbeschwert ist, z.B im Training, dann vertritt die Bezugsperson den Raum. das kind wird dann plötzlich sehr still, es gibt keine ausladenden Bewegung der Arme. hintergrund ist die Angst des Kindes, etwas falsch zu machen etwas umzustoßen, was dann rigoros bestraft werden würde
+* **blaue flecken** dir fallen dann Armen Körper oder an ungewöhnlichen Stellen blaue Flecke auf, übermäßige blaue Flecke. daraufhin gefragt antwortet das Kind "ich bin hingefallen, meine Mutter sagt immer ich muss mir aufpassen"
+
+wenn dir so etwas auffällt, hole die Rat von amtlichen Stellen ein und von Beratungsstellen. mach das erstmal, ohne Namen zu nennen. es könnte sich alles was nur ein Eindrücke überweisen erkläre was die Sachlage ist und Frage ganz einfach, wie sie empfehlen würden hier vorzugehen.
+
+Hinweis ein Mädchen hat in einer Jugendgruppe öfters mal erzählt, dass der Vater seltsame Eigenheiten hat. der Vater war brandgefährlich die Einrichtung hat daraufhin in Zusammenarbeit mit der Mutter die die Trennung ermöglicht und die Sicherheit der ganzen Familie. diese Geschichten gibt es und sie machen Mut
+
+## täter - nach männer frauen
 
 **motivation**: versetzen wir uns mal in die Lage eines brutalenschlägers, der"Untergebene und" in seiner Gruppe einfach schlägt und auch zu zum verprügeln Dritter anregt. jeder Schlag den ausführt ist ein Schlag der nicht gegen ihn geführt werden kann wenn er zuerst schlägt, kann der andere nicht schlagen. diese Personen sind in der Regel von Angst getrieben und müssen sich ständig versichern, dass sie in der hack-reihenfolge das oberste Glied darstellen. das ist ziemlich stressig, und macht gereizt. für die Umstehenden ist es zudem sehr gefährlich
-
-
- der Situation dieser Situation lässt sich anhand folgender Parameter 
 
 * wie viele Personen sind anwesend, nur ihr beide, oder er und eine Gruppe oder zwei Gruppen oder du in einer Gruppe und nur er
 * Täter: wie lässt er sich bearbeiten:? durch geschicktes Verhandeln durch Androhung von Gewalt, durch Erklärung der bereits bestehenden Überlegenheit durch ihn und dass er schon gewonnen hat? durch Anbieten eines Bieres? ist dein Geisteszustand noch vernünftig und man kann mit ihm Dinge besprechen, oder ist er vollkommen verwirrt
 
 ## hinweise auf gewaltbereitschaft
 
-
+woran kannst du erkennen, dass dein Gegenüber auf Gewalt aus ist. Gewalt ist eine körperliche Anstrengung. dafür werden Muskeln benötigt. muskeln benötigen Sauerstoff.
 
 ## dein bauchgefühl
 
