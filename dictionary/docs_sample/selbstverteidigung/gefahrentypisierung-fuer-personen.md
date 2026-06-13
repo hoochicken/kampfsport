@@ -118,11 +118,24 @@ Kinder werden immer und außerhalb der Familie häufig als Opfer missbraucht. se
 
 der Grund dafür ist einfach erklärt: 
 
-** Unerfahrenheit ** Kinder können eine Gewalttat kaum richtig einschätzen. sie haben vielleicht das Empfinden, dass etwas falsch ist, aber sie Wissen um keine  Handlungsmöglichkeit
+**Unerfahrenheit ** Kinder können eine Gewalttat kaum richtig einschätzen. sie haben vielleicht das Empfinden, dass etwas falsch ist, aber sie Wissen um keine  Handlungsmöglichkeit
+
+**falsches wissen** der Täter benutzt dieses Unwissen, um falsches Wissen zu implantieren:
+
+* "**das ist ganz normal** das machen alle so. ich verstehe gar nicht was du hast Punkt das ist ganz natürlich"
+* "**keiner wird dir glauben**: ich werde dafür sorgen dass keiner der glaubt. im Zweifelsfall glaubt man den vernünftigen den für Erwachsenen Punkt also sag lieber nichts das wird schlecht für dich"
+* "** du hast mich nicht lieb** ich gebe dir alles, mehr als sie irgendjemand sonst gegeben hat und du bist so undankbar"
+
+**drohungen** durchdrungen auf Leib und Leben des Kindes, der eigenen Person, oder befreundeten Personen die das Kind eingeschüchtert
+
+*  "** die Polizei holt Dich dann** die Polizei wird dich festnehmen weil du lügst, dann ist unsere Familie kaputt
+* "** die Polizei wird mich** dann kommst du ins Heim, was meinst du was die da mit dir machen Punkt glaub mir du hast es hier besser
+* "**bringe ich mich um** dann bist du schuld daran, dass ich tot bin du willst also dass ich tot bin wie kann man nur so eignet sich sein wie du. ich will doch gar nicht so viel"
+* "** ich bringe dich um**" wenn du was sagst werde ich dich töten, das geht ganz schnell keiner findet dich es ist mir egal ob ich dann ins Gefängnis komme
+* "**hasi ist tot** schau mal ich habe sein Genick umgedreht bei dir geht das genauso schnell
+* "** dann töte ich deinen kleinen Bruder** du hast also die Wahl ob dein Bruder lebt oder nicht Punkt du machst doch deinen kleinen Bruder also sei still"
 
 
-der Täter benutzt dieses Unwissen, um falsches Wissen zu implantieren:
-    * 
 
 ## täter
 
