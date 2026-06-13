@@ -12,17 +12,25 @@ Verbrechen sind nur möglich wenn eine entsprechende Örtlichkeit gegeben ist. d
 
 ob eine Flucht möglich ist, entscheidet sich unter anderem durch die Örtlichkeit, die Fitness, dein köeidung. 
 
-**örtlichkeit**: befindet ihr euch an einem öffentlichen Ort, gibt es viele Zeugen, oder in der privaten Wohnung, im feld, wo du überall hinlaufen kannst, welches Schuhwerk
+**fittness-differenz**: als fitnessdifferenz ist das Verhältnis deiner Fitness zur Fitness des Täters gemeint. es gibt zwei Möglichkeiten zur Flucht
 
-**fittness**: bist du fit genug, um wegzulaufen? wie fit ist der andere Fragezeichen wenn der andere übermäßig Fett ist, hast du gute Chancen. hat der andere wesentlich längere Beine könnte das schwer werden
+* Flucht durch Schnelligkeit Flucht durch Schnelligkeit bietet sich an, wenn du fit bist, gut springen kannst, und du längere Beine hast
+* flucht mit Hindernisse: ist das Gelände durchzogen von Gegenständen , über die du springen, unter den du durchtauchen kannst , so bietet sich die Flucht durch Witz an. insbesondere für kleine Menschen mit kurzen Beinen bietet es sich an, den Fluchtweg so zu wählen, dass man unter ästen drunter durch taucht und anderweitig kleine Öffnungen verwendet die für einen größeren Täter ein Hindernis darstellen 
+
+**örtlichkeit**: bei einer Örtlichkeit entscheiden unter anderem folgende Parameter, ob sie sich zur Flucht eignet : 
+
+* Straße auf einer Straße kannst du schnell Geschwindigkeit aufnehmen. das ist praktisch, wenn du tatsächlich da schneller bist . aber hinderlich, wenn du langsamer sein solltest
+* hindernisse :  befinden sich auf dem Fluchtweg viele Türen, gegenstände, die dem angreifer zum Hindernis werden können
 
 **kleidung**: die Kleidung ist  entscheidend bei der Flucht. ideal für die Flucht ist 
 
-* gutes Schuhwerk
+* gutes Schuhwerk: Schuhe mit leichten flexiblen Sohlen, keine Absätze keine Flip Flops
 * Beinkleider, die dir große Beinfreiheit liefern 
 * wenig Gewicht auf Oberkörper , also ein T-Shirt , ohne Rucksack ohne Anorak 
 * Hinweis zum Anorak: solltest du einen tragen öffne auf jeden Fall den Reißverschluss. greift der Angreifer den Anorak, so kannst du ihn einfach von den Schultern gleiten lassen dann bleibt der Angreifer mit dem Anorak zurück
 * frisur: kurze Haare, in die man nicht greifen kann, oder eine Mütze die leicht vom Kopf rutscht wenn jemand rein greift oder sogar eine Perücke. sehr ungeschickt sind lange fließende Haare oder Pferdeschwänze an denen der Angreifer leicht ziehenkann
+
+hinweis: pack dir gegebenenfalls gute Schuhwerk und eine Mütze mit in deinen discorucksack. bevor du die Disco verlässt, lege diese Kleidungsstücke auf der Toilette an ein Kleidungswechsel hat auch den Vorteil, dass du gegebenenfalls beim Verlassen der Toilette nicht wiedererkannt wirst. 
 
 **beispiel: gruppe abends**: du läufst eine Straße entlang, dir entgegen kommt eine Gruppe Menschen, genauer eine Gruppe Männer wechselt die Straßenseite. maskiere wenn ausweichendes Handeln dadurch, dass du dein Handy zeigst und vorgibst ein Gespräch zu bekommen dass ich in die neue Richtung weist dadurch erreichst du folgendes: 
 
