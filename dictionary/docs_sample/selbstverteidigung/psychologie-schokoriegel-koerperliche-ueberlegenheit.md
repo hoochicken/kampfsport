@@ -1,1 +1,0 @@
-# Psychologie (Schokoriegel, körperliche Überlegenheit)
