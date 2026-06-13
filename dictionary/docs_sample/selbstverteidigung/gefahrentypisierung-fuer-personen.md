@@ -163,7 +163,22 @@ Hinweis ein Mädchen hat in einer Jugendgruppe öfters mal erzählt, dass der Va
 
 ## hinweise auf gewaltbereitschaft
 
-woran kannst du erkennen, dass dein Gegenüber auf Gewalt aus ist. Gewalt ist eine körperliche Anstrengung. dafür werden Muskeln benötigt. muskeln benötigen Sauerstoff.
+woran kannst du erkennen, dass dein Gegenüber auf Gewalt aus ist. 
+
+Gewalt ist eine körperliche Anstrengung. dafür werden Muskeln benötigt. muskeln benötigen Sauerstoff. der Körper bereitet sich darauf wie folgt vor
+
+* Weiten der Nasenflügel durch das Weiten der Nasenflügel kann mehr Luft in die Lunge aufgenommen werden 
+* Atemfrequenz durch schnelleres atmen kann mehr  Luft in der Lunge aufgenommen werden 
+* Brustatmung: atmung von der entspannten Bauchatmung geht der Angreifer in Brustatmung über
+* Faustvformen: die Muskeln werden in Vorspannung gebracht durch Formen einer Faust, die Adern treten am Arm hervor 
+* ader an stirn: das Herz steigert seine Leistung der Blutdruck lässt die Adern an der stirn schwellen 
+* stiere blick: der Blick wird stier auf das Opfer gerichtet die Umgebung wird unwichtig 
+* zusammengezogene Augenbrauen: die Augenbrauen werden zusammengezogen zwischen den Augenbrauen entsteht oft eine Zornesfalte
+* angespannte Kiefermuskulatur: die Zähne werden zusammen gewesen die Kiefermuskulatur tritt hervor herausforderndes
+* Anheben des kinns: dadurch wird der empfindliche Hals freigelegt, damit zeigt der Körper, dass er gewaltbereit ist und keine Angst hat (etwas widersinnig, aber es ist so Hinweis die Nasenflügel werden dann auch besser sichtbar weil man von unten in die Nase gucken kann) 
+* Rötung des Gesichts: durch die erhöhte Blutzufuhr erscheint das Gesicht rot (wie feuer, man sagt ja auch wutentbrannt)
+
+der Körper des anderen bereitet sich also auf den Kampf vor. viele Muskelpartien werden angespannt die Atemfrequenz erhöht. in der Regel nimmt dein Körper diese Merkmale ganz natürlich in sich auf und du bekommst von deinem Körper dies wieder gespiegelt mit einem ganz mulmigen Gefühl im Bauch
 
 ## dein bauchgefühl
 
