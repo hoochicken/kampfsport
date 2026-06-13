@@ -8,6 +8,22 @@ wichtig: dieses Buch gibt dir hier nur Ideen keine dieser Strategien oder Handlu
 
 Verbrechen sind nur möglich wenn eine entsprechende Örtlichkeit gegeben ist. durch geschicktes Handeln im Vorfeld kannst du brenzlige Situationen vermeiden. 
 
+## fluchtmöglichkeit
+
+ob eine Flucht möglich ist, entscheidet sich unter anderem durch die Örtlichkeit, die Fitness, dein köeidung. 
+
+**örtlichkeit**: befindet ihr euch an einem öffentlichen Ort, gibt es viele Zeugen, oder in der privaten Wohnung, im feld, wo du überall hinlaufen kannst, welches Schuhwerk
+
+**fittness**: bist du fit genug, um wegzulaufen? wie fit ist der andere Fragezeichen wenn der andere übermäßig Fett ist, hast du gute Chancen. hat der andere wesentlich längere Beine könnte das schwer werden
+
+**kleidung**: die Kleidung ist  entscheidend bei der Flucht. ideal für die Flucht ist 
+
+* gutes Schuhwerk
+* Beinkleider, die dir große Beinfreiheit liefern 
+* wenig Gewicht auf Oberkörper , also ein T-Shirt , ohne Rucksack ohne Anorak 
+* Hinweis zum Anorak: solltest du einen tragen öffne auf jeden Fall den Reißverschluss. greift der Angreifer den Anorak, so kannst du ihn einfach von den Schultern gleiten lassen dann bleibt der Angreifer mit dem Anorak zurück
+* frisur: kurze Haare, in die man nicht greifen kann, oder eine Mütze die leicht vom Kopf rutscht wenn jemand rein greift oder sogar eine Perücke. sehr ungeschickt sind lange fließende Haare oder Pferdeschwänze an denen der Angreifer leicht ziehenkann
+
 **beispiel: gruppe abends**: du läufst eine Straße entlang, dir entgegen kommt eine Gruppe Menschen, genauer eine Gruppe Männer wechselt die Straßenseite. maskiere wenn ausweichendes Handeln dadurch, dass du dein Handy zeigst und vorgibst ein Gespräch zu bekommen dass ich in die neue Richtung weist dadurch erreichst du folgendes: 
 
 * du gerätst nicht in die Gruppe 
@@ -65,12 +81,10 @@ das überall die Angst erwähnt wird Komma ist kein Zufall oft Handeln Menschen 
 **motivation**: versetzen wir uns mal in die Lage eines brutalenschlägers, der"Untergebene und" in seiner Gruppe einfach schlägt und auch zu zum verprügeln Dritter anregt. jeder Schlag den ausführt ist ein Schlag der nicht gegen ihn geführt werden kann wenn er zuerst schlägt, kann der andere nicht schlagen. diese Personen sind in der Regel von Angst getrieben und müssen sich ständig versichern, dass sie in der hack-reihenfolge das oberste Glied darstellen. das ist ziemlich stressig, und macht gereizt. für die Umstehenden ist es zudem sehr gefährlich
 
 
-solltest du diese Situation nicht vorher abgefangen haben, bist du halt in dieser Situation drinnen. es gibt es mehrere Möglichkeiten hier zu reagieren. das folgende sind nur Handlungsmöglichkeiten, und es gibt noch eine ganze Menge andere Punkt wenn du in dieser Situation sein solltest, musst Du entsprechend abwägen welche Strategie du verfolgst.
-
-Typisierung der Situation dieser Situation lässt sich anhand folgender Parameter 
+ der Situation dieser Situation lässt sich anhand folgender Parameter 
 
 * wie viele Personen sind anwesend, nur ihr beide, oder er und eine Gruppe oder zwei Gruppen oder du in einer Gruppe und nur er
-* Örtlichkeit und fluchtmöglichkeit: befindet ihr euch an einem öffentlichen Ort, gibt es viele Zeugen, oder in der privaten Wohnung, im feld, wo du überall hinlaufen kannst, welches Schuhwerk
+* 
 * Täter: wie lässt er sich bearbeiten:? durch geschicktes Verhandeln durch Androhung von Gewalt, durch Erklärung der bereits bestehenden Überlegenheit durch ihn und dass er schon gewonnen hat? durch Anbieten eines Bieres? ist dein Geisteszustand noch vernünftig und man kann mit ihm Dinge besprechen, oder ist er vollkommen verwirrt
 
 
