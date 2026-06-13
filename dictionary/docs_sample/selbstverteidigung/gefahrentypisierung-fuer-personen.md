@@ -92,7 +92,7 @@ das überall die Angst erwähnt wird Komma ist kein Zufall oft Handeln Menschen 
 
 ## frauen
 
-Frauen sehen sich oft sexualisierte Gewalt ausgesetzt. ziel ist es, dich zu begrapschen, die zwischen die Beine zu greifen, dich zu vergewaltigen. Hintergrund dieser ganzen Geschichte ist, dass es sozial leider so ist, dass manche Männer meinen, man habe Besitzansprüche auf Frauen und auch Anspruch auf Sex. kommunikativ wird Freundlichkeit auch oft mit einem Jahr verwechselt. das heißt du unterhältst dich ganz freundlich mit einer Person und im Nachhinein versucht die die an die Wäsche zu gehen. das ist eine sehr doofe gesellschaftliche Situation.
+Frauen sehen sich oft sexualisierte Gewalt ausgesetzt. ziel ist es, dich zu begrapschen, die zwischen die Beine zu greifen, dich zu vergewaltigen. Hintergrund dieser ganzen Geschichte ist, dass es sozial leider so ist, dass manche Männer meinen, man habe Besitzansprüche auf Frauen und auch Anspruch auf Sex. kommunikation wird Freundlichkeit auch oft mit einem Jahr verwechselt. das heißt du unterhältst dich ganz freundlich mit einer Person und im Nachhinein versucht die die an die Wäsche zu gehen. das ist eine sehr doofe gesellschaftliche Situation.
 
 es gibt grundsätzlich drei Arten von vergewaltigungs-setups
 
@@ -111,6 +111,10 @@ und es gibt noch einen Grund warum nur zur Polizei gehen solltest. Männer, die 
 * vorbei: es kann ein spontanes Opfer gewählt werden oder ganz speziell eine bestimmte Frau als Opfer dienen
 
 sei wachsam! lass dich nicht von Fremden auf einen Trink einladen, was den trinken nirgendwo stehen. plane dein Nachhauseweg mit Bedacht
+
+**Gefahren einer Vergewaltigung**: neben einem Trauma, dass dem Opfer wahrscheinlich blüht, besteht auch die Möglichkeit der Infektion mit einer Krankheit. dies können Geschlechtskrankheiten sein wie Tripper oder Syphilis oder Aids als auch hepatitis. damit ist eine Vergewaltigung nicht nur eine Vergewaltigung, sondern auch ein Angriff auf Leib und Leben Punkt denn du weißt nicht was der Täter für Krankheiten haben könnte. eine Vergewaltigung ist keine kavalierstadt es ist ein Verbrechen.
+
+**soll man sich gegen eine Vergewaltigung wehren?** Vergewaltiger sagen hier zu klein nein, manche wünschen sich sogar gestreichelt zu werden Punkt was Vergewaltiger über eine Vergewaltigung sagen ist zum Teil wirklich unglaublich! ganz klar ist: auch wenn du dich nicht wärst, sage auf jeden Fall nein ich dass du damit nicht einverstanden bist. ich persönlich würde dieses nein auch mit körperlichen Aktionen eindeutig unterstreichen und mich wehren bis zum letzten. 
 
 ## kinder
 
@@ -143,7 +147,19 @@ dass ein Kind daher sich keine anderen Person anvertraut, ist ja klar. es wird b
 
 Hinweis: ich habe mit meinen Kindern viel über dieses Thema gesprochen. und habe genau diese Sätze, wie sieht der das sagen, Ihnen vorgesprochen. damit Sie wissen dass es diese Argumente gibt. und dass diese aber nur eine Strategie sind. sie sind ein Zeichen dafür dass der andere Angst hat. Angst vor Entdeckung. 
 
-auch im Kindertraining spreche ich solche Argumente gezielt an. um mehr Abstand zu schaffen, teile ich, dass es sein könnte dass ihnen eine Freundin oder ein Freund so etwas mal erzählt. auf diese Weise kann ein Kind, dass Missbrauch erfährt, wertfrei diese Informationen aufnehmen, ohne dass es sich beobachtet fühlt oder Verpflichtung oder scham erfährt
+**kindertrainng** auch im Kindertraining spreche ich solche Argumente gezielt an. um mehr Abstand zu schaffen, teile ich, dass es sein könnte dass ihnen eine Freundin oder ein Freund so etwas mal erzählt. auf diese Weise kann ein Kind, dass Missbrauch erfährt, wertfrei diese Informationen aufnehmen, ohne dass es sich beobachtet fühlt oder Verpflichtung oder scham erfährt
+
+**virusspiel** das Virus Spiel ist eine Variante vom fangen Spiel. es gibt eine Gruppe von Kindern, eines davon ist der Fänger wenn der Fänger jemanden berührt, muss dieserjenige stehen bleiben, und laut schreien "infiziert infiziert ...". Ziel des Sängers ist es, alle Kinder zu infizieren. es gibt eine Möglichkeit, ein infizierten wieder auszulösen. drei Kinder bilden ein Ringel rein um den infizierten (der immer noch "infiziert" schreit) und schreien "immun immun immun".  wenn sie das geschafft haben ist der infizierte wieder befreit.
+
+**lehrreiches spiel** dadurch lernen Kinder, dass wenn ihnen ein Unrecht geschieht, sie laut schreien dürfen. sie proben ihre Stimme . sie werden gehört. und dann wird Ihnen geholfen. 
+
+**analyse der Problemlösungsstrategien**: es lohnt sich gerade bei Kinderspielen, die einzelnen Taktiken der Kinder zu untersuchen und zur Sprache zu bringen.
+
+als wir dieses Spiel mal gespielt haben gab es Kinder, die sich geschickt hinter den Sandsäcken versteckt haben. so wurden sie nie gefangen. sie haben also ein Schlupfloch gefunden im Regelwerk. 
+
+dies habe ich nachher als Strategie zur Sprache gebracht. das verstecken  bedeutet (1) sie sind sicher und (2) sie vermeiden ein helfen und die Auseinandersetzung. schließlich habe ich darauf hingewiesen, dass ihnen dies auch in normalen Leben passieren kann. es gibt Menschen die fragt man um Hilfe, und Sie werden nicht helfen. ich habe NICHT mit dem Finger auf sie gezeigt und gesagt dass sie das falsch gemacht haben. sondern nur anhand der Tatsache dass es solche Verhaltensmuster gibt.
+
+achte also im kindertraining auf die Strategien der Kinder und versuche ihn die Welt ein Stückchen näher zu bringen
 
 **woran erkannt man missbrauchte kinder** das ist ein ganz heißer abschnitt. wiederholt sage ich hier, ich habe hier keine Kompetenz Punkt nur angelesenes. was ich aber mitteilen möchte ist folgende warnanzeigen: 
 
