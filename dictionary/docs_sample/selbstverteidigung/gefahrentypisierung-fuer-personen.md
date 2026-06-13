@@ -2,6 +2,8 @@
 
 einer gefahrensituation gehen oft Anzeichen voraus . diese hängen davon ab , in welcher Situation man sich gerade befindet Punkt im Folgenden findest du eine kleine Liste ( auf kein Anspruch auf vollständigkeit ) . diese gibt dir eine Handreichung wie du diese Situation erkennst und vorzeitig vermeidest
 
+wichtig: dieses Buch gibt dir hier nur Ideen keine dieser Strategien oder Handlungen geben dir 100% Sicherheit. eine Bedrohungssituation ist immer ein Unikat. und dein Hirn muss in diesem Moment entscheiden, wie du dich da heraus bewegst. es gibt auch Situationen, bei denen eine körperliche Auseinandersetzung unvermeidlich ist, weil der Täter einfach aggressiv ist. handle nach bestem Wissen und Gewissen
+
 ## örtlichkeit
 
 Verbrechen sind nur möglich wenn eine entsprechende Örtlichkeit gegeben ist. durch geschicktes Handeln im Vorfeld kannst du brenzlige Situationen vermeiden. 
@@ -14,25 +16,34 @@ Verbrechen sind nur möglich wenn eine entsprechende Örtlichkeit gegeben ist. d
 
 **beispiel: parkplatz**: wähle deinen Parkplatz so, dass er in einer beliebten Gegend ist, wenn das irgendwie möglich ist. lasse dich gegebenenfalls von Personen bis hin zu deinem Auto begleiten Punkt du kennst niemanden? Frage eine Gruppe von Menschen, ob sie dich begleiten können sage z. b. "Entschuldigung könnten Sie mir bitte helfen ich habe da drüben mein Auto geparkt, und ich habe Bedenken dort alleine hin zu laufen. könntet er mich einfach kurz begleiten das wäre echt nett."
 
-**alleskönner handy**: das Handy ist richtig eingesetzt ein absolut geiles Accessoire um Situationen zu lösen. jederzeit kann man so tun, als ob der Alarm losgegangen wäre und man einen Anruf erhalte. hier ein paar Wortformeln die du anwenden kannst
+## alleskönner handy
+
+das Handy ist richtig eingesetzt ein absolut geiles Accessoire um Situationen zu lösen. jederzeit kann man so tun, als ob der Alarm losgegangen wäre und man einen Anruf erhalte. hier ein paar Wortformeln die du anwenden kannst
 
 * "meine Mutter liegt im Krankenhaus ich habe auf den Anruf gewartet" 
 * "es ist was passiert ich konnte das geschehen wie viele Leute sind verletzt es ist keiner gestorben aber der Armes zermatscht was"
 
-du merkst schon du kreierst damit ein Drama und längst damit von der eigentlichen Situation ab
+du merkst schon du kreierst damit ein Drama und längst damit von der eigentlichen Situation ab welche Person wäre so herzlos, jemand zu schlagen, dessen Mutter im Krankenhaus liegt.
 
-**widerlicher Anstrich**
+## widerlicher Anstrich
 
 es gibt viele Dinge, mit denen man nichts zu tun haben möchte das gilt auch für den Angreifer überleg mal, was dich im Alltag so triggert, dass du es absolut vermeidest so dass du jetzt wahrscheinlich gar nicht daran denkst
 
 **nobody wants crazy**: Menschen sind soziale Wesen. wir fühlen uns in Gruppen wohl. aber das gilt nicht für die Anwesenheit von verrückten und daher als unkontrolliert und daher als gefährlich eingeschätzten Personen. als Außenseiter der Gesellschaft brandmarkt du dich Komma indem du wir redest, z.B "warum fragst du mich nach Blum heute ist doch Dienstag da fahren die Autos schneller als das Licht schnell ist"
 
-**ekliges verhalten**: greife die hinten in die Hose und tue so als ob du an deinem Arsch schreibst. danach halte es an deine Nase, niemand wieso etwas ekliges schlagen
+**ekliges verhalten**: wir wurden alle so erzogen, dass wir uns täglich waschen , dass wir uns nicht zwischen die Beine greifen oder in der Nase popeln . warum? weil damit auch Krankheiten übertragen werden können, vor allem wenn man dann überall hindopselt. greife dir hinten in die Hose und tue so als ob du an deinem Löchli reibst. danach halte es an deine Nase, niemand wieso etwas ekliges schlagen wer weiß was diese Person noch ekliges macht Punkt so jemand ekligen will man nicht berühren, nicht einmal schlagen
 
+wenn es wirklich ganz ganz schlimm ist, und du nicht weiter weißt, z.B bei einer drohnenden Vergewaltigung, hilft auch ggf.
+
+* sich einurinieren 
+* sich einkacken 
+* kotzen / sich vollkotzen 
+
+das ist natürlich in so einer Stresssituation sehr schwer umzusetzen . wenn dir aber eh sehr schlecht ist, oder merkst dass du dich eigentlich übergeben müsstest, steck dir den Finger in den Hals sei
 
 ## männer
 
-Männer geraten eher in Situationen Komma indem sie herausgeordert werden . das betrifft auch bzw vor allem Türsteher Punkt der Gegner empfindet allein die Anwesenheit des anderen als Belastung aus Punkt folgende Gedankengänge findet man häufig :
+Männer geraten eher in Situationen Komma indem sie herausgefordert werden . das betrifft auch bzw vor allem Türsteher Punkt der Gegner empfindet allein die Anwesenheit des anderen als Belastung aus Punkt folgende Gedankengänge findet man häufig :
 
 * diese person da sieht einfach nur schön aus dadurch stellt er eine Bedrohung der eigenen Person da, diese Angst wo sind entgegengewirkt werden
 * diese person da wirkst   hilflos Komma es ist klar dass du dich nicht wehren wirst Komma dass ideale Opfer um Aggression abzulassen
