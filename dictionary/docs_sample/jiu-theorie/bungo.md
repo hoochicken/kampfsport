@@ -14,7 +14,14 @@ die **reine Bewegung** dafür Hand ist also nur ein anderes Anordnen der eigenen
 
 **mit bungo**: das Bongo macht aus dieser Streckbewegung des Armes erst Einschlag. dieses ausstrecken des Armes wird damit zu einer Waffe. der Arm wird gestreckt und gleichzeitig Schulter und hara in Bewegung zu dem Gegner hingebracht. die Faust wird im rechten Moment gedreht und der Knöchel der führenden Hand trifft auf das Jochbein des Gegners. die Bewegung wird über das Jochbein hinaus bis etwa zur Schädelmitte ausgeführt. berechnet man die natürliche Ausweichbewegung und die Trägheit der Masse des gegners mit ein, so wird dies das Jochbein des Gegners brechen und seinen Kopf außerdem nach hinten stoßen. dafür wird er für kurze Zeit im Hohlkreuz stehen seine Hände werden wahrscheinlich zum Gesicht, zum Schmerz nach oben gezogen dadurch ist der bauchfrei. es bietet sich also an die folgetechnik als Technik zum Bauch auszuführen, sei es ein Schlag oder ein Kik oder, aufgrund des Hohlkreuzes, ein Wurf nach hinten anzusetzen
 
-bungo gib dem was du tust überhaupt erst einen Sinn 
+bungo gib dem was du tust überhaupt erst einen Sinn es beantwortet folgende Fragen 
+
+* was ist die exakte Trefferfläche 
+* wo und wann triffst du den Gegner 
+* wo endet die Bewegung die du ausführst 
+* welche Auswirkung hat der Treffer oder die Technik allgemein auf den Gegner 
+* auf welche Weise manipuliert die Technik Gegner
+* welche Verletzungen fügt es den Gegner zu
 
 **Beispiel**: wenn ich Langstock trainiert habe habe ich diesen Langstock gut geführt, ich habe ihn gut beherrscht aber nie als Waffe. dann wurde im Radio gebracht, dass angeblich böse Menschen extra in Flüchtlingscamps einfliegen, um dort losgelöst von Gesetzen mit dem Baseballschläger unglaublichen Schaden anzurichten. dies hat mich sehr aufgebracht. ich stellte mir die Hilflosigkeit der Menschen vor, die Familien die versuchen ihre Kinder zu schützen. von diesem Tag an habe ich den Stock immer als Waffe geführt mir war bewusst dass dieser Schlag an der Schläfe berührt und dort einen kleinen Buch erzeugt dass dieser Stoß direkt in die Augenhöhle gehen wird und dass dieser große Schwung das Knie brechen wird. von da an war der Stock eine Waffe für mich. ich hoffe natürlich, dass es niemals dazu kommt dass ich den Stock auf diese Art und Weise führen muss.
 
