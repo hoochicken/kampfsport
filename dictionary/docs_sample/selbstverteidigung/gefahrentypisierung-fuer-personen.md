@@ -46,6 +46,8 @@ hinweis: pack dir gegebenenfalls gute Schuhwerk und eine Mütze mit in deinen di
 
 **beispiel: parkplatz**: wähle deinen Parkplatz so, dass er in einer beliebten Gegend ist, wenn das irgendwie möglich ist. lasse dich gegebenenfalls von Personen bis hin zu deinem Auto begleiten Punkt du kennst niemanden? Frage eine Gruppe von Menschen, ob sie dich begleiten können sage z. b. "Entschuldigung könnten Sie mir bitte helfen ich habe da drüben mein Auto geparkt, und ich habe Bedenken dort alleine hin zu laufen. könntet er mich einfach kurz begleiten das wäre echt nett."
 
+**geschichte**: ein Bekannter von mir, den ich auf einem trainerseminar kennenlernen durfte, war deutlich ausländischer Herkunft. er lebt in Mannheim. ein Freund und er sind in der falschen Gegend von Mannheim gelandet, wo es viele Nazis gibt . zur falschen Zeit am falschen Ort. beide sind vor 10 aggressiven Leuten um ihr Leben gerannt. sie kam nach einem Zwischenstopp in einem Verschlag, der eigentlich für Einkaufswagen vorgesehen war (eine Sackgasse) schließlich in eine Kneipe gerannt. einer hat die Tür hinter sich zugeworfen, der andere hat mit dem Barhocker die Spalte der Tür, die sich nicht zu machen ließ verteidigt. anschließend sind sie über die Toilette getürmt.
+
 ## alleskönner handy
 
 das Handy ist richtig eingesetzt ein absolut geiles Accessoire um Situationen zu lösen. jederzeit kann man so tun, als ob der Alarm losgegangen wäre und man einen Anruf erhalte. hier ein paar Wortformeln die du anwenden kannst
