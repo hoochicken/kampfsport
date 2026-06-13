@@ -4,6 +4,8 @@ einer gefahrensituation gehen oft Anzeichen voraus . diese hängen davon ab , in
 
 wichtig: dieses Buch gibt dir hier nur Ideen keine dieser Strategien oder Handlungen geben dir 100% Sicherheit. eine Bedrohungssituation ist immer ein Unikat. und dein Hirn muss in diesem Moment entscheiden, wie du dich da heraus bewegst. es gibt auch Situationen, bei denen eine körperliche Auseinandersetzung unvermeidlich ist, weil der Täter einfach aggressiv ist. handle nach bestem Wissen und Gewissen
 
+wichtig: ich bin hier keine Fachfrau, was dieses Thema betrifft. dies hier sind meine Gedanken die ich mir die Jahre dazu gemacht habe unter anderem nach Lektüre vieler Bücher und zahlreichen Videos mit Vernehmungen von vergewaltigern
+
 # Flucht
 
 ## örtlichkeit
@@ -110,9 +112,17 @@ und es gibt noch einen Grund warum nur zur Polizei gehen solltest. Männer, die 
 
 sei wachsam! lass dich nicht von Fremden auf einen Trink einladen, was den trinken nirgendwo stehen. plane dein Nachhauseweg mit Bedacht
 
-## dein bauchgefühl
+## kinder
 
-in deine Bauch ist ein mulmiges Gefühl, und du weißt nicht woher. dieses Gefühl wird von deinem Nervensystem erzeugt, dass vielleicht ein Geruch wahrgenommen hat, irgendwo ein Knacken. dass sie überhaupt nicht bewusst ist. höre auf dieses Bauchgefühl nimm den Schlüssel als Waffe in die Hand habe bereits seit Pfefferspray gezuckt und scanne die Umgebung. du musst nicht zu dem Auto jetzt gehen. du kannst dir auch Hilfe holen und Begleitung.
+Kinder werden immer und außerhalb der Familie häufig als Opfer missbraucht. sei dies körperliche Gewalt der Wale Gewalt, oder sogar sexueller Missbrauch 
+
+der Grund dafür ist einfach erklärt: 
+
+** Unerfahrenheit ** Kinder können eine Gewalttat kaum richtig einschätzen. sie haben vielleicht das Empfinden, dass etwas falsch ist, aber sie Wissen um keine  Handlungsmöglichkeit
+
+
+der Täter benutzt dieses Unwissen, um falsches Wissen zu implantieren:
+    * 
 
 ## täter
 
@@ -125,5 +135,11 @@ in deine Bauch ist ein mulmiges Gefühl, und du weißt nicht woher. dieses Gefü
 * Täter: wie lässt er sich bearbeiten:? durch geschicktes Verhandeln durch Androhung von Gewalt, durch Erklärung der bereits bestehenden Überlegenheit durch ihn und dass er schon gewonnen hat? durch Anbieten eines Bieres? ist dein Geisteszustand noch vernünftig und man kann mit ihm Dinge besprechen, oder ist er vollkommen verwirrt
 
 ## hinweise auf gewaltbereitschaft
+
+
+
+## dein bauchgefühl
+
+in deine Bauch ist ein mulmiges Gefühl, und du weißt nicht woher. dieses Gefühl wird von deinem Nervensystem erzeugt, dass vielleicht ein Geruch wahrgenommen hat, irgendwo ein Knacken. dass sie überhaupt nicht bewusst ist. höre auf dieses Bauchgefühl nimm den Schlüssel als Waffe in die Hand habe bereits seit Pfefferspray gezuckt und scanne die Umgebung. du musst nicht zu dem Auto jetzt gehen. du kannst dir auch Hilfe holen und Begleitung.
 
 
