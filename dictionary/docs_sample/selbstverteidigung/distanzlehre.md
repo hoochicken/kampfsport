@@ -4,7 +4,7 @@ Es gibt verschiedene Distanzen, die in der Selbstverteidigung eine Rolle spielen
 
 Wie immer gilt, dass hier nur eine geringe Auswahl an Möglichkeiten vorgestellt wird. Allein über dieses Kapitel ließe sich ein eigenes Buch schreiben.
 
-Wir bewegen uns dabei von der weitesten Distanz (Sprechweite) bis hin zur extremen Nahdistanz am Boden. In jeder Distanz gibt es Möglichkeiten zur Bewältigung der Situation. Auch wenn eine Aktion nicht gelingt, eröffnet die nächste Distanz oft neue Handlungsmöglichkeiten.
+Wir bewegen uns dabei von der weitesten Distanz (Sprechweite) bis hin zur extremen Nahdistanz am Boden. In jeder Distanz gibt es Möglichkeiten zur Bewältigung der Situation. Auch wenn eine Aktion nicht gelingt, eröffnet die nächste Distanz oft neue Handlungsmöglichkeiten. betrachte die erzwungene Auseinandersetzung als infinite Game (siehe Simon Sinek). auch wenn eine Aktion nicht geglückt es wird sich ein neues Aktionsfenster ergeben welches du ausnutzen kannst.
 
 ## 1. Sprechweite - Verbale Deeskalation.
 
@@ -84,14 +84,14 @@ Was das heisst: Deine Rolle ändert sich nach der Tat aus Sicht des Angreifers:
 
 => Zeugen können problematisch sein. Denn sie sorgen für Freiheits -oder Geldstrafe. Es kann also sein, dass sich im Angreifer die Idee aufbaut, dass er dich als Zeugen / Zeugin beseitigen möchte.
 
-Dafür habe ich kein Skript. Die Situation ist eh schon total kaputt. Erlaubt ist alles.
+Dafür habe ich kein Skript. Die Situation ist eh schon total kaputt. Erlaubt ist alles. es geht um dein leben.
 
 * "Ich fand das so geil, keiner hat es so gebracht wie du, lass uns nochmal treffen, ich gebe Dir meine Telefonnummer."
 * "Danke, das habe ich gebraucht. Wo trainierst du."
 
 ## 7. Sicherheit
 
-Nach der Tat ist vor der Tat. Du ist erst sicher, wenn die Tür deiner Wohnung hinter dir ins Schloss fällt (meist). Dies erreichst du durch folgende Handlungen:
+Nach der Tat ist vor der Tat. Du bist erst sicher, wenn die Tür deiner Wohnung hinter dir ins Schloss fällt (meist). Dies erreichst du durch folgende Handlungen:
 
 * **Beobachtung**:
     * behalte den Angreifer im Auge, wende ihm nur den Rücken zu, wenn nicht vermeidbar
@@ -102,4 +102,4 @@ Nach der Tat ist vor der Tat. Du ist erst sicher, wenn die Tür deiner Wohnung h
 
 Ein Freund von mir, volltrunken, hat mit einem jungen, mutmasslich respektlosen Kerl einen Streit vom Zaun gebrochen, in der Stadtbahn. An seiner Haltestelle steigt er aus ... und wird herb die Treppe heruntergschuckt. Folge: Knie zertrümmert!
 
-Er dachte, die Situation ist vorbei. Der Angreifer hat nur auf eine Chance gewartet.
+Er dachte, die Situation ist vorbei. Der Angreifer hat nur auf eine Chance gewartet. bleibe wachsam. die Situation ist erst vorbei, wenn du sicher zu Hause bist
