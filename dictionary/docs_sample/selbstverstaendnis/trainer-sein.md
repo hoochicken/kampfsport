@@ -1,71 +1,123 @@
 ## Trainer sein
 
-als Trainer bist du zunächst einmal genau einen: Vorbild. Vorbild bist du in Bezug auf folgende Bereiche
-: 
+Als Trainer bist du zunächst einmal eines: ein Vorbild.
 
-* Techniken 
-* lebensführung 
-* Aussehen 
-* Moral 
-* pünktlichkeit
-* alles mögliche worüber du dir bisher gar keine Gedanken gemacht 
+Vorbild bist du in vielen Bereichen:
 
-das merkst du dann wenn plötzlich irgendwelche Fragen an Dich herangetragen werden
+* **Techniken**
+* **Lebensführung**
+* **Auftreten**
+* **Moral**
+* **Pünktlichkeit**
+* **und vielen weiteren Dingen, über die du dir bisher vielleicht noch gar keine Gedanken gemacht hast**
 
-außerdem erscheinst du plötzlich als Person die man alles fragen kann 
+Das merkst du spätestens dann, wenn plötzlich die unterschiedlichsten Fragen an dich herangetragen werden.
 
-versuche deine Vorbildfunktion möglichst gerecht zu werden. versuche, dich dabei nicht zu sehr zu verbiegen denn es geht um Authentizität und nicht irgendeine Maske die du aufsetzt
+Außerdem wirst du für viele Menschen zu einer Person, die man alles fragen kann.
 
-### deine aufgaben
+Versuche, deiner Vorbildfunktion gerecht zu werden. Verbiege dich dabei aber nicht zu sehr. Es geht um Authentizität und nicht um eine Maske, die du aufsetzt.
 
-du hast Aufgaben immer und außerhalb des Trainings. hier konzentrieren wir  mal mich mal um die Aufgaben auf der Matte
+### Deine Aufgaben
 
-* für Sicherheit der Trainings sorgen: reicht die Mattenfläche, liegen gefährliche Gegenstände herum, verhindere Verletzungen
-* Wertschätzung lobe deine Trainees gib ihnen  Rückmeldung, lass sie glücklich von der Matte gehen
-* kämpfertypen: erkenne den Typ des Kämpfers, bestärke ihn in seinem Weg
-* Trainingsstruktur: erstelle einen Trainingsplan, der für deine Gruppe gut passt und die Trainees auf ihrem niveau abholt
-* Korrektur erkenne die Fehler bei einer Technikausführung, suche dir den gravierenden Fehler und erkläre genau diesen einen Fehler, sei am Anfang mit der Grobform zufrieden, später erst die feinform
-* Motivation motiviere deine Trainees durch Lob durchlautes anfeuern, durch Countdown vor der letzten Übung, damit sie noch einmal alles geben
+Als Trainer hast du Aufgaben auf und neben der Matte. Hier konzentrieren wir uns auf die Aufgaben während des Trainings.
+
+* **Sicherheit:** Sorge für ein sicheres Training. Reicht die Mattenfläche aus? Liegen gefährliche Gegenstände herum? Verhindere Verletzungen.
+
+* **Wertschätzung:** Lobe deine Trainees. Gib Rückmeldung. Lass sie mit einem guten Gefühl von der Matte gehen.
+
+* **Kämpfertypen erkennen:** Jeder Mensch lernt anders. Erkenne die Stärken deiner Trainees und bestärke sie auf ihrem Weg.
+
+* **Trainingsstruktur:** Erstelle einen Trainingsplan, der zu deiner Gruppe passt und die Teilnehmer auf ihrem jeweiligen Niveau abholt.
+
+* **Korrektur:** Erkenne Fehler bei der Technikausführung. Suche den gravierendsten Fehler heraus und korrigiere zunächst genau diesen einen Punkt. Sei anfangs mit der Grobform zufrieden. Die Feinform kommt später.
+
+* **Motivation:** Motiviere deine Trainees durch Lob, Anfeuern und kleine Herausforderungen. Ein Countdown vor der letzten Übung kann oft noch einmal zusätzliche Energie freisetzen.
 
 ### Trainingsstil
 
-im Großen und Ganzen gibt es zwei trainingsdiele: autoritär und kommunikativ. der einfachere Trainingsstil 
+Im Großen und Ganzen gibt es zwei Trainingsstile: autoritär und kommunikativ.
 
-* **autoritär**: du sagst was gemacht wird und verbietest einfach jedem anderen den Mund. das ist einfach und trägt dazu bei dass sich dein Ego aufbläst. 
-* **kommunikativ** lasse Fragen zu und lass auch zu, dass ich die Trainings untereinander unterhalten und Ideen austauschen. ( wenn das zu viel wird und es störend wird, dass sanft einschränken und erklären warum das vielleicht genau gerade nicht angebracht ist.)
+* **Autoritär:** Du bestimmst, was gemacht wird, und lässt kaum Rückfragen zu. Das ist einfach umzusetzen, schöpft aber das Wissen der Gruppe oft nicht vollständig aus.
 
-**geschichte**: in meinem Training war ein Trainee, der ständig sein Senf dazu gegeben hat es hat mich ein bisschen genervt. was mich genervt hat war aber, dass er oft recht hatte. wir haben daraus eine Symbiose gestaltet. er ist quasi mein zweites Gehirn, das mit auf der Matte steht und weitere Einwürfe macht, dadurch erhöht sich die Sicherheit und die Erklärung der technikabdeckung so haben alle etwas davon: (1) die Gruppe, weil sie sicherer und informierte trainieren, (2) ich weil ich sicher sein kann, das an alles gedacht wird, und (3) der Training, weil er sich und seine Handlung wertgeschätzt fühlt. das ist also eine win win win Situation
+* **Kommunikativ:** Du lässt Fragen zu und ermöglichst den Austausch von Ideen. Wird das Gespräch zu ausufernd, kannst du es freundlich begrenzen und erklären, warum jetzt gerade trainiert werden sollte.
 
-### fragen
+**Geschichte:**
+In meinem Training war ein Trainee, der ständig seinen Senf dazugegeben hat. Das hat mich manchmal genervt. Was mich aber besonders genervt hat: Er hatte oft recht.
 
-du wirst eine ganze Menge nicht Fragen bekommen zu Bereichen, über die noch gar keine Gedanken gemacht hast. => nimm die Frage nicht als Kritik an, sondern als ehrliche Frage. wenn du gerade keine Antwort weißt, sage einfach: 
+Irgendwann haben wir daraus eine Symbiose gemacht. Er ist heute gewissermaßen mein zweites Gehirn auf der Matte. Er bringt zusätzliche Hinweise und Gedanken ein. Dadurch erhöht sich die Sicherheit und die Qualität der Erklärungen.
 
-* "darüber werde ich mir Gedanken machen" (und das machst du bitte auch) 
-* schließe deine Erklärung ab und lass deine Trainees weiter trainieren. schnappe dir dann am Rande der Matte eintraining und probiere aus , dann kannst du direkt rückmeldung geben 
-* dann kannst du im nächsten Training diese Frage wieder aufgreifen
+Davon profitieren alle:
 
-### die Stille Angst eines Trainers
+1. Die Gruppe trainiert sicherer und informierter.
+2. Ich kann sicher sein, dass möglichst viele Aspekte berücksichtigt werden.
+3. Der Trainee fühlt sich wertgeschätzt und eingebunden.
 
-"ich zeige meinen Schülern niemals alles. ich halte immer etwas zurück, damit ich die Oberhand behalte."
+Eine echte Win-win-win-Situation.
 
-diese Aussage wurde mir über den Algorithmus in mein Facebook gespült. und sie war vollkommen ernst gemeint.
+### Fragen
 
-diese Aussage zugrunde liegt die Stille Angst eines jeden Trainers: dass der Trainee besser werden könnte als man selbst. dadurch ist die eigene Sicherheit, die eigene Position gefährdet. scheinbar. 
+Du wirst viele Fragen bekommen, über die du dir bisher noch nie Gedanken gemacht hast.
 
-lass dich nicht auf diese Angst ein  dann siehst vollkommen unbegründet. 
+Betrachte diese Fragen nicht als Kritik, sondern als ehrliches Interesse.
 
-du trainierst sicherlich seit vielen Jahren ein Sport. genau deshalb hat man dich zum Trainer berufen. du hast mehrere Jahre trainingssicherheit in Ausführungen und Erklärung der Technik. stelle dir nun folgende Fragen bzw. beachte folgende aspekte
+Wenn du keine Antwort weißt, ist das völlig in Ordnung.
 
-* wie soll ein Schüler dies in ein zwei fünf Monaten denn überbieten, was du in der zehnfachen Zeit gelernt hast?
-* und selbst wenn, ist es nicht genau das was du erreichen möchtest? dass du dein Wissen optimal an einen Schüler weitergeben kannst? das ist doch ein riesiger Erfolg!
-* und selbst wenn: der Schüler fühlt nur sich selbst, du aber kannst den Schüler von außen betreuen und ihn auf Fehler aufmerksam machen und ihn darin verbessern was er nicht sieht darin kannst du ihn noch besser machen!
+Du kannst zum Beispiel sagen:
 
-**beispiel**: schau dir doch mal Boxkämpfe an von großen Boxern (). in der Ecke stehen oft irgendwelche alten hutzelmännchen, die die besten Tipps für die Boxer reinrufen. die Trainer dieser Weltmeister sind natürlich nicht mehr so gut selbst im Boxen. die Aufgabe von Trainern ist es nicht Weltmeister zu werden. die Aufgabe ist es, Weltmeister zu machen
+* „Darüber werde ich mir Gedanken machen.“
+* „Das probieren wir nachher gemeinsam aus.“
+* „Darauf komme ich im nächsten Training zurück.“
 
-### Erhaltung und weiterbildung 
+Wichtig ist nur: Mach es dann auch.
 
-weil man oft nur das Training hat, dass man gerade geht. und da ist man ja mit Training geben beschäftigt. Möglichkeiten zum technikerhalt sind folgende
+### Die stille Angst eines Trainers
 
-* trainiere einmal in der Woche mit jemandem, oder nimm an einem Training
-* mache solo Trainings Komma dann hast du zwar keine Rückmeldung durch den Partner Komma besser aber als nichts
-* sprich den Umstand gegebenenfalls an: "diese Technik habe ich seit drei Jahren nicht ausgeführt, ich muss mich selbst erst wieder einschwingen"
+„Ich zeige meinen Schülern niemals alles. Ich halte immer etwas zurück, damit ich die Oberhand behalte.“
+
+Diese Aussage wurde mir einmal über Facebook angezeigt. Sie war vollkommen ernst gemeint.
+
+Dahinter steckt eine stille Angst vieler Trainer:
+
+> Was passiert, wenn ein Schüler besser wird als ich?
+
+Diese Angst ist jedoch unbegründet.
+
+Du trainierst seit vielen Jahren. Genau deshalb wurdest du Trainer. Du verfügst über Erfahrung in Technik, Didaktik und Fehlerkorrektur.
+
+Stelle dir folgende Fragen:
+
+* Wie soll ein Schüler in wenigen Monaten übertreffen, was du über viele Jahre aufgebaut hast?
+
+* Und selbst wenn: Ist das nicht genau das Ziel? Wissen erfolgreich weiterzugeben?
+
+* Und selbst wenn der Schüler technisch besser wird: Du kannst ihn weiterhin beobachten, analysieren und verbessern. Genau das ist die Aufgabe eines Trainers.
+
+**Beispiel:**
+Schau dir große Boxkämpfe an. In der Ecke stehen oft ältere Trainer, die selbst nicht mehr mit den Weltmeistern mithalten könnten.
+
+Ihre Aufgabe ist nicht, Weltmeister zu sein.
+
+Ihre Aufgabe ist es, Weltmeister hervorzubringen.
+
+### Erhaltung und Weiterbildung
+
+Trainer verbringen viel Zeit damit, anderen beim Lernen zu helfen. Dabei darf die eigene Entwicklung nicht vergessen werden.
+
+Möglichkeiten zum Erhalt der eigenen Fähigkeiten sind:
+
+* **Trainiere regelmäßig mit Partnern.**
+* **Nimm selbst an Trainings teil.**
+* **Mache Solotraining.** Rückmeldung fehlt zwar, aber es ist besser als gar kein Training.
+* **Sprich offen über Wissenslücken.**
+
+Zum Beispiel:
+
+> „Diese Technik habe ich seit drei Jahren nicht mehr ausgeführt. Ich muss mich selbst erst wieder einschwingen.“
+
+Niemand erwartet Perfektion. Aber jeder erwartet Ehrlichkeit und die Bereitschaft, dazuzulernen.
+
+### Hinweis
+
+Trainer sein bedeutet nicht, alles zu wissen.
+
+Trainer sein bedeutet, gemeinsam zu lernen.

@@ -34,17 +34,19 @@ Das deutsche Notwehrrecht verlangt grundsätzlich keine Verhältnismäßigkeitsp
 
 ## Erste Hilfe
 
-es kann vorkommen, dass du jemanden bewusstlos geschlagen hast oder schwer verletzt hast. hiermit sollst du daran erinnert, dass du die Pflicht hast zu helfen. sonst machst du dich zusätzlich der unterlassenen Hilfeleistung strafbar. 
+Es kann vorkommen, dass du im Rahmen einer Selbstverteidigung jemanden bewusstlos schlägst oder schwer verletzt. In einer solchen Situation hast du die Pflicht zu helfen. Andernfalls machst du dich möglicherweise zusätzlich wegen unterlassener Hilfeleistung strafbar.
 
-von der rechtlichen Konsequenz einmal ab gesehen, würde ich dir auf jeden Fall empfehlen, helfend einzugreifen. Hintergrund ist auch dein eigenes Seelenheil: sicherlich willst du nicht die Gesundheit eines anderen auf dem Gewissen haben. daher. 
+Unabhängig von rechtlichen Konsequenzen solltest du immer versuchen zu helfen. Die Gesundheit und das Leben eines Menschen sind wertvoll. Handle so, dass du später mit deinem Verhalten im Reinen sein kannst.
 
-hier die wichtigste handreichung für die gravierenden Fälle:
- 
-* ein Messer bleibt stecken sonst verblutet der 
-* ein bewusstloser Mensch der atmet wird in der stabilen Seitenlage geparkt. die Atmung muss weiterhin beobachtet werden
-* ein bewusstloser Mensch ohne Atmung muss reanimiert werden
+Hier die wichtigsten Maßnahmen für schwere Notfälle:
 
-rufe in allen drei Fällen die Ambulanz.
+* **Steckende Gegenstände:** Ein Messer oder anderer Gegenstand sollte nicht entfernt werden. Das Herausziehen kann starke Blutungen verursachen.
 
-Frische alle ein bis zwei Jahre dann Erste Hilfe Wissen in Kursen auf. das ist auch für den Alltag zu empfehlen. unser Leben ist kurz. wir müssen es schützen, unabhängig davon wenn es betrifft. handle so dass du danach stolz auf dich sein kannst
+* **Bewusstlose Person mit Atmung:** Bringe die Person in die stabile Seitenlage. Kontrolliere die Atmung regelmäßig.
+
+* **Bewusstlose Person ohne Atmung:** Beginne sofort mit Wiederbelebungsmaßnahmen und lasse einen Notruf absetzen.
+
+Rufe in allen drei Fällen unverzüglich den Rettungsdienst unter 112.
+
+Frische dein Erste-Hilfe-Wissen alle ein bis zwei Jahre in einem Kurs auf. Das ist nicht nur für die Selbstverteidigung sinnvoll, sondern für das gesamte Leben. Unser Leben ist kurz. Schütze es – unabhängig davon, um wen es geht.
 

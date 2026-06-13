@@ -1,13 +1,51 @@
-# trainings-inspirationen
+# Trainings-Inspirationen
 
-die folgende Liste besteht aus Inspirationen, mit denen du dein Selbstverteidigungstraining würzen kannst
+Die folgende Liste enthält Ideen, mit denen du dein Selbstverteidigungstraining abwechslungsreicher gestalten kannst.
 
-pratzen Training:  der Ausführende liegt am Boden auf dem Rücken . der Partner B steht mit einer großpratze über ihm. a muss faustschläge nach oben machen 30 s. dann gesochert aifstehen
+## Pratzentraining am Boden
 
-Pratzentraining Gruppe: der Ausführende A liegt am Boden. er wird von drei Leuten mit großpratzen bedrängt sie führen die Pratzen immer wieder nach unten. diese schlagen nicht. aber A muss sich die Praxen vom Leib halten, Tipp viel am Boden und bewegen 
+Der Ausführende A liegt auf dem Rücken. Partner B steht mit einer Großpratze über ihm.
 
-Schwinger: der Ausführende Asteht mit dem Rücken zum Partner B auf Befehl dreht er sich rum..B führt eine Ohrfeige zum Gesicht von A aus. Aufgabe von A ist es  diese Ohrfeige abzuwehren eine beliebige Technik auszuführen und dann wegzurennen. Tipp: es lohnt sich am Partner B vorbei zu rennen, so dass dieser als Aggressor nicht sieht wohin man flüchtet
+A führt für 30 Sekunden Fauststöße nach oben aus und hält die Pratze auf Distanz. Anschließend steht A kontrolliert und gesichert auf.
 
-Nothilfe: B greift C an. A hat die Aufgabe C zu schützen und zur Flucht zu verhelfen.
+## Pratzentraining in der Gruppe
 
-diese Trainingsformen sind erstens sehr anstrengend, und zweitens erzeugen sie auch Stress.
+Der Ausführende A liegt auf dem Boden. Drei Partner bedrängen ihn mit Großpratzen und führen diese immer wieder von oben nach unten.
+
+Die Partner schlagen nicht. Die Aufgabe von A besteht darin, die Pratzen auf Distanz zu halten und sich ständig neu zu positionieren.
+
+Tipp: Viel bewegen und nicht lange an derselben Stelle bleiben.
+
+## Schwingerabwehr
+
+Der Ausführende A steht mit dem Rücken zu Partner B.
+
+Auf Kommando dreht sich A um. B führt unmittelbar eine kontrollierte Ohrfeige oder einen Schwinger zum Kopf aus.
+
+Die Aufgabe von A besteht darin:
+
+* den Angriff abzuwehren,
+* eine beliebige Technik anzusetzen,
+* anschließend die Flucht anzutreten.
+
+Tipp: Es kann sinnvoll sein, an Partner B vorbeizulaufen. Dadurch erkennt der Angreifer möglicherweise nicht sofort die gewählte Fluchtrichtung.
+
+## Nothilfe
+
+Partner B greift Partner C an.
+
+Die Aufgabe von A besteht darin, C zu schützen und ihm die Flucht zu ermöglichen.
+
+Der Schwerpunkt liegt nicht auf dem Besiegen des Angreifers, sondern auf dem Schutz der gefährdeten Person.
+
+## Ziel der Übungen
+
+Diese Trainingsformen sind körperlich anstrengend und erzeugen zusätzlichen Stress.
+
+Dadurch wird trainiert:
+
+* unter Druck zu handeln,
+* Entscheidungen zu treffen,
+* sich nach einer Bodenlage aufzurichten,
+* andere Personen zu schützen,
+* Fluchtmöglichkeiten zu erkennen und zu nutzen.

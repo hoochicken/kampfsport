@@ -1,135 +1,246 @@
 ## Randori & Sparring
 
-als Sparring bezeichnet man einen Übungskampf. man nennt es auch Randori Punkt darin kann sich der Trainee erproben, wie er seine Techniken spontan und ohne Absprache anwenden kann.
+Als Sparring bezeichnet man einen Übungskampf. Man nennt ihn auch Randori. Hier kann sich der Trainee darin erproben, Techniken spontan und ohne Absprache anzuwenden.
 
-meine trainees Lieben das Barring. sie sind mit Feuer dabei und freuen sich, weil sie sich hier richtig austoben können. währenddessen konzentriere ich mich auf die wichtigste Aufgabe die der Trainer dann hat
+Meine Trainees lieben Sparring. Sie sind mit Feuer dabei und freuen sich, weil sie sich hier richtig austoben können.
 
-### aufgabe des Trainers: sicherheit
+Währenddessen konzentriere ich mich auf die wichtigste Aufgabe, die ein Trainer beim Sparring hat.
 
-die oberste Aufgabe des Trainers ist es, dem Trainee Sicherheit zu sorgen. alle sollen gesund von der Matte heruntergehen, auf den eigenen Füßen. in der Regel bringt es Sparring mit sich, dass man eine Technik ausprobieren möchte( Schlag oder Kik, Wurf) dafür muss man eine gewisse Kraft einsetzen. 
+### Aufgabe des Trainers: Sicherheit
 
-in der Regel lässt sich der andere nicht einfach so werfen und gibt eine Gegenkraft. das Ergebnis ist, dass zwei Leute mit Kraft etwas versuchen, und dann kann es gefährlich werden. 
+Die oberste Aufgabe des Trainers ist es, für die Sicherheit der Trainees zu sorgen.
 
-gerade wenn ein **Wurf** probiert wird, kann es bisweilen sehr gefährlich werden. denn hier summieren sich die Kraft von zwei Personen und die Schwerkraft auf. das gilt insbesondere bei großem Gewichtsunterschied. die Verletzungsgefahr für den kleineren Partner ist hier em7nent und muss monitort werden
+Alle sollen gesund von der Matte gehen – auf ihren eigenen Füßen.
 
-( ich habe mir mal fast die Nase gebrochen weil ich - ungelogen! y gegen die stehende Faust eines sehr  schweren Partners gelaufen bin, der konnte gar nichts dafür . das hat ganz schön gesaftet)
+In der Regel möchte man im Sparring Techniken ausprobieren: Schläge, Kicks, Würfe oder andere Aktionen. Dafür muss man Kraft einsetzen.
 
-wenn du merkst dass deine trainees ein bisschen zu begeistert sind kannst du zwischen den Runden( wenn es ganz gefährlich ist brich eine Runde lieber ab), erinnere die Trainees daran vorsichtig zu sein 
+Da der Partner nicht einfach mitspielt, entsteht eine Gegenkraft. Zwei Menschen versuchen gleichzeitig, ihre Ziele durchzusetzen. Dadurch kann es gefährlich werden.
 
-sag z.B folgendes  
+Besonders Würfe bergen ein erhöhtes Risiko. Hier summieren sich die Kräfte beider Personen mit der Schwerkraft. Das gilt vor allem bei großem Gewichtsunterschied. Die Verletzungsgefahr für den leichteren Partner ist dabei erheblich und muss aufmerksam überwacht werden.
 
-"keiner gewinnt ein Preis, keiner kriegt hunderttausend Euro also können wir hier ganz entspannt trainieren. wir wollen alle gesund von dieser Matte laufen und morgen ganz gemütlich arbeiten . passt aufeinander auf"
+**Geschichte:**
+Ich habe mir einmal beinahe die Nase gebrochen, weil ich – ungelogen – gegen die stehende Faust eines deutlich schwereren Partners gelaufen bin. Er konnte überhaupt nichts dafür. Das hat ganz schön geblutet.
 
-wenn es bei zweien ganz schlimm ist, dann bricht den Kampf sofort ab
+Wenn du merkst, dass deine Trainees etwas zu begeistert werden, erinnere sie zwischen den Runden daran, vorsichtig zu sein.
+
+Zum Beispiel:
+
+> „Keiner gewinnt hier einen Preis. Keiner bekommt hunderttausend Euro. Wir wollen alle gesund von der Matte gehen und morgen entspannt arbeiten können. Passt aufeinander auf.“
+
+Wenn zwei Personen die Kontrolle verlieren, unterbrich das Sparring lieber sofort.
 
 ## Schutzausrüstung
 
-sparring ist kein wildes herumklopfen aufeinander, sondern das sollte planmäßig vonstatten gehen. da aber immer etwas schief gehen kann, sollte man sich immer schützen die folgende Liste führt Trainings Ausrüstung auf nach ihrer Wichtigkeit
+Sparring ist kein wildes Herumklopfen, sondern kontrolliertes Training.
 
-**zahnschutz** Zähne hast du nur einmal. ein Zahnschutz kostet wirklich nicht viel, nehme ihn mit nach Hause und passe ihn mit heißem Wasser genau an deine Zähne an Punkt das geht keine 5 Minuten Punkt dann hast du Sicherheit für deine Zähne.  wenn sich der andere einmal kurz dreht und der aus Versehen den Ellenbogen ins Gesicht haut, wirst du dieses kleine Stückchen Plastik sehr zu schätzen lernen
+Da dennoch immer etwas schiefgehen kann, sollte man sich schützen.
 
-**faustschützer** Handschuhe schützen zum einen dich vor Schürfwunden, zum anderen natürlich auch den Partner, der nicht so hart getroffen wird. es gibt im Groben zwei Varianten: geschlossene Handschuhe und MMA Handschuhe mit denen du greifen kannst weil die Finger frei sind. die Polster der Handschuhe sind verschieden dick Punkt nimm für Sparring lieber dickere als dünne
+Die folgende Liste ist nach Wichtigkeit sortiert.
 
-**tiefschutz** der Tiefschutz ist vor allem für Männer interessant, er schützt Penis und Hoden vor gruppe Gewalteinwirkung. kann bisweilen sehr sehr sinnvoll sein
+### Zahnschutz
 
-**kopfschutz** der Kopfschutz schützt den Schädel vor grober Gewalteinwirkung. ein Kick zum Kopf oder ein unangenehmer Haken, kann den Kopf schon ganz schön durchschütteln. da in deinem Schädel das wichtigste ist was du überhaupt hast, dein Gehirn, solltest du dies entsprechend schützen. Sie also ein Kopfschutz an, das erspart dir einiges an Kopfschmerzen. wenn du denkst, das brauchst du nicht, überleg dir einfach wie viele Ersatz Gehirne du hast
+Zähne hast du nur einmal.
 
-**schienbeinschutz** den Schienbeinschutz zieht man über das Schienbein. er schützt das Schienbein und dessen Knochenhaut bei lowkicks, die man selbst ausführt und auch bei ziehen beim Blöcken. ohne Schienbeinschoner, sollte man kein Sparring mit kicks machen, sondern nur Boxen
+Ein Zahnschutz kostet wenig und lässt sich mit heißem Wasser individuell anpassen. Das dauert nur wenige Minuten.
 
-**fussschoner** fußschoner sieht aus wie sehr große Puschen, die man vor dem Fernseher anzieht. sie haben aber keine Sohle, so dass man direkt mit dem Blusen Fuß auf dem Boden steht. sie schützen vor allem den Partner davor dass ein zeh  unbeabsichtigt ein Auge quetscht und es zerstört
+Wenn dir versehentlich ein Ellenbogen ins Gesicht fliegt, wirst du dieses kleine Stück Plastik sehr zu schätzen wissen.
 
-**ellenbogenschoner** und **knieschoner**: sind beim Sparring auch Ellenbögen und Knie zugelassen, empfiehlt es sich eben diese Schoner anzuziehen. dadurch schützt man den anderen . denn gerade Ellenbögen können sehr böse Auswirkungen haben die man mit dem Schoner wesentlich abmindert
+### Faustschützer
 
-**brustschutz** ist  für Frauen, er schützt die Brust sinnvoll vor allem bei schmerzempfindlichen Brüsten. kleiner Tipp: neben den Brustschutz der aus einem Top besteht mit einlegbaren Schalen. der ist wesentlich beweglicher, als diese komische vollschalen-Brünne, die überall am Körper reibt und die Beweglichkeit vollkommen einschränkt
+Handschuhe schützen sowohl dich als auch deinen Partner.
 
-## verbotene Techniken
+Sie verhindern Schürfwunden und reduzieren die Härte der Treffer.
 
-beim sparen gibt es tatsächlich verbotene Techniken Punkt ob ihr das so handhabt Komma ist mir egal Komma bei mir auf der Matte ist das genauso Punkt folgende Techniken sind verboten
+Grundsätzlich gibt es zwei Varianten:
 
-* gerade fusstechniken zu Kopf, verletzungsgefahr dee wirbelsäule
-* gerade fusstechnik zum knie, jegliche fusstechnik zum knie
-* back roundhouse kick, weil gedrehte kicks kaum zu kontrollieren sind und die ferse echt böse treffen kann
-* ellenbögen (allenfalls   mit schoner und nach abmachung)
-* fingerstiche etc. zu augen, haare reissen etc.
-* keine Hebel im Stand, zu groß ist die Verletzungsgefahr, wenn man stolpert und nicht aus dem Himmel rauskommt
+* Geschlossene Boxhandschuhe
+* MMA-Handschuhe mit freien Fingern
 
-es kann sein, dass ich hier tatsächlich noch Techniken vergessen habe aber ich denke die Richtung sollte klar sein. wir wollen alle gesund von der Matte laufen und dafür tun wir alles
+Für Sparring empfehlen sich eher dickere Polsterungen.
 
-## Sparring lernen 
+### Tiefschutz
 
-am Anfang muss man sich erstmal an das Bein gewöhnen Punkt entsprechend niederschwellig sollten die Aufgaben sein. die trainees werden mit technik auf technik bedingtem Sparring an diesen Handlungskomplex herangeführt Punkt jetzt fragst du dich sicherlich: was ist bedingtes Sparring
+Der Tiefschutz schützt vor Treffern im Genitalbereich.
 
-## technik auf technik
+Vor allem für Männer kann er sehr sinnvoll sein.
 
-Technik auf Technik bedeutet, dass man das zeitlich chaos eines freien Kampfes herausnimmt. stattdessen wird Technik auf Technik trainiert. 
+### Kopfschutz
 
-das heißt : Partner a macht eine Technik. dann macht Partner B eine Technik. nachdem  B  die Technik ausgeführt hat darf wieder Partner A.
+Der Kopfschutz reduziert die Belastung durch Schläge und Kicks zum Kopf.
 
-dies kann man natürlich auch variieren indem man sagt man macht Kombination auf Kombination. Partner a darf eine Dreierkombination machen. dann macht Papa B seine Dreierkombination. dann wieder Partner
+In deinem Schädel befindet sich dein wichtigstes Organ: dein Gehirn.
 
-### bedingtes sparring
+Schütze es.
 
-bei bedingtem Sparring gibt man eine sparringsaufgabe. zwangsaufgaben können z.B sein
+Wenn du glaubst, keinen Kopfschutz zu brauchen, frage dich einfach, wie viele Ersatz-Gehirne du besitzt.
 
-* nur führhand: ihr habt jetzt nur eure Führhand  versucht so viel wie möglich zu treffen und versucht so wenig wie möglich getroffen zu werden
-* nur gerade hände: die Sparringspartner dürfen nur gerade Hände machen, also jap und punch zum Kopf und zum Körper Punkt erkläre dazu, dass es ausweichen und ganz leicht ist, weil es keine runden Schläge gibt Punkt geht man aus der Linie, wird man nicht getroffen
-* Gefangener Fuß: der vordere Fuß der Partner muss immer innerhalb eines bestimmten Bereichs bleiben, z.B innerhalb nur einer Matte oder innerhalb eines Hula Hoop Reifens. dadurch wird das Ausweichengeschult
-* nur hände
-* nur Kicks
-* etc.
+### Schienbeinschutz
 
-## setup-Sparring
+Schienbeinschoner schützen die Knochenhaut bei Lowkicks und beim Blocken gegnerischer Tritte.
 
-Setup Sparring ist wenn ein trainingspaar eine bestimmte Übung ausführt. nach der Ausführung dieser Technik beginnt erst das freie Sparring .
+Ohne Schienbeinschutz sollte man kein Kick-Sparring durchführen.
 
-beispiel der Hüftwurf wird ganz normal wie im normalen Training ausgeführt. sobald der Partner am Boden liegt, beginnt der eigentliche Kampf 
+### Fußschoner
 
-dadurch nimmt man die potenzielle Gefährlichkeit eines Wurfes aus dem Sparren heraus. der Wurf kann 100% kontrolliert ausgeführt werden. erst danach geht das freie Sparring los
+Fußschoner sehen aus wie große Hausschuhe ohne Sohle.
 
-## positions-sparring
+Sie schützen vor allem den Partner. Ein unbeabsichtigter Treffer mit den Zehen ins Auge kann schwerwiegende Folgen haben.
 
-vor allem im Bodenkampf verwendet man Position Sparring zwei Partner befinden sich in einer Position. 
+### Ellenbogen- und Knieschoner
 
-der Unterlegene Partner bekommt die Aufgabe aufzustehen, der überlegene Partner bekommt die Aufgabe einer submission. 
+Sind Ellenbogen- oder Knietechniken erlaubt, empfiehlt sich entsprechende Schutzausrüstung.
 
-der Kampf endet sobald einer der Partner seine Aufgabe erfüllt hat. danach geht die Runde von neuem los in derselben Position . 
+Dadurch schützt man den Trainingspartner vor unnötigen Verletzungen.
 
-Position Sparring ist grandios, um eine Befreiung immer wieder zu drillen oder eine satmischen immer wieder zu drillen Punkt man muss sich diese Position nicht schwer arbeiten, sondern kann sich wirklich auf das Finish oder der technical Stand-Up konzentrieren.
+### Brustschutz
 
-natürlich ist auch ein Griffkampf denkbar was positionsparring oder auch an der Käfigwand.
+Ein Brustschutz kann für Frauen sinnvoll sein, insbesondere bei schmerzempfindlicher Brust.
 
-## Sharkpool / haifischbecken
+Praktisch sind Sporttops mit integrierten Schalen. Diese sind oft deutlich angenehmer als starre Vollschalenmodelle.
 
-ist eine Variante von Position zwei Ring. es lässt sich anhand eines Beispiels am leichtesten erklären du hast zehn Leute auf der Matte. davon kommen sechs als Pärchen auf die Kampfflächen. diese machen dann positionswaring Punkt sobald ein Kampf beendet ist, bleibt der Gewinner auf der Matte. 
+## Verbotene Techniken
 
-der nächste Herausforderer wird aus dem Pool der wir verbliebenen noch frischen Kämpfer ersetzt. 
+Bei mir auf der Matte gibt es Techniken, die im Sparring nicht erlaubt sind.
 
-angenommen, man hat einen sehr starken Kämpfer auf einer Matte, der immer wieder dominiert. dann wird er sehr lange auf dieser Matte bleiben Punkt und er wird immer wieder neue und frische Partner haben.
+Dazu gehören:
 
-## deine Sparrings-aufgabe
+* **Gerade Fußtechniken zum Kopf**
+* **Fußtechniken gegen das Knie**
+* **Back Roundhouse Kicks und andere schwer kontrollierbare Drehkicks**
+* **Ellenbogentechniken** (allenfalls mit Schutzausrüstung und klarer Absprache)
+* **Fingerstiche zu den Augen**
+* **Haare reißen**
+* **Hebel im Stand**
 
-Sparring ist Kampf und damit sehr komplex. am Anfang mag es dir vielleicht schwer fallen, da überhaupt Ordnung reinzukriegen. weil man muss ja auf alles achten: auf die Kampfstellung, auf die Deckung auf die Sauberkeit der Kicks auf die Kombination, auf den Blick etc pp 
+Möglicherweise habe ich hier einzelne Techniken vergessen.
 
-hier meinen toptip wie du dich weiterentwickelst 
+Die Richtung sollte aber klar sein:
 
-stelle dir eine ganz klare trainingsaufgabe. z. B. kann dies sein:
+Wir wollen alle gesund von der Matte gehen.
 
-* jab-punch-Lowkick, immer und immer wieder
-* ausweichbewegung vor JEDER aktion
-* abschlusskick nach jeder kombi 
-* distanz: lange Distanz halten, für für einen Angriff schnell rein und wieder rausspringen
-* jedes Mal ein stoppkick gegen den Partner
-* jedes Mal wenn der Partner kommt einen vehementen störangriff
-* Bastion bleib auf genau einer Matte und verteidige diese Matte
-* Druck dem anderen Druck indem du immer auf den zu ihm zu läufst und ihm keine Chance lässt sich zu fangen
-* Leber als einzige Zielfläche, jeder Haken jeder mittelkick geht zur Leber
-* Finte jede Angriff ist von einer Finte / Freeze begleitet
+## Sparring lernen
 
-nimm deinen Fokus wirklich nur auf eine einzige Detail was du verbessern möchtest. mach das ein bis zwei oder drei sparrings durch
-du wirst bemerken, dass du dann wirklich besser wirst
+Anfänger müssen sich zunächst an Sparring gewöhnen.
 
-sobald du dich mit einer Sache einigermaßen sicher fühlst nimm die nächste Sache dazu mit der Zeit wirst du bemerken, dass dein Technik Reparatur immer weiter ansteigt.
+Deshalb sollten die Aufgaben einfach und überschaubar sein.
 
-letzter Hinweis: habt ihr gerade davor ein Training gehabt und eine bestimmte Technik geübt, bietet es sich an, genau diese Technik jetzt im sparring zu üben dann ist der Kopf noch frisch. 
+Hierfür eignet sich bedingtes Sparring.
 
-ich gehe genau nach diesem Schema vor. was im Training machen mache ich auch im Sparring. dadurch merke ich gleich ob mir eine Technik liegt oder  nicht. eine Ausnahme: ich habe mir vorher schon vorgenommen welche technik ich gezielt trainieren möchte.
+## Technik auf Technik
+
+Beim Technik-auf-Technik-Sparring wird das Chaos eines freien Kampfes reduziert.
+
+Partner A führt eine Technik aus.
+
+Danach führt Partner B eine Technik aus.
+
+Dann ist wieder Partner A an der Reihe.
+
+Später kann dies erweitert werden:
+
+* Kombination gegen Kombination
+* Drei Techniken gegen drei Techniken
+* Angriff gegen Gegenangriff
+
+Dadurch entsteht Struktur und Sicherheit.
+
+### Bedingtes Sparring
+
+Beim bedingten Sparring erhalten beide Partner eine konkrete Aufgabe.
+
+Beispiele:
+
+* **Nur Führhand**
+* **Nur gerade Hände**
+* **Nur Hände**
+* **Nur Kicks**
+* **Gefangener Fuß** (der vordere Fuß bleibt in einem festgelegten Bereich)
+
+Dadurch wird gezielt an einzelnen Fähigkeiten gearbeitet.
+
+## Setup-Sparring
+
+Beim Setup-Sparring beginnt das freie Sparring erst nach einer vorgegebenen Aktion.
+
+Beispiel:
+
+Ein Hüftwurf wird kontrolliert ausgeführt. Erst nachdem der Partner sicher am Boden angekommen ist, beginnt das eigentliche Sparring.
+
+Dadurch kann die Technik sauber trainiert werden, ohne die Risiken eines freien Wurfversuchs.
+
+## Positions-Sparring
+
+Vor allem im Bodenkampf wird häufig Positions-Sparring verwendet.
+
+Beide Partner starten in einer festgelegten Position.
+
+Beispielsweise:
+
+* Der Unterlegene versucht aufzustehen.
+* Der Überlegene versucht eine Submission anzusetzen.
+
+Sobald eine Aufgabe erfüllt wurde, beginnt die Runde erneut.
+
+Positions-Sparring eignet sich hervorragend, um bestimmte Situationen gezielt zu trainieren.
+
+## Sharkpool / Haifischbecken
+
+Das Haifischbecken ist eine besondere Form des Positions-Sparrings.
+
+Mehrere Paare kämpfen gleichzeitig.
+
+Gewinnt jemand eine Runde, bleibt er auf der Matte.
+
+Der Verlierer wird durch einen frischen Partner ersetzt.
+
+Besonders starke Kämpfer bleiben dadurch lange im Einsatz und müssen sich immer wieder neuen Gegnern stellen.
+
+## Deine Sparrings-Aufgabe
+
+Sparring ist komplex.
+
+Am Anfang muss man auf alles achten:
+
+* Kampfstellung
+* Deckung
+* Distanz
+* Kicks
+* Kombinationen
+* Blickführung
+
+Mein wichtigster Tipp:
+
+Nimm dir pro Sparring genau eine Aufgabe vor.
+
+Zum Beispiel:
+
+* Jab–Punch–Lowkick
+* Vor jeder Aktion ausweichen
+* Nach jeder Kombination ein Abschlusskick
+* Lange Distanz halten
+* Stoppkick bei jedem Angriff
+* Störangriff bei jedem Vorwärtsdruck
+* Eine Matte verteidigen
+* Konstant Druck machen
+* Nur die Leber angreifen
+* Jeden Angriff mit einer Finte vorbereiten
+
+Konzentriere dich auf genau einen Punkt.
+
+Trainiere ihn über mehrere Sparringsrunden.
+
+Erst danach nimmst du die nächste Aufgabe hinzu.
+
+So entsteht nachhaltige Verbesserung.
+
+### Letzter Hinweis
+
+Habt ihr zuvor eine Technik im Training geübt, dann versucht genau diese Technik im Sparring anzuwenden.
+
+Der Kopf ist noch frisch und die Bewegung noch präsent.
+
+Ich gehe genau so vor:
+
+Was ich im Training übe, versuche ich auch im Sparring einzusetzen.
+
+Dadurch merke ich sofort, ob mir eine Technik liegt oder ob ich noch daran arbeiten muss.

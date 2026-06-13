@@ -1,46 +1,120 @@
-# bungo
+# Bungo
 
-## herkunft des begriffs unklar
+## Herkunft des Begriffs unklar
 
-. der Begriff Bungo ist mir nur geläufig durch das Training, das ich besuche. mein Trainer verwendet diesen Begriff. es ist mir nicht gelungen, ihn im Internet zu finden. schwerlich kann ich eine Volltextsuche in allen mir zur Verfügung stehenden Druckwerken machen. dennoch habe ich mich entschlossen, dem Begriff Bungo zugelassen. denn mit ihm ist ein sehr wichtiges Konzept verbunden
+Der Begriff *Bungo* ist mir nur aus dem Training bekannt, das ich selbst besuche. Mein Trainer verwendet diesen Begriff regelmäßig.
 
-## definition
+Es ist mir bisher nicht gelungen, ihn in Büchern oder im Internet zu finden. Natürlich kann ich auch keine Volltextsuche durch alle Kampfsportbücher dieser Welt durchführen. Dennoch habe ich mich entschieden, den Begriff in dieses Buch aufzunehmen, denn mit ihm ist ein sehr wichtiges Konzept verbunden.
 
-bungo lässt sich beschreiben als die Ware Vorstellung dessen was du tust Punkt es ist die Bedeutung der Technik, die du gerade ausführst. es ist die Bestimmung dessen was die Technik am Körper des anderen bewirkt.
+## Definition
 
-**ohne bungo**: nehmen wir den jab als Beispiel. den geraden Fauststoß also. grundsätzlich ist es einfach nur eine Bewegung mit dem Arm, das ausstrecken des Armes, während die Hand sofort ausgebaut ist. quasi wie eine Tanzbewegung ohne Sinn und nur unter Ausführung willen
+Bungo lässt sich als die wahre Vorstellung dessen beschreiben, was du gerade tust.
 
-die **reine Bewegung** dafür Hand ist also nur ein anderes Anordnen der eigenen Knochen. in diesem Verständnis trainieren **Anfänger**, wenn Sie zum ersten Mal mit dem Thema Fauststoß in Verbindung kommen. dies verändert sich massiv, wenn man das Bungo hinzunimmt und die Bedeutung und Auswirkung der Bewegung versteht ist
+Es ist die Bedeutung einer Technik. Die Absicht hinter der Bewegung. Die Vorstellung davon, was diese Technik am Körper des Gegners bewirkt.
 
-**mit bungo**: das Bongo macht aus dieser Streckbewegung des Armes erst Einschlag. dieses ausstrecken des Armes wird damit zu einer Waffe. der Arm wird gestreckt und gleichzeitig Schulter und hara in Bewegung zu dem Gegner hingebracht. die Faust wird im rechten Moment gedreht und der Knöchel der führenden Hand trifft auf das Jochbein des Gegners. die Bewegung wird über das Jochbein hinaus bis etwa zur Schädelmitte ausgeführt. berechnet man die natürliche Ausweichbewegung und die Trägheit der Masse des gegners mit ein, so wird dies das Jochbein des Gegners brechen und seinen Kopf außerdem nach hinten stoßen. dafür wird er für kurze Zeit im Hohlkreuz stehen seine Hände werden wahrscheinlich zum Gesicht, zum Schmerz nach oben gezogen dadurch ist der bauchfrei. es bietet sich also an die folgetechnik als Technik zum Bauch auszuführen, sei es ein Schlag oder ein Kik oder, aufgrund des Hohlkreuzes, ein Wurf nach hinten anzusetzen
+### Ohne Bungo
 
-bungo gib dem was du tust überhaupt erst einen Sinn es beantwortet folgende Fragen 
+Nehmen wir den Jab als Beispiel.
 
-* was ist die exakte Trefferfläche 
-* wo und wann triffst du den Gegner 
-* wo endet die Bewegung die du ausführst 
-* welche Auswirkung hat der Treffer oder die Technik allgemein auf den Gegner 
-* auf welche Weise manipuliert die Technik Gegner
-* welche Verletzungen fügt es den Gegner zu
+Grundsätzlich ist ein Jab zunächst nur eine Bewegung. Der Arm wird gestreckt, die Faust bewegt sich nach vorne. Ohne weitere Vorstellung ist dies nicht viel mehr als eine koordinierte Anordnung von Knochen, Muskeln und Gelenken.
 
-**Beispiel**: wenn ich Langstock trainiert habe habe ich diesen Langstock gut geführt, ich habe ihn gut beherrscht aber nie als Waffe. dann wurde im Radio gebracht, dass angeblich böse Menschen extra in Flüchtlingscamps einfliegen, um dort losgelöst von Gesetzen mit dem Baseballschläger unglaublichen Schaden anzurichten. dies hat mich sehr aufgebracht. ich stellte mir die Hilflosigkeit der Menschen vor, die Familien die versuchen ihre Kinder zu schützen. von diesem Tag an habe ich den Stock immer als Waffe geführt mir war bewusst dass dieser Schlag an der Schläfe berührt und dort einen kleinen Buch erzeugt dass dieser Stoß direkt in die Augenhöhle gehen wird und dass dieser große Schwung das Knie brechen wird. von da an war der Stock eine Waffe für mich. ich hoffe natürlich, dass es niemals dazu kommt dass ich den Stock auf diese Art und Weise führen muss.
+In diesem Verständnis trainieren viele Anfänger. Sie lernen zunächst die reine Bewegung.
 
-nehmen wir mal eine Kata. dort befindet sich eine hakenbewegung. diese Strecken lässt sich auf verschiedene Arten interpretieren
+Der Fauststoß wird ausgeführt, weil der Trainer gesagt hat, dass man den Arm so bewegen soll.
 
-* Faustschlag zum Gesicht 
-* Block gegen ein vorgestellten Angriff eines imaginären Gegners
-* Bruch des Arms eines imaginären Gegners
+Die Technik besitzt Form, aber noch keine Bedeutung.
 
-das sind drei vollkommen verschiedene Techniken mit drei voneinander abweichenden intention Punkt natürlich solltest du bei einer Katha wissen, was diese Bewegung genau macht. wenn du es nicht weißt, werden deine Techniken immer ziellos und trübe sein Punkt nur mit dem Bungo wird die stimpfe bewegung zur konzentrierten Idee und dem gelebten Verständnis.
+### Mit Bungo
 
-dein bungo wächst mit jeder Ausführung das Bungo einer Technik ist unendlich die Wiederholung und Geisteskraft ist das Wesen des 
+Erst das Bungo macht aus der Bewegung eine Technik.
 
-Bungo ist ein Schwert 
-Unachtsamkeit und faulheit lassen es stumpf werden
-jede Wiederholung schärft die klinge 
-beständiges Übung erhalten die schärfe 
+Der Arm wird nicht einfach ausgestreckt. Schulter, Hüfte und Hara bewegen sich gemeinsam nach vorne. Die Faust wird im richtigen Moment gedreht. Die Knöchel treffen das Jochbein des Gegners.
 
-es ist okay, manchmal einfach nur stumpf und sinnlos Technik zu wiederholen und einzuschleifen. nimm dir aber auch Zeit dir die Technik und ihre Auswirkungen genau vorzustellen.
+Die Bewegung endet nicht an der Oberfläche des Gesichts. Sie setzt sich gedanklich über die Trefferfläche hinaus fort.
 
+Plötzlich hat die Technik eine Bedeutung.
 
+Man versteht:
 
+* Wo getroffen wird.
+* Warum dort getroffen wird.
+* Welche Wirkung entstehen soll.
+* Welche Reaktion beim Gegner wahrscheinlich ist.
+* Welche Folgetechniken sich dadurch ergeben.
+
+Aus einer Bewegung wird eine Idee.
+
+Aus einer Idee wird eine Technik.
+
+## Fragen des Bungo
+
+Bungo beantwortet unter anderem folgende Fragen:
+
+* **Was ist die exakte Trefferfläche?**
+* **Wo und wann treffe ich den Gegner?**
+* **Wo endet meine Bewegung?**
+* **Welche Wirkung hat die Technik?**
+* **Wie manipuliert die Technik den Gegner?**
+* **Welche Verletzungen können entstehen?**
+
+## Beispiel
+
+Als ich begann, Langstock zu trainieren, beherrschte ich die Bewegungen recht gut. Ich konnte den Stock führen, drehen und kontrollieren.
+
+Aber ich verstand ihn nicht als Waffe.
+
+Eines Tages hörte ich einen Bericht über Gewalttaten mit Schlagwaffen. Die Vorstellung der Hilflosigkeit der Opfer ließ mich nicht mehr los.
+
+Plötzlich begann ich anders zu trainieren.
+
+Mir wurde bewusst, was ein Schlag an der Schläfe bewirken kann. Was ein Stoß in die Augenhöhle bedeutet. Welche Folgen ein kräftiger Treffer auf das Knie haben kann.
+
+Von diesem Moment an war der Stock für mich keine Übung mehr.
+
+Er war eine Waffe.
+
+Ich hoffe natürlich, dass ich ihn niemals auf diese Weise einsetzen muss.
+
+## Bungo in der Kata
+
+Nehmen wir eine Bewegung aus einer Kata.
+
+Eine scheinbar einfache Hakenbewegung kann verschiedene Bedeutungen besitzen:
+
+* **Faustschlag zum Gesicht**
+* **Block gegen einen Angriff**
+* **Hebel oder Armbruch**
+
+Äußerlich sieht die Bewegung ähnlich aus. Innerlich handelt es sich um völlig unterschiedliche Techniken. Deshalb solltest du bei einer Kata wissen, welche Bedeutung eine Bewegung für dich besitzt.
+
+Wenn du dies nicht weißt, bleiben die Bewegungen leer. Erst das Bungo macht aus einer Bewegung eine klare Absicht.
+
+## Wachstum
+
+Dein Bungo wächst mit jeder Wiederholung.
+
+Je häufiger du eine Technik trainierst, desto mehr Feinheiten erkennst du. Das Bungo einer Technik ist niemals abgeschlossen.
+
+Mit jeder Erfahrung wird es größer. Mit jedem Fehler wird es genauer. Mit jeder Wiederholung wird es schärfer.
+
+## Das Schwert
+
+> Bungo ist wie ein Schwert.
+> Unachtsamkeit und Faulheit lassen es stumpf werden.
+> Jede Wiederholung schärft die Klinge.
+> Beständiges Üben erhält ihre Schärfe.
+
+## Hinweis
+
+Es ist völlig in Ordnung, Techniken manchmal einfach nur zu wiederholen und einzuschleifen.
+
+* Nimm dir jedoch auch Zeit, die Technik bewusst zu erleben.
+* Stelle dir vor, was sie bewirkt.
+* Stelle dir den Gegner vor.
+* Stelle dir die Wirkung vor.
+
+* Erst dann wird aus einer Bewegung Verständnis.
+
+## Merkspruch
+
+„Die Bewegung ist die Form. Das Bungo ist die Bedeutung.“

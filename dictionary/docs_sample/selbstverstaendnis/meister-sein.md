@@ -1,25 +1,75 @@
 ## Meister sein
 
-was ist ein Meister. ein Meister ist oft eine Person, die einen schwarzen Gürtel um den Bauch hat. bei uns in der Gruppe sagt man ein Gürtel hält den KI zusammen dieser schwarze Gürtel erhebt dich nicht über andere aber die Versuchung ist groß. 
+Was ist ein Meister?
 
-wie schön wäre es, wenn man tatsächlich ein Meister wäre: man macht keine Fehler mehr man ist nie mehr unsicher Punkt weder auf der Matte, noch im Leben Punkt immer weiß man die richtige Antwort
+Oft ist es einfach eine Person mit einem schwarzen Gürtel um den Bauch. Bei uns in der Gruppe sagt man scherzhaft:
 
-in Wahrheit ist es (leider?) so dass du derselbe Mensch bist wie vorher. unabhängig vom Gürtel, den du gerade umgebunden hast.
+> „Der Gürtel hält den Gi zusammen.“
 
-naja, eigentlich ist es sogar noch schlimmer. mit jedem Tag an dem Du mehr auf der Matte stehst wirst du Techniken haben die du besser kannst. was aber noch mehr wächst, ist das Bewusstsein, dass es so viele Techniken gibt, die du noch gar nicht beherrschst. 
+Dieser schwarze Gürtel erhebt dich nicht über andere Menschen. Die Versuchung, das zu glauben, ist allerdings groß.
 
-je länger du trainierst desto mehr bekommst du das Auge fürs Detail dass du mehr achtest du auf dein Gleichgewicht, den Schwerpunkt, die Trefferfläche, und all das was du hier auch in diesem Buch findest. es ist harte Arbeit, nicht total unzufrieden zu werden über die ganze Unwissenheit derer man sich im Laufe der Zeit bewusst wird 
+Wie schön wäre es, tatsächlich ein Meister zu sein:
 
-solltest du schon "Meister"  sein, so hier einige Tipps wie du auf der Spur bleibst
+Keine Fehler mehr.
 
-* trainiere 
-* gehe auf lehrgänge
-* lass dich korrigieren, auch von anfängern
-* sei vorbild
+Nie mehr unsicher.
 
-**geschichte**: die glücklichste Zeit die ich hatte, waren von weiß bis blau. da wusste ich einfach noch nicht so viel, und dachte ich bis wüsste viel. nach 20 Jahren Kampfsport merke ich erst richtig, was ich alles nicht weiß. ich glaube die Kunst ist sich davon nicht zu sehr frustrieren zu lassen ... ich weiß dass ich nichts weiß.
+Immer die richtige Antwort – auf der Matte und im Leben.
 
-### gurus
+In Wahrheit ist es leider – oder vielleicht auch zum Glück – anders.
 
-fühlte dich davor, ein Guru zu werden in einem Kampfsportverein habe ich wahrlich grausliges erlebt, das bis hin zur sexuellen Belästigung ging. das war nicht schön. solltest du dich selbst dabei ertappen, wie du komische Gesetze aufstellst, komische Gesetzmäßigkeiten festhältst, und der alle Schüler wie im gleichgang zu nicken, überlege dir wirklich gut ob du das machen möchtest der schwarze Gürtel verleiht dir Macht über andere, er blendet, aber dieses Blenden ist dunkel.
+Du bist derselbe Mensch wie vorher. Unabhängig davon, welchen Gürtel du gerade trägst.
 
+Eigentlich wird es sogar noch schlimmer:
+
+Mit jedem Tag auf der Matte wirst du manche Techniken besser beherrschen. Gleichzeitig wächst aber auch das Bewusstsein dafür, wie viele Dinge du noch nicht kannst.
+
+Je länger du trainierst, desto mehr entwickelst du ein Auge für Details. Du achtest stärker auf Gleichgewicht, Schwerpunkt, Trefferflächen und all die kleinen Feinheiten, die eine Technik ausmachen.
+
+Es ist manchmal harte Arbeit, nicht frustriert zu werden über die eigene Unwissenheit.
+
+Solltest du bereits ein „Meister“ sein, helfen dir vielleicht folgende Gedanken:
+
+* **Trainiere weiter.**
+* **Besuche Lehrgänge.**
+* **Lass dich korrigieren – auch von Anfängern.**
+* **Sei ein Vorbild.**
+
+**Geschichte:**
+Die glücklichste Zeit im Kampfsport hatte ich zwischen Weiß- und Blaugurt.
+
+Damals wusste ich noch nicht so viel und dachte, ich wüsste bereits eine Menge.
+
+Nach über 20 Jahren Kampfsport merke ich erst richtig, wie viel ich eigentlich nicht weiß.
+
+Ich glaube, die Kunst besteht darin, sich davon nicht entmutigen zu lassen.
+
+Oder wie es ein alter Satz ausdrückt:
+
+> „Ich weiß, dass ich nichts weiß.“
+
+### Gurus
+
+Hüte dich davor, ein Guru zu werden.
+
+In einem Kampfsportverein habe ich Dinge erlebt, die bis hin zu sexueller Belästigung gingen. Das war nicht schön.
+
+Wenn du dich selbst dabei ertappst, immer mehr Regeln aufzustellen, immer mehr Kontrolle auszuüben und deine Schüler nur noch zustimmend nicken, dann halte einen Moment inne.
+
+Frage dich:
+
+> Dient das wirklich dem Training – oder dient es meinem Ego?
+
+Der schwarze Gürtel verleiht Einfluss. Menschen hören dir zu. Sie vertrauen dir.
+
+Nutze dieses Vertrauen mit Bedacht.
+
+Ein guter Meister macht seine Schüler stärker.
+
+Ein Guru macht seine Schüler abhängig.
+
+Der Unterschied ist gewaltig.
+
+## Merkspruch
+
+„Der schwarze Gürtel macht dich nicht zu etwas Besonderem. Er erinnert dich daran, weiter zu lernen.“

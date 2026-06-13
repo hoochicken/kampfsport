@@ -2,78 +2,122 @@
 
 ### Motivieren
 
-beim Kampfsport werden viele Übungen zu zweit ausgeführt. folglich hat man einen Partner, mit dem man zusammen trainiert. das scheint auf den ersten Blick selbstverständlich, aber auch hier gibt es diverse Eigenheiten die zu beachten sind sobald man mit einem Partner zusammenarbeitet, baut man mit ihm eine Art Beziehung auf man agiert als ein eigenes Ökosystem und unterstützt sich im Idealfall gegenseitig. gehen wir nun einmal von der Annahme aus, dass ihr euch gegenseitig unterstützen wollt. das bedeutet, dass du den Partner jederzeit: den Druck habe ich jetzt viel mehr gemerkt der Wurf hat uns viel besser geklappt. wäre ein k.o gewesen, aber du hast locker gemacht vielen herzlichen Dank. in einem Kampf wäre das glaube ich das Ende des Kampfes gewesen, wie geil
+Im Kampfsport werden viele Übungen zu zweit ausgeführt. Folglich hat man einen Trainingspartner, mit dem man zusammenarbeitet. Das klingt selbstverständlich, bringt aber einige Besonderheiten mit sich.
+
+Sobald man mit einem Partner trainiert, entsteht eine Art Beziehung. Ihr bildet ein kleines Trainingssystem und unterstützt euch idealerweise gegenseitig.
+
+Gehen wir einmal davon aus, dass ihr euch gegenseitig helfen wollt. Dann gehört es dazu, positives Feedback zu geben:
+
+* „Den Druck habe ich diesmal viel stärker gespürt.“
+* „Der Wurf hat deutlich besser funktioniert.“
+* „Das wäre ein K. o. gewesen, aber du hast rechtzeitig locker gelassen. Vielen Dank.“
+* „In einem echten Kampf wäre das wahrscheinlich das Ende gewesen. Richtig stark!“
 
 ### Tipps geben
 
-es gibt mehrere Arten, miteinander zu trainieren. entscheidend finde ich zwei Modi: 
+Es gibt verschiedene Arten zu trainieren. Besonders wichtig finde ich zwei Modi:
 
-1. sich die ganze Zeit Rückmeldung gibt über die Techniken und deren Ausführung. 
-2. man ist ein Flow zu, dass alle Fünfe gerade sein und trainiert auf Wiederholungen.
+1. Ihr gebt euch ständig Rückmeldung zu Technik und Ausführung.
+2. Ihr kommt in einen Flow und sammelt möglichst viele Wiederholungen.
 
-es bietet sich an zunächst auf Technik zu achten, bis die Gruppe und dann in den Flow überzugehen . dadurch erreicht man technische Sicherheit und anschließend viel Spaß: 
+Es bietet sich an, zunächst auf die Technik zu achten und später in den Flow überzugehen. Dadurch entsteht zuerst technische Sicherheit und anschließend Trainingsspaß.
 
-* korrigiere den anderen nicht zu Tode 
+* **Korrigiere den anderen nicht zu Tode.**
 
 ### Tipps bekommen
 
-Tipps zu bekommen, ist super. andererseits ist es auch kacke, weil das ja bedeutet, dass man etwas nicht richtig gemacht hat Blende diesen Aspekt bei deinem Training komplett aus. nimm einen Tipp immer als das was es ist, deine gute Technik wird noch besser gerade als Erwachsener ist es oft anstrengend, gibt es anzunehmen. man müsste ja eigentlich schon alles wissen. man wird vielleicht auf der Arbeit ständig korrigiert etc. finde mit deinem Partner einen guten Modus. gegebenenfalls nimm ihn nach dem Training beiseite und suche das Gespräch mit ihm.
+Tipps zu bekommen ist großartig. Gleichzeitig kann es unangenehm sein, weil es bedeutet, dass etwas noch verbessert werden kann.
 
-* sollte jemand dich zu Tode korrigieren, sage einfach heute bin ich müde ich würde gerne heute ein bisschen weniger intensiv trainieren. 
+Blende diesen Gedanken aus. Ein Tipp bedeutet nicht, dass deine Technik schlecht ist. Er bedeutet lediglich, dass sie noch besser werden kann.
 
-**Geschichte**: die Gruppe besteht nur aus Männern, die größer und schwerer sind als ich. als mir dann der fünfte Trainingspartner erklärt hat, wie ich die Technik zu machen hätte hätte erklärte ich etwas platzig ich einfach zu müde sei und einfach nur noch trainieren wolle. das wäre in Ordnung gewesen, aber ich habe es in frustriertem Ton gesagt. besser wäre natürlich gewesen das Gespräch zu suchen kleiner Nebeneffekt,: er hat es wohl weitererzählt, und seitdem habe ich die Liebsten Trainingspartner der Welt
+Gerade als Erwachsener fällt es manchmal schwer, Kritik anzunehmen. Auf der Arbeit wird man ständig bewertet und korrigiert. Im Training sollte man deshalb einen guten Umgang damit finden.
 
-### respekt
+* **Sprich mit deinem Partner, wenn dir etwas zu viel wird.**
 
-behandle ich Partner mit Respekt. das bedeutet, lache ihn nicht aus, sondern wie ihn immer ernst. es ist niemanden, wenn du jemanden ausmacht. ich spreche hier aus Erfahrung.
+* **Sollte dich jemand ständig korrigieren, kannst du sagen:** „Heute bin ich etwas müde. Ich würde gerne etwas lockerer trainieren.“
+
+**Geschichte:**
+Die Gruppe bestand fast nur aus Männern, die größer und schwerer waren als ich. Als mir der fünfte Trainingspartner erklärt hat, wie ich die Technik machen sollte, habe ich irgendwann etwas genervt gesagt, dass ich einfach nur noch trainieren möchte. Besser wäre es gewesen, das ruhig anzusprechen. Der lustige Nebeneffekt: Offenbar wurde das weitererzählt. Seitdem habe ich die liebsten Trainingspartner der Welt.
+
+### Respekt
+
+Behandle deinen Partner stets mit Respekt.
+
+Lache ihn nicht aus. Nimm ihn ernst. Niemand gewinnt etwas dadurch, dass andere lächerlich gemacht werden.
+
+Ich spreche hier aus eigener Erfahrung.
 
 ### Absichtlicher Nachteil
 
-es kommt vor, dass du mit Papa trainierst, die technisch weniger gewarnt sind, die körperlich unterlegen sind und ähnliches. wie soll man mit so jemanden trainieren? das ist einfach vor allem beim Sparring kann es sinnvoll sein, sich ein Absichtlichen Nachteil zu geben kann es sinnvoll sein damit das Training für dich auch fordern bleibt, kannst du einige der folgenden Techniken anwenden
+Manchmal trainierst du mit Personen, die technisch weniger erfahren oder körperlich deutlich unterlegen sind.
 
-* beschränkung auf eine Technik : o trainiere nur eine Technik Punkt damit kannst du die einschleifen Punkt der Partner kann sich darauf einstellen und entsprechend seine Verteidigung aufbauen
-* entferne ein Gliedmaß: entferne einfach ein Gliedmaß, z.B die rechte Schlaghand z.B die rechte Schlaghand. dann kannst du nur mit mit führ Hand angreifen, dadurch trainierst du massiv die für Hand ; der Partner kann sehr leicht ausweichen
-* greife nur mit geraten Angriffen an Teile dies dem Partner mit Punkt Teil ihm auch mit und Komma dass er bei jedem Angriff einfach nur nach links oder nach rechts ausweichen muss
-* achte bewusst auf ein technisches Detail Komma zum Beispiel deinen tiefen stand und deine Hüfte Punkt dadurch trainierst du deine oberschenkelmuste massiv und dein stand
-* Augen schließen (nur im Bodenkampf)
-* arm unter gürtel entferne beim bodenkampf ein Arm in dem du in deinen Gürtel einklemmst passen natürlich auf deinen Arm auf Komma dass da nicht irgendwie verdreht wird Punkt durch die wegnahme des arms bist du dann ganz anders gefordert
+Gerade beim Sparring kann es sinnvoll sein, dir bewusst Nachteile zu geben. Dadurch bleibt das Training auch für dich anspruchsvoll.
 
-Ziel ist es Komma dass du währenddessen gefordert bist du kannst dir also sehr viel anpassen Punkt dadurch habt ihr beide optimal spaß weil ihr euch beide verausgabt
+Möglichkeiten sind:
 
-### sicherheit
+* **Beschränkung auf eine Technik:** Trainiere nur eine einzige Technik. Dadurch schleifst du sie ein und dein Partner kann gezielt darauf reagieren.
 
-die Sicherheit des Partners und deine eigene sollte an erster Stelle liegen. auch wenn du loslegen möchtest, und deine Techniken voll entfalten möchtest, deine komplette Kraft hineinlegen möchtest, wenn dein Partner halb so schwer ist wie du oder einen schlechten Tag hat, oder beides zusammen, dann könntest du ihn ernsthaft verletzen.
+* **Ein Gliedmaß „entfernen“:** Nutze beispielsweise die rechte Schlaghand nicht mehr. Dadurch trainierst du intensiv deine Führhand.
 
-trainiere schnell und locker, dann lernst du am meisten. 
+* **Nur gerade Angriffe:** Teile deinem Partner mit, dass du ausschließlich gerade Angriffe einsetzen wirst. Er kann sich darauf einstellen und gezielt ausweichen.
 
-oder andersrum gesagt: stell dir mal vor du würdest tatsächlich jemanden ernsthaft verletzen, das Knie zertrümmern, weil du einfach dein lowkick probieren wolltest. wahrscheinlich ist er, dass du dir jahrelang daraufhin Gedanken machst, und dich zu Todesstern den Sport an den Nagel hängt.
+* **Technikfokus:** Achte bewusst auf ein Detail, beispielsweise deinen Stand oder die Hüftarbeit. Dadurch trainierst du gezielt einzelne Aspekte.
 
-wenn du eine Verletzung hast , so Teile dies den Partner mit . wenn der Partner seltsame Anweisungen gibt Komma dass man bei den Hebeln aufpassen soll , Frage zurück! . vielleicht hatte eine Verletzung an einem Gelenk und der Schmerz tritt viel früher ein als die Beweglichkeit des Gelenks dir mitteilt
+* **Augen schließen:** Nur im Bodenkampf sinnvoll. Dadurch trainierst du das Fühlen von Bewegungen und Gewichtsverlagerungen.
+
+* **Arm im Gürtel:** Klemme einen Arm in deinen Gürtel. Dadurch bist du gezwungen, neue Lösungen zu finden. Achte dabei auf die Sicherheit des eingeklemmten Arms.
+
+Ziel ist es, dass ihr beide gefordert seid und Spaß am Training habt.
+
+### Sicherheit
+
+Die Sicherheit des Partners und deine eigene Sicherheit stehen immer an erster Stelle.
+
+Auch wenn du motiviert bist und deine Techniken mit voller Kraft ausführen möchtest: Ist dein Partner deutlich leichter, unerfahrener oder gesundheitlich angeschlagen, kannst du ihn ernsthaft verletzen.
+
+Trainiere schnell und locker. So lernst du am meisten.
+
+Anders ausgedrückt: Stell dir vor, du würdest jemanden schwer verletzen, nur weil du einen Lowkick ausprobieren wolltest. Wahrscheinlich würdest du noch Jahre später darüber nachdenken.
+
+Wenn du eine Verletzung hast, teile dies deinem Partner mit.
+
+Gibt dein Partner ungewöhnliche Anweisungen, frage nach. Vielleicht liegt eine Verletzung vor und der Schmerz tritt deutlich früher ein, als die Beweglichkeit des Gelenks vermuten lässt.
 
 ### Angst
 
-mit Angst kann man nicht ernsthaft trainieren. es passiert nur Fehler, oder die Angst ist sogar so groß, das richtig zugeschlagen wird. achte bei dir und deinem Partner empfindlich darauf ob Angst entstanden ist verbalisiere dies spricht den Partner direkt darauf an
+Mit Angst kann man nicht sinnvoll trainieren.
 
-"**ich habe gerade ein bisschen angst** kannst du bitte ein bisschen langsamer machen, dann kann ich mich besser auf die Situation einstellen. vielleicht hast du auch einen Tipp für mich"
+Entweder entstehen viele Fehler oder die Angst wird so groß, dass tatsächlich hart zugeschlagen wird.
 
-"** ich habe das Gefühl, dass du gerade ein bisschen Angst hast** ich werde jetzt nur noch auf den körper schlagen. dein Gesicht ist sicher . du kannst also mich die ganze Zeit anschauen."
+Achte bei dir und deinem Partner darauf, ob Angst entsteht. Sprich das offen an.
 
-woran du erkennst ob dein Partner Angst hat? achte auf die Körpersprache deines Partners   das zeigt sich z.B durch 
+**Beispiel:**
 
-* hoch gehobene Schultern oder
-* zurückweichen oder 
-* übermäßige Doppeldeckung bei der der Blick nach unten geht
-* hektischen Bewegungen oder
-* unverhältnismäßige Härte 
+„Ich habe gerade ein bisschen Angst. Kannst du bitte etwas langsamer machen? Dann kann ich mich besser auf die Situation einstellen. Vielleicht hast du auch einen Tipp für mich.“
 
-in diesem Fall solltest du die Angst auf jeden Fall zur Sprache bringen. im schlimmsten Fall hast du Angst und der andere auch. dann hat ihr  mit heben und Stechen aufeinander rum, solange bis ich einer von euch ganz doof verletzt. handle klug!
+Oder:
 
-geschichte: ich war bei einem Freund Verein trainieren. meine Partnerin sagte immer wieder: Stopp. ich verstand das nicht weil das Gelenk noch viel Spiel hatte. ich habe erst verstanden, dass sie ein Problem mit ihrem Gelenk hat, als sie handgelenkschoner geholt hat. da wurde mir klar, dass sie dir nur dabei haben kann, wenn Sie eine Verletzung hat. sie hat mich dann böse angeschaut. das war mir dann schon etwas peinlich. ich hätte einfach fragen können, um zu verstehen
+„Ich habe das Gefühl, dass du gerade etwas Angst hast. Ich werde nur noch zum Körper schlagen. Dein Gesicht ist sicher. Du kannst mich die ganze Zeit anschauen.“
+
+Woran erkennst du Angst?
+
+* **Hochgezogene Schultern**
+* **Zurückweichen**
+* **Übermäßige Doppeldeckung**
+* **Hektische Bewegungen**
+* **Unverhältnismäßige Härte**
+
+Sprich Angst immer an. Im schlimmsten Fall haben beide Angst und verletzen sich gegenseitig.
+
+Handle klug.
+
+**Geschichte:**
+Ich war bei einem befreundeten Verein zu Gast. Meine Partnerin sagte bei einem Hebel immer wieder „Stopp“. Ich verstand das nicht, weil das Gelenk noch viel Bewegungsspielraum hatte.
+
+Erst als sie Handgelenksschoner holte, wurde mir klar, dass sie eine Verletzung hatte. Sie schaute mich anschließend ziemlich böse an, und das war mir ehrlich gesagt etwas peinlich.
+
+Ich hätte einfach nachfragen sollen.
 
 ### Hinweis
 
-Partner-sein ist der erste Schritt zum Trainer-sein.
-
-
-
-
+Partner sein ist der erste Schritt zum Trainer sein.
