@@ -98,9 +98,21 @@ es gibt grundsätzlich drei Arten von vergewaltigungs-setups
 
 du hast Kinder und du willst Ihnen eine gute Familie bieten? das können Sie in dieser Konstellation gar nicht lernen. sie brauchen keinen Vater der die Mutter vergewaltigt und der ihn erklärt mit seinen Handlungen dass das vollkommen normal ist . dein Sohn könnte genau dadurch auch ein Vergewaltiger werden, deine Tochter wird wahrscheinlich ein Vergewaltigungsopfer werden.
 
-und es gibt noch einen Grund warum nur zur Polizei gehen solltest. Männer, die Frauen in der Ehe oder in der Beziehung vergewaltigen, probieren das im gesicherten Rahmen aus. wenn Sie erkennen, dass nichts passiert gesellen sie sich  zu eoner der beiden folgenden Tätergruppen:
+und es gibt noch einen Grund warum nur zur Polizei gehen solltest. Männer, die Frauen in der Ehe oder in der Beziehung vergewaltigen, probieren das im gesicherten Rahmen aus. wenn Sie erkennen, dass nichts passiert werden sie höchstwahrscheinlich auch irgendjemand anderen versuchen zu vergewaltigen
 
-**vergewaltigung, spontan**: 
+**vergewaltigung, spontanes opfer**: der Täter plant die Vergewaltigung nicht für ein spezielles Opfer. sondern er will einfach nur gewaltigen . du läufst z. b. die Straße entlang, du bist einfach zufällig da am falschen Ort zur falschen Zeit, und er wird versuchen dich zu vergewaltigen. es gibt nichts was dich diese Situation vorher erkennen lässt Punkt wenn du Glück hast hast du zuvor ein komisches Bauchgefühl Punkt du läufst zu deinem Auto auf dem Parkplatz  
+
+**vergewaltigumg, geplantes opfer**: der Täter hat die Vergewaltigung speziell für das oder die Opfer geplant. es kann sein, dass du den Täter schon jahrelang kennst und mit ihm befreundet bist oder dass der Täter dass ihr euch gerade erst seit 5 Minuten unterhaltet. dies ist z.B, 
+
+* man ist zusammen etwas trinken geht und es werden k.o-tropfen Tropfen in den Drink geworfen; kann sein dass du den anderen jahrelang kennst, oder dass ihr euch heute Abend zum ersten Mal unterhaltet 
+* es wird im Vorhinein genau observiert, was die Bewegungsmuster sind. ohne dass du es weißt, weißt du über deinen Zeitplan Bescheid und auch an Zeitfenster bestehen in denen eine Chance hat
+* vorbei: es kann ein spontanes Opfer gewählt werden oder ganz speziell eine bestimmte Frau als Opfer dienen
+
+sei wachsam! lass dich nicht von Fremden auf einen Trink einladen, was den trinken nirgendwo stehen. plane dein Nachhauseweg mit Bedacht
+
+## dein bauchgefühl
+
+in deine Bauch ist ein mulmiges Gefühl, und du weißt nicht woher. dieses Gefühl wird von deinem Nervensystem erzeugt, dass vielleicht ein Geruch wahrgenommen hat, irgendwo ein Knacken. dass sie überhaupt nicht bewusst ist. höre auf dieses Bauchgefühl nimm den Schlüssel als Waffe in die Hand habe bereits seit Pfefferspray gezuckt und scanne die Umgebung. du musst nicht zu dem Auto jetzt gehen. du kannst dir auch Hilfe holen und Begleitung.
 
 ## täter
 
