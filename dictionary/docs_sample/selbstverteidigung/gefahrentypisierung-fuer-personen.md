@@ -4,9 +4,13 @@ einer gefahrensituation gehen oft Anzeichen voraus . diese hängen davon ab , in
 
 wichtig: dieses Buch gibt dir hier nur Ideen keine dieser Strategien oder Handlungen geben dir 100% Sicherheit. eine Bedrohungssituation ist immer ein Unikat. und dein Hirn muss in diesem Moment entscheiden, wie du dich da heraus bewegst. es gibt auch Situationen, bei denen eine körperliche Auseinandersetzung unvermeidlich ist, weil der Täter einfach aggressiv ist. handle nach bestem Wissen und Gewissen
 
+# Flucht
+
 ## örtlichkeit
 
 Verbrechen sind nur möglich wenn eine entsprechende Örtlichkeit gegeben ist. durch geschicktes Handeln im Vorfeld kannst du brenzlige Situationen vermeiden. 
+
+# flucht
 
 ## fluchtmöglichkeit
 
@@ -84,6 +88,20 @@ das überall die Angst erwähnt wird Komma ist kein Zufall oft Handeln Menschen 
 * du siehst verdammt schwul aus ich glaube du brauchst einen auf die Fresse"
 * "na du siehst ja nicht so aus als ob du hierher gehörst keiner will dich hier"
 
+## frauen
+
+Frauen sehen sich oft sexualisierte Gewalt ausgesetzt. ziel ist es, dich zu begrapschen, die zwischen die Beine zu greifen, dich zu vergewaltigen. Hintergrund dieser ganzen Geschichte ist, dass es sozial leider so ist, dass manche Männer meinen, man habe Besitzansprüche auf Frauen und auch Anspruch auf Sex. kommunikativ wird Freundlichkeit auch oft mit einem Jahr verwechselt. das heißt du unterhältst dich ganz freundlich mit einer Person und im Nachhinein versucht die die an die Wäsche zu gehen. das ist eine sehr doofe gesellschaftliche Situation.
+
+es gibt grundsätzlich drei Arten von vergewaltigungs-setups
+
+**vergewaltigung, missbrauch von bekannten**: bei weitem die häufigste Gewalt findet in Familien und in Beziehungen statt die Anzeige dafür sind in betroffenen vollkommen klar. der Täter übt verbal und körperlich Gewalt auf umstehende Personen aus, die eigenen Kinder die Partnerin. wird das Bedürfnis nach Sex nicht erfüllt, folgt ein tagelanger Horror-Trip, solange bis die andere Person einknickt. solltest du dich in so einer Situation befinden, gebe ich dir hiermit den Rat, sofort tätig zu werden. bisweilen ist die Beziehung so aggressiv, dass davon ausgesehen werden kann, dass der Partner dich umbringen wird. lasse dies nicht zu. geh zur Polizei, geh ins Frauenhaus. gehe niemals zurück. Wechsel die Stadt 
+
+du hast Kinder und du willst Ihnen eine gute Familie bieten? das können Sie in dieser Konstellation gar nicht lernen. sie brauchen keinen Vater der die Mutter vergewaltigt und der ihn erklärt mit seinen Handlungen dass das vollkommen normal ist . dein Sohn könnte genau dadurch auch ein Vergewaltiger werden, deine Tochter wird wahrscheinlich ein Vergewaltigungsopfer werden.
+
+und es gibt noch einen Grund warum nur zur Polizei gehen solltest. Männer, die Frauen in der Ehe oder in der Beziehung vergewaltigen, probieren das im gesicherten Rahmen aus. wenn Sie erkennen, dass nichts passiert gesellen sie sich  zu eoner der beiden folgenden Tätergruppen:
+
+**vergewaltigung, spontan**: 
+
 ## täter
 
 **motivation**: versetzen wir uns mal in die Lage eines brutalenschlägers, der"Untergebene und" in seiner Gruppe einfach schlägt und auch zu zum verprügeln Dritter anregt. jeder Schlag den ausführt ist ein Schlag der nicht gegen ihn geführt werden kann wenn er zuerst schlägt, kann der andere nicht schlagen. diese Personen sind in der Regel von Angst getrieben und müssen sich ständig versichern, dass sie in der hack-reihenfolge das oberste Glied darstellen. das ist ziemlich stressig, und macht gereizt. für die Umstehenden ist es zudem sehr gefährlich
@@ -92,7 +110,8 @@ das überall die Angst erwähnt wird Komma ist kein Zufall oft Handeln Menschen 
  der Situation dieser Situation lässt sich anhand folgender Parameter 
 
 * wie viele Personen sind anwesend, nur ihr beide, oder er und eine Gruppe oder zwei Gruppen oder du in einer Gruppe und nur er
-* 
 * Täter: wie lässt er sich bearbeiten:? durch geschicktes Verhandeln durch Androhung von Gewalt, durch Erklärung der bereits bestehenden Überlegenheit durch ihn und dass er schon gewonnen hat? durch Anbieten eines Bieres? ist dein Geisteszustand noch vernünftig und man kann mit ihm Dinge besprechen, oder ist er vollkommen verwirrt
+
+## hinweise auf gewaltbereitschaft
 
 
