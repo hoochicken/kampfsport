@@ -72,7 +72,12 @@ das Folgende ist ein ganz typisches und ganz einfaches Aufwärmen, das kannst du
 * laufen / rennen auf der stelle 
 * ausfallschritte, ggf. mit sprüngchen
 * kniebeuge, ggf. mit sprüngchen
-* kicks - front, roundhouse, side, low, kombis, LOCKER!
+* kicks - axe, front, roundhouse, side, low, kombis, LOCKER!, achte auch hier auf deckung ;-)
+* blocks - schienbeinblock, aussen nach innen und umgekehrt
+
+**oberkörper** zum Oberkörper zählt die Rumpfmuskulatur oder auch Wirbel und auch die Arme
+
+* Oberkörper eindrehen. strecke deine Hände aus und falte die die Finger ineinander. drehe nun dein Oberkörper nach links und rechts ein, bitte stehe auf den Knien Komma damit diese nicht seitlich belastet werden
 
 
 
