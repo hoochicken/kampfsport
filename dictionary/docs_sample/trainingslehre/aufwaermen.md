@@ -70,8 +70,13 @@ das Folgende ist ein ganz typisches und ganz einfaches Aufwärmen, das kannst du
 **unterkörper** beginne mit dem Unterkörper durch
 
 * laufen / rennen auf der stelle 
-* ausfallschritte
-* azsfallschritte
+* ausfallschritte, ggf. mit sprüngchen
+* kniebeuge, ggf. mit sprüngchen
+* kicks - front, roundhouse, side, low, kombis, LOCKER!
+
+
+
+ 
 
 
 ## schulung der trainees
