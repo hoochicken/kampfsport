@@ -28,4 +28,31 @@ aktives dehnen als aktives dehnen bezeichnet man ein dehnen, dass du selbst ausf
 
 denen die Muskeln, die auch während des Trainings benötigt werden wenn du z.B Kicks machst, dann sollten auch die Beinmuskulatur gedehnt werden. 
 
-Beispiel jab-punch-Lowkick 
+Beispiel jab-punch-Lowkick hier genügt es die Armmuskulatur und die schulterrotatoren für den. letztere z.B an der Wand oder am Boden. Beine hingegen müssen für denlowkick kaum gedehnt werden, weil nur nach unten gekickt wird
+
+## komplette dehnroutine
+
+diese komplette den Routine sorgt dafür, dass jede muskulaturgruppe einigermaßen gedehnt wird. den Akzent der Dehnung kannst du dann auf den beanspruchten Muskeln entsprechend setzen. damit dann alles gedacht wird, lohnt es sich eine Richtung einzuhalten wie bei den Aufwärmübungen arbeiten wir von unten nach oben
+
+**unterkörper**
+
+* die zehn auf der Matte bewegen runden, keine Bewegung um den großen Zeh 
+* Knöchel Knöchel nach innen und nach außen legen 
+* Knie Kniebeugen machen, dabei die Knie beim ausstrecken tatsächlich durchstrecken wenn möglich. versuchen den Boden zu erreichen. gegebenenfalls in der Hocke anfangen und die Beine strecken und so die Dehnung zu erreichen 
+* Oberschenkel Ausfallschritte zur Dehnung der großen Oberschenkelmuskulatur 
+* Innenschenkel anderthalb schulterbreit stehen und in die große pferdestellung gehen die Knie mit Händen oder Ellenbogen nach außen sehen
+
+wie du siehst wird hier einfach von unten nach oben gearbeitet. so kannst du einfach dein Hirn ausstellen und weil denn du weißt, dass du jedes Gelenk bzw jede Muskelgruppe beachtet hast
+
+**oberkörper**
+
+* Oberkörper mit den ausgestreckten Händen nach links und nach rechts eindrehen, dabei die Knie leicht gebeugt halten
+*  Hände ausstrecken und nach oben greifen 
+* nach links und nach rechts abbeugen
+
+** Schultern und Arme**
+
+* Schultern kreisen Schultern vorwärts und rückwärtskreisen. die Betonung der Bewegung sollte immer auf nach hinten liegen ( dies wird der natürlichen Tendenz der Kampfsportler entgegen, einen runden Buckel zu bekommen 
+* Schultern und Brustmuskulatur: Arme nach hinten aufreißen einmal für die Ellenbogen einmal der komplett ausgestreckte Arm 
+* Schultern Arme kreisen, vorwärts rückwärts, gegen gleich
+* Handgelenke und Finger durch kreisen
