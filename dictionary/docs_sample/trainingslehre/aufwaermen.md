@@ -78,7 +78,14 @@ das Folgende ist ein ganz typisches und ganz einfaches Aufwärmen, das kannst du
 **oberkörper** zum Oberkörper zählt die Rumpfmuskulatur oder auch Wirbel und auch die Arme
 
 * Oberkörper eindrehen. strecke deine Hände aus und falte die die Finger ineinander. drehe nun dein Oberkörper nach links und rechts ein, bitte stehe auf den Knien Komma damit diese nicht seitlich belastet werden
+* crunches
+* Ausweichbewegungen stehen boxstellung Ellenbogen an den Rippen, Spanne dabei deine Muskulatur an
 
+**arme** 
+
+* skippings
+* schläge - führand Schlaghand Haken uppercuts fingerstich Handkanten
+* blöcke - passiv Block
 
 
  
