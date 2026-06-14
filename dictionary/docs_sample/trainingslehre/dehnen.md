@@ -50,9 +50,17 @@ wie du siehst wird hier einfach von unten nach oben gearbeitet. so kannst du ein
 *  Hände ausstrecken und nach oben greifen 
 * nach links und nach rechts abbeugen
 
-** Schultern und Arme**
+**Schultern und Arme**
 
 * Schultern kreisen Schultern vorwärts und rückwärtskreisen. die Betonung der Bewegung sollte immer auf nach hinten liegen ( dies wird der natürlichen Tendenz der Kampfsportler entgegen, einen runden Buckel zu bekommen 
 * Schultern und Brustmuskulatur: Arme nach hinten aufreißen einmal für die Ellenbogen einmal der komplett ausgestreckte Arm 
 * Schultern Arme kreisen, vorwärts rückwärts, gegen gleich
 * Handgelenke und Finger durch kreisen
+
+**hals**
+
+beim Hals bitte vorsichtig Verfahren, da hängt unser Kopf dran und sämtliche Nervenverbindungen gehen durch . hier lieber nicht in den Schmerzbereich dehnen
+
+* nach links und rechts gucken, 
+* nach unten und geradeaus gucken( nicht nach oben schauen, der nach hinten kann man den Kopf nicht dehnen 
+* den Kopf nach unten Kreisen von rechts nach links, so dass das Kinn das muss beim berührt
