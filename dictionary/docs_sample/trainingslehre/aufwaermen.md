@@ -18,6 +18,8 @@ sei smart wärme dich auf.
 
 **"ankommen"**: das Aufwärmen dient auch dazu, vom Alltag auszusteigen und richtig auf der Matte anzukommen. mach dir z.B immer einen kleinen runddauerlauf auf der Matte, so unterhalten sich oft die Trainees miteinander. bringen sich über persönliche Entwicklungen auf den neuesten Stand lass die Leute ruhig ankommen und verwende das Aufwärmen gezielt dazu dass sie sich in die Trainingssituation einfinden und den trainingsfokus aufbauen
 
+beachte, das Aufwärmen mit jedem weiteten lebensjahr wichtiger wird. hast du also ältere in der Gruppe (oder bist selber älter), gib dem Aufwärmen die Zeit die es braucht
+
 ## aufwärm - kaltstart
 
 es gibt zwei einwärmphasen. die erste ist, wenn man gerade erst von der Arbeit kommt und sich noch gar nicht richtig bewegt hat man ist also vollkommen kalt. dann macht man ganz leichte Übungen Joggen leichtes skipping Punkt was man nicht macht sind große Belastungen, sehr schnelle Bewegungen, weil auch dies bereits zur Verletzung führen kann. dieses Einwärmen dieses erste Einwärmen ist also komplett locker
@@ -47,7 +49,7 @@ kombinieren kannst du dies noch z.B mit der Dreier oder Siebener Reihe, so dass 
 
 ## intensiveres aufwärmen nach dem ersten aufwärmen
 
-sobald die Gruppe einigermaßen aufgewärmt ist, das heißt sich fünf bis zehn Minuten bewegt hat, kann man zu intensiverem Einwärmen übergehen. dann kann man langsam mit Springs beginnen oder mit kraftvollen Bewegungen. dann kann man sie sicher und verletzungsfrei ausführen. beachte, das Aufwärmen mit jedem Jahr wichtiger wird. hast du also ältere in der Gruppe (oder bist selber älter), gib dem Aufwärmen mehr Zeit.
+sobald die Gruppe einigermaßen aufgewärmt ist, das heißt sich fünf bis zehn Minuten bewegt hat, kann man zu intensiverem Einwärmen übergehen. dann kann man langsam mit Springs beginnen oder mit kraftvollen Bewegungen. dann kann man sie sicher und verletzungsfrei ausführen. 
 
 **staffellauf** hier bietet sich auch wieder der Staffellauf an, da kann schön gesprintet werden. die wartende Gruppe kann mit leichten Übungen in der Temperatur gehalten werden. die wartenden machen also Hampelmänner Liegestützen planks Kniebeugen oder Ausfallschritte
 
@@ -88,7 +90,6 @@ das Folgende ist ein ganz typisches und ganz einfaches Aufwärmen, das kannst du
 * blöcke - passiv Block
 
 **ganzkörper und koordination**: hier empfiehlt es sich noch eine kleine Runde Schattenboxen anzuschließen. da kann der trainee/du dann genau deine Kombination verwenden, die du möchtest. achte hierbei auf auslagenwechsel und dann bungo
- 
 
 
 ## schulung der trainees
