@@ -30,9 +30,32 @@ aufwärmformen gibt es viele.und hier sind einige Ideen , warst du im Training a
 
 **angepasste kinderspiele in tierform** Kinderspiele sind wunderbar um sich aufzuwärmen. leider haben die erwachsene , die mit ihrer Größe und ihrer Schnelligkeit doch großen Schaden anrichten können. daher empfiehlt es sich, die Spiele z.B auf den Knien zu machen. ein angepasstes Fangspiel das auf den Knien oder mit einer Tierform durchgeführt wird führt in der Regel für keinen Verletzungen. auch Staffelläufe in Tierform
 
+**kombinationen** die Trainings für locker einzelne Kombination Punkt Betonung ist auf locker. gerne verwendet die methodische Übungsreihe zum Aufbau der Kombination, jab, dann jab punch, dann Jab punch lowkick; die Kombination kann als Schattenboxen ausgeführt werden, als Partnerübung (jab punch auf die brust), aufpassen oder Sandsack
 
+**stock** jeder Training bekommt ein Stock, man führt langsam (ohne zu grünen) die Schläge 1 bis 6 aus. danach ist angreiferwechsel. danach eine kleine Mini Einheit wie man diese Schläge blockt. insgesamt sollte diese ministockeinheit 5 Minuten beanspruchen und dient auch das sein werden, also eher wenig Technik sondern nur Fokus auf Bewegung 
 
-## schulung dr trainees
+**skipping** schnelles Laufen auf der Stelle, dazu für Hand und Schlaghand schlagen. auch hier geht es um die Bewegung, weniger um die Technik. natürlich kann man gerne erwähnen, dass man auch seine Reichweite ausnutzen soll
+
+**koordinationsleiter, trippeln** Übungen an der Koordinationsleiter oder anhand einer Linie eignen sich sehr gut zum Aufwärmen. nehmen wir den einfachen Form einer Linie, (sind keine Linien da, lass die Gürtel auf die Boden legen. man bewegt sich entlang dieser Linie indem man sich immer von links nach rechts über die Linie bewegt, wobei man hier bestimmte Schritt- oder sprungvorgaben einhält. z. b. 
+
+* 3 tippelschritte auf der linken Seite, dann auf der rechten Seite und wieder zurück. 
+* beidfüßiges springen immer von links nach rechts und zurück, so dass man sich im Zickzack entlang der Linie bewegt
+
+kombinieren kannst du dies noch z.B mit der Dreier oder Siebener Reihe, so dass sie während jedes Sprungs zählen müssen 7-14-21-28-35-... 
+
+**schwarz-weiss** die Spieler finden sich partnerweise zusammen. sie bilden eine Gasse in der Mitte des Dojos. positioniere die Gasse vom Winkel her so dass wenn die Spieler voneinander weglaufen sie die längste Bahn haben, die in diesem Raum sind. denn es ist ein Fangspiel und man braucht Raum zum weglaufen eine Seite der Gasse ist schwarz, die andere Gasse ist weiß. dadurch hat jedes Paar einen schwarzen und einen weißen Spieler. nun wird ein Befehl hineingerufen, der bestimmt der Gefangene ist und weglaufen muss und wer der Finger ist. 
+
+* 1 heißt die genannte Farbe ist der Fänger 
+* 2 heißt die genannte Farbe wird gefangen 
+
+beispiele
+
+* schwarz eins heißt: schwarzes der Fänger, weiß muss in seine Richtung weglaufen, schwarz muss fahren
+* schwarz zwei heisst schwarz ist der Gefangene und muss weglaufen, weiß muss hinterherlaufen und fangen
+
+Varianten sind, dass z.B alle ungeraden Zahlen für den Finger stehen, alle geraden Zahlen für den Gefangenen. weiß 23 bedeutet also weißes der Fänger. das ganze kann man auch mit Aufgaben kombinieren z.B weiß 27 - 15. dann kommen auch die Rechnung Skills der Training zum Tragen. üblicherweise ist es so, dass am Ende alle unglaublich verwirrt sind, selbst der Trainer nicht mehr weiß welche Regel jetzt gerade gegolten hätte. das ist alles Teil des Spiels ist super lustig und gehört dazu
+
+## schulung der trainees
 
 ein Trainee soll möglichst viel vom Training verstehen. ziel ist es auch, dass du hier gegebenenfalls ein zukünftigen Trainer vor dir stehen hast. das entlastet dich Punkt bist du mal krank, weißt du dass es mehrere Leute gibt in der Gruppe, die diese Aufgabe leichter füllen können. daher sollte es in deinem eigenen Interesse sein deine traineys entsprechend zu schulen. gerade beim Aufwärmen kannst du sehr leicht ein Meter Training daraus machen. 
 
