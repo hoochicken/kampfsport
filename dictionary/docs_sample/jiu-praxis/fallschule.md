@@ -4,4 +4,8 @@ Fahrschule ist das Lernen darüber, wie man auf dem Boden aufkommt, ohne sich zu
 
 im umgangssprachlichen Gebrauch bedeutet "fallen" das angezogen werden von Schwerkraft. ein Steinfeld, weil er eigentlich gefallen wird. 
 
-"fallen" im Jujitsu ist jedoch ein aktiver Vorgang. du kennst sicherlich das Beispiel von der Katze die man irgendwie aus dem Fenster wirft und die sich dann selbst in der Luft so dreht, dass sie verletzungsfrei auf dem Boden aufkommt. dadurch wird fallen zur Fertigkeit. und genau darum kümmert sich die falsche Schule
+"fallen" im Jujitsu ist jedoch ein aktiver Vorgang. du kennst sicherlich das Beispiel von der Katze die man irgendwie aus dem Fenster wirft und die sich dann selbst in der Luft so dreht, dass sie verletzungsfrei auf dem Boden aufkommt. dadurch wird fallen zur Fertigkeit. und genau darum kümmert sich die fallSchule
+
+man unterscheidet zwischen zwei Strategien oder Lösungsansätzen für den verletzungsfreien aufkommen auf dem Boden: Rolle (kraft weiterleiting) und Sturz (kraftabsorbtion)
+
+
