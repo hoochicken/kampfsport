@@ -1,4 +1,4 @@
-# Fallschule
+.# Fallschule
 
 Fallschule ist das Lernen darüber, wie man auf dem Boden aufkommt, ohne sich zu verletzen. lass dich dabei von dem Wort fallen nicht täuschen. 
 
@@ -26,7 +26,18 @@ diese Form der fall/schwerkraftabsorption kommen vor allem in traditionellen Jiu
 
 ## absorbtion
 
-**geschichte**: fall eine sehr gute Freundin, die übermäßig beleidigt und entsprechend schlecht zu Fuß ist, stolperte über eine mini-treppe innerhalb eines Gangs. sie schaffte es nicht einmal die Hände vor die Brust zu schlagen. zum Glück war ihr Bauch so groß, dass dieser sie wie ein enormer Wackelpudding Airbag auffing. daher war sie voll erschrecken, aber unverletzt. da ist mir zum ersten Mal klar geworden dass eine gute Fahrschule für Menschen im Alter Gold wert ist
+die Kunst des Sturzes ist es, mit den Gliedmaßen so viel wie möglich Effe abzufangen. dadurch gerät wenig Energie zum Rumpf des Körpers. dadurch sind die Organe geschützt. zusätzlich wird der Kopf in einer Weise vom Boden weggehalten dass der Schädel den Boden nicht berührt. somit wird eine Gehirnerschütterung oder einem Schädelbasisbruch vorgebeugt
+
+man geht von drei sturzarten aus, die man anhand ihrer Richtung unterscheidet
+
+**sturz seitwärts** zur zeit wird's der Sturz seitwärts ist wohl die wichtigste fallart innerhalb des Kampfsports. er lässt sich bequem fallen
+
+
+
+
+hinweis  der sturz seitwärts ist dem Sturz rückwärts in der regel vorzuziehen. du als fallender kannst  entscheiden ob du rückwärts fällst oder ob du ein Stück Zeit hast
+
+**geschichte**: fall eine sehr gute Freundin, die übermäßig beleibt und entsprechend schlecht zu Fuß ist, stolperte über eine mini-treppe innerhalb eines Gangs. sie schaffte es nicht einmal die Hände vor die Brust zu schlagen. zum Glück war ihr Bauch so groß, dass dieser sie wie ein enormer Wackelpudding Airbag auffing. daher war sie voll erschrecken, aber unverletzt. da ist mir zum ersten Mal klar geworden dass eine gute Fahrschule für Menschen im Alter Gold wert ist
 
 ## fallen im alltag und im alter
 
