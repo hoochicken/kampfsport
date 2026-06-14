@@ -63,3 +63,5 @@ beim Hals bitte vorsichtig Verfahren, da hängt unser Kopf dran und sämtliche N
 * nach links und rechts gucken, 
 * nach unten und geradeaus gucken( nicht nach oben schauen, der nach hinten kann man den Kopf nicht dehnen 
 * den Kopf nach unten Kreisen von rechts nach links, so dass das Kinn das muss beim berührt
+
+**Geschichte** meine Omi hat sich jeden Morgen gedient selbst mit über 70 Jahren noch. das hat mir sehr imponiert, wie sie morgens um 8 Uhr vor der Türe draußen steht und in ihrem Unterhemd die Windmühle schlägt. auch mein Vater und meine Tante haben eine Morgenroutine, Frühgymnastik die das auch genannt wird. vielleicht wäre das ja auch was  für dich
