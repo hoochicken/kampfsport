@@ -18,13 +18,29 @@ sei smart wärme dich auf.
 
 **"ankommen"**: das Aufwärmen dient auch dazu, vom Alltag auszusteigen und richtig auf der Matte anzukommen. mach dir z.B immer einen kleinen runddauerlauf auf der Matte, so unterhalten sich oft die Trainees miteinander. bringen sich über persönliche Entwicklungen auf den neuesten Stand lass die Leute ruhig ankommen und verwende das Aufwärmen gezielt dazu dass sie sich in die Trainingssituation einfinden und den trainingsfokus aufbauen
 
-## aufwärmen mit sinn
+## aufwärm-ideen
 
 aufwärmformen gibt es viele.und hier sind einige Ideen , warst du im Training als Trainer vorgeben kannst oder für dein solotraining voranschieben kannst
 
-tierformen: Tierformen sind sehr beliebt. dabei bewegst du dich wie ein tierford, als Känguru Bär Kamel Frosch Raupe Affe rückwärtslaufenden Gorilla shrimp, nähmaschine ( kein Tier, gehört aber dazu), krokodil, panther. dies sind alles Bewegungsformen am Boden. sie wärmen auch massiv die Rumpfmuskulatur auf und sind auch hoch koordinativ
+**tierformen**: Tierformen sind sehr beliebt. dabei bewegst du dich wie ein tierford, als Känguru Bär Kamel Frosch Raupe Affe rückwärtslaufenden Gorilla shrimp, nähmaschine ( kein Tier, gehört aber dazu), krokodil, panther, sit-out. dies sind alles Bewegungsformen am Boden. sie wärmen auch massiv die Rumpfmuskulatur auf und sind auch hoch koordinativ.
 
-**tierformen auf der stelle** wenn du keinen Platz hast um Tierform zu laufen, macht sie auf der Stelle und ganz langsam. versuche alle Gelenke so nah wie möglich am Boden zu halten, dann werden sie anstrengender
+( die Ente mag ich nicht, die ist blöd für meinen Meniskus. überleg Dir ob Du das machen möchtest)
 
-**
+**tierformen auf der stelle** wenn du keinen Platz hast um Tierform zu laufen, macht sie auf der Stelle und ganz langsam. versuche alle Gelenke so nah wie möglich am Boden zu halten, dann werden sie anstrengender. führe den anstrengenden part einer tierform besonders langsam und besonders kontrolliert aus 
+
+**angepasste kinderspiele in tierform** Kinderspiele sind wunderbar um sich aufzuwärmen. leider haben die erwachsene , die mit ihrer Größe und ihrer Schnelligkeit doch großen Schaden anrichten können. daher empfiehlt es sich, die Spiele z.B auf den Knien zu machen. ein angepasstes Fangspiel das auf den Knien oder mit einer Tierform durchgeführt wird führt in der Regel für keinen Verletzungen. auch Staffelläufe in Tierform
+
+
+
+## schulung dr trainees
+
+ein Trainee soll möglichst viel vom Training verstehen. ziel ist es auch, dass du hier gegebenenfalls ein zukünftigen Trainer vor dir stehen hast. das entlastet dich Punkt bist du mal krank, weißt du dass es mehrere Leute gibt in der Gruppe, die diese Aufgabe leichter füllen können. daher sollte es in deinem eigenen Interesse sein deine traineys entsprechend zu schulen. gerade beim Aufwärmen kannst du sehr leicht ein Meter Training daraus machen. 
+
+Frage einfach die Trainees, warum man das Aufwärmen macht. ob das nicht sinnlos sei, vielleicht hast du ja selber eine kleine Geschichte zum Aufwärmen oder die Trainees Wissen eine 
+
+die vorangehende Übung mit dem Aufwärmen wo man von einem Körperbereich zum nächsten geht, kannst Du auch ganz einfach mit den Trainees machen 
+
+"okay wir machen den Oberkörper warm. du da Komma was welche Übung fällt dir dazu ein?" 
+
+natürlich: lobe die trainies für ihre Beiträge
 
