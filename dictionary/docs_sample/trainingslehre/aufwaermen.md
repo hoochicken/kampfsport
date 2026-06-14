@@ -18,9 +18,11 @@ sei smart wärme dich auf.
 
 **"ankommen"**: das Aufwärmen dient auch dazu, vom Alltag auszusteigen und richtig auf der Matte anzukommen. mach dir z.B immer einen kleinen runddauerlauf auf der Matte, so unterhalten sich oft die Trainees miteinander. bringen sich über persönliche Entwicklungen auf den neuesten Stand lass die Leute ruhig ankommen und verwende das Aufwärmen gezielt dazu dass sie sich in die Trainingssituation einfinden und den trainingsfokus aufbauen
 
-## aufwärm-ideen
+## aufwärm - kaltstart
 
-aufwärmformen gibt es viele.und hier sind einige Ideen , warst du im Training als Trainer vorgeben kannst oder für dein solotraining voranschieben kannst
+es gibt zwei einwärmphasen. die erste ist, wenn man gerade erst von der Arbeit kommt und sich noch gar nicht richtig bewegt hat man ist also vollkommen kalt. dann macht man ganz leichte Übungen Joggen leichtes skipping Punkt was man nicht macht sind große Belastungen, sehr schnelle Bewegungen, weil auch dies bereits zur Verletzung führen kann. dieses Einwärmen dieses erste Einwärmen ist also komplett locker
+
+aufwärmformen gibt es viele. und hier sind einige Ideen , warst du im Training als Trainer vorgeben kannst oder für dein solotraining voranschieben kannst
 
 **tierformen**: Tierformen sind sehr beliebt. dabei bewegst du dich wie ein tierford, als Känguru Bär Kamel Frosch Raupe Affe rückwärtslaufenden Gorilla shrimp, nähmaschine ( kein Tier, gehört aber dazu), krokodil, panther, sit-out. dies sind alles Bewegungsformen am Boden. sie wärmen auch massiv die Rumpfmuskulatur auf und sind auch hoch koordinativ.
 
@@ -43,6 +45,12 @@ aufwärmformen gibt es viele.und hier sind einige Ideen , warst du im Training a
 
 kombinieren kannst du dies noch z.B mit der Dreier oder Siebener Reihe, so dass sie während jedes Sprungs zählen müssen 7-14-21-28-35-... 
 
+## intensiveres aufwärmen nach dem ersten aufwärmen
+
+sobald die Gruppe einigermaßen aufgewärmt ist, das heißt sich fünf bis zehn Minuten bewegt hat, kann man zu intensiverem Einwärmen übergehen. dann kann man langsam mit Springs beginnen oder mit kraftvollen Bewegungen. dann kann man sie sicher und verletzungsfrei ausführen. beachte, das Aufwärmen mit jedem Jahr wichtiger wird. hast du also ältere in der Gruppe (oder bist selber älter), gib dem Aufwärmen mehr Zeit.
+
+**staffellauf** hier bietet sich auch wieder der Staffellauf an, da kann schön gesprintet werden. die wartende Gruppe kann mit leichten Übungen in der Temperatur gehalten werden. die wartenden machen also Hampelmänner Liegestützen planks Kniebeugen oder Ausfallschritte
+
 **schwarz-weiss** die Spieler finden sich partnerweise zusammen. sie bilden eine Gasse in der Mitte des Dojos. positioniere die Gasse vom Winkel her so dass wenn die Spieler voneinander weglaufen sie die längste Bahn haben, die in diesem Raum sind. denn es ist ein Fangspiel und man braucht Raum zum weglaufen eine Seite der Gasse ist schwarz, die andere Gasse ist weiß. dadurch hat jedes Paar einen schwarzen und einen weißen Spieler. nun wird ein Befehl hineingerufen, der bestimmt der Gefangene ist und weglaufen muss und wer der Finger ist. 
 
 * 1 heißt die genannte Farbe ist der Fänger 
@@ -54,6 +62,10 @@ beispiele
 * schwarz zwei heisst schwarz ist der Gefangene und muss weglaufen, weiß muss hinterherlaufen und fangen
 
 Varianten sind, dass z.B alle ungeraden Zahlen für den Finger stehen, alle geraden Zahlen für den Gefangenen. weiß 23 bedeutet also weißes der Fänger. das ganze kann man auch mit Aufgaben kombinieren z.B weiß 27 - 15. dann kommen auch die Rechnung Skills der Training zum Tragen. üblicherweise ist es so, dass am Ende alle unglaublich verwirrt sind, selbst der Trainer nicht mehr weiß welche Regel jetzt gerade gegolten hätte. das ist alles Teil des Spiels ist super lustig und gehört dazu
+
+## gaaanz typisches aufwärmen im Kreis
+
+
 
 ## schulung der trainees
 
