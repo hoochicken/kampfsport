@@ -10,8 +10,6 @@ bei einem Fall gerät der Körper einer Person in im Balance Punkt der Schwerpun
 
 fällt man "ungeschickt", z.B aufs Gesicht, kann dies zu schweren Verletzungen führen wie Jochbeinbruch Kieferbruch oder noch schlimmer zur Verletzungen an der Wirbelsäule.
 
-**geschichte**: fall von christa
-
 man unterscheidet zwischen zwei Strategien oder Lösungsansätzen für den verletzungsfreien aufkommen auf dem Boden: Rolle (kraft weiterleiting) und Sturz (kraftabsorbtion)
 
 ## rollen
@@ -24,7 +22,12 @@ es gibt insgesamt folgende rollen: Vorwärtsrolle Rückwärtsrolle Seitwärtsrol
 
 diese Form der fall/schwerkraftabsorption kommen vor allem in traditionellen Jiu Jitsu zur Anwendung dort gibt es noch viele Techniken, bei der der Partner in eine runde Bewegung überführt wird.
 
+**geschichte**: als mein Bruder jung war, liebt er es mit dem Fahrrad zu fahren. er hatte damals sogar ein Rennrad die waren damals sehr teuer. an einem Tag ist er mit einiger Geschwindigkeit auf eine Art Kreuzung rausgefahren. er war schnell unterwegs. Helme gab es damals noch nicht. auf jeden Fall war er in einer Art und Weise unterwegs, dass er sich nun einfach aussuchen musste auf welches Auto er drauf fährt, weil eine Kollision unvermeidlich war  die Jude Rolle hat ihm das Leben gerettet
+
 ## absorbtion
+
+**geschichte**: fall
+
 
 
 
