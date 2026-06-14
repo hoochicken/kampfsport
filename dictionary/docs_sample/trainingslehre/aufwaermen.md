@@ -65,6 +65,13 @@ Varianten sind, dass z.B alle ungeraden Zahlen für den Finger stehen, alle gera
 
 ## gaaanz typisches aufwärmen im Kreis
 
+das Folgende ist ein ganz typisches und ganz einfaches Aufwärmen, das kannst du gerne auch für dein solotraining nehmen. mache von jeder Übung zehn Wiederholungen und davon drei Sätze
+
+**unterkörper** beginne mit dem Unterkörper durch
+
+* laufen / rennen auf der stelle 
+* ausfallschritte
+* azsfallschritte
 
 
 ## schulung der trainees
