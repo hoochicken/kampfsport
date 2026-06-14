@@ -1,0 +1,9 @@
+# Aufwärmen
+
+das Aufwärmen oder warm up ist ein essentieller Bestandteil einer jeden Trainingseinheit eigentlich passt es gar nicht in die Struktur dieses Buches. ich habe lange überlegt, wo ich dieses Kapitel hin packe, und ob es das überhaupt geben wird warum du dieses Kapitel hier siehst sind die zwei folgenden Geschichten, die ich hier voranstellen möchte 
+
+**Geschichte 1** ich bin ein bisschen über 30 und möchte am 24 Stunden Lauf teilnehmen. es ist eine Art Staffellauf, ich freue mich darauf der ganze Verein ist da und wir laufen einer nach dem anderen Punkt auch ich fange an zu laufen und fange quasi mit einem Sprint an. nach 300 m verspüre ich einen nicht zu ignorierenden Schmerz im Oberschenkel . ich habe einen Muskelfaserriss an dem hatte ich noch ein halbes Jahr Freude haben wir wieder was gelernt es war nur ein Muskelfaserriss, das hat genervt war nicht schlimm, die andere Geschichte ist hässlicher 
+
+**Geschichte 2** ein vereinskamerad, über 30  nimmt an einen Turnier teil. er steht an der Matte voll entspannt da und ich überlege mir hat er sich überhaupt warm gemacht Punkt aber er ist ein Profi so dämlich würde er ja nicht sein. sicherheitshalber frage ich nach. Antwort: "ach ich brauche mich nie warm machen." der Kampf war nach 10 Sekunden vorbei. beim Versuch eine rubber gard zu ziehen hat er sich sein Knie ruiniert. dieses Knie ist kaputt für sein Leben lang oder merkt es jeden Tag 
+
+sei smart wärme dich auf. und hier sind einige Ideen Komma warst du im Training als Trainer vorgeben kannst oder für dein solotraining voranschieben kannst
