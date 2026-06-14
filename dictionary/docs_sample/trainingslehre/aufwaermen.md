@@ -87,7 +87,7 @@ das Folgende ist ein ganz typisches und ganz einfaches Aufwärmen, das kannst du
 * schläge - führand Schlaghand Haken uppercuts fingerstich Handkanten
 * blöcke - passiv Block
 
-
+**ganzkörper und koordination**: hier empfiehlt es sich noch eine kleine Runde Schattenboxen anzuschließen. da kann der trainee/du dann genau deine Kombination verwenden, die du möchtest. achte hierbei auf auslagenwechsel und dann bungo
  
 
 
