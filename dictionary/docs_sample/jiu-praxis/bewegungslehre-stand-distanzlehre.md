@@ -14,10 +14,20 @@ ist nur in der für sie zugedachten Distanz wirkungsvoll einsetzbar.
 
 **beispiel jab**: eine gerade führHand wird nur jemanden wirkungsvoll treffen, der halbDistanz steht. für die ferndistanz ist die Technik zu kurz, der Gegner wird nicht berührt . für die Nahdistanz stimmt der optimale Zielpunkt nicht, der Schlag trifft, entfaltet aber nicht seine volle Wirkung. die Technik wird nicht ihre volle Wirkung entfalten. in der Nahdistanz bleibt die Technik Weg am Körper des Partners irgendwo hängen 
 
-damit du eine Technik, eine Kombination wieder optimalen Wirkung   am Partner ausführen kannst, musst du dich also in die entsprechende Distanz bewegen. und mehr noch: es gibt Technikkombinationen mit Techniken, die unterschiedliche Distanzen erfordern. dann muss innerhalb dieser Kombination ein distanzwechsel erfolgen, der möglichst geschmeidig ausgeführt wird hier. wie man das macht, das erklärt die Bewegungslehre Bewegungslehre
+## Das Dreieck
+
+bevor wir auf die bewegungslehre einen Blick werfen, müssen wir uns die Kampfstellungen noch einmal genauer anschauen
+
+welche Kampfstellungen haben wir denn? es gibt die frontale Kampfstellung die halbzeitliche und die seitliche. je, welche Stellung du gerade in hast, so  
+
+wie man das macht, das erklärt die Bewegungslehre  
+
 
 ## bewegungslehre
 
+damit du eine Technik, eine Kombination wieder optimalen Wirkung   am Partner ausführen kannst, musst du dich also in die entsprechende Distanz bewegen. und mehr noch: es gibt Technikkombinationen mit Techniken, die unterschiedliche Distanzen erfordern. dann muss innerhalb dieser Kombination ein distanzwechsel erfolgen, der möglichst geschmeidig ausgeführt wird hier. 
+
+wie man das macht, das erklärt die Bewegungslehre Bewegungslehre 
 
 
 
