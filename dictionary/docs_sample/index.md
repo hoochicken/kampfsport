@@ -1,5 +1,8 @@
 # Kampfsport - Mareike Riegel
 
+ALLGEMEINRS KAMPFSPORT BUCH
+
+
 > Der 4. und 5. Dan sind die höchsten Graduierungen, die im Ju-Jutsu durch technische Prüfung erreicht werden können.
 > Die Freie Darstellung ist das wichtigste Element dieser Prüfungen. In ihr zeigt der Prüfling seine besondere Reife und
 > sein besonderes Können. Dementsprechend kann eine nicht ausreichende Freie Darstellung nicht im weiteren Verlauf der
