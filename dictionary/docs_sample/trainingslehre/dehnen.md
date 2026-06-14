@@ -5,7 +5,6 @@
 XXXXX jeder Körper verfügt über eine im eigene Beweglichkeit. diese wird bestimmt durch die Art des Gelenkes (Kugelgelenk Scharniergelenk etc) und die Bewegungsweise der Muskulatur. während man Gelenke in ihrer Beweglichkeit eine Verbesserung bewirken 
 
 grundsätzlich unterscheidet man folgende dehnungsarten
-.
 
 **bewegungsarten**
 
@@ -15,7 +14,7 @@ grundsätzlich unterscheidet man folgende dehnungsarten
 
 Hinweis: vor einem Wettkampf oder eine Prüfung empfiehlt sich lockeres dynamisches Dehnen, das heißt Wippen. statisches Dehnen führt dazu dass der Muskel sehr gedehnt wird und im Folgenden langsamer reagiert . da dem Wettkampf und in der Prüfung Schnelligkeit benötigst, ist von dieser dehnungsart abzuraten
 
-statische Sehnen eignet sich wunderbar um die Beweglichkeit der Muskeln insgesamt zu erhöhen. ideal ist es, zweimal am Tag zu denen, z.B morgens nach dem Aufstehen und abends vor dem zu Bett gehen. hintergrund ist die Eigenheit des Muskels, dass er sich nach zwölf Stunden so gut wie regeneriert hat. wenn man erst nach 24 Stunden wieder gehen, hat man quasi wieder Status 0 erreicht so dass das denen nicht seine volle Wirkung entfalten kann. alle 12 Stunden ist also mega cool
+statische dehnen eignet sich wunderbar um die Beweglichkeit der Muskeln insgesamt zu erhöhen. ideal ist es, zweimal am Tag zu denen, z.B morgens nach dem Aufstehen und abends vor dem zu Bett gehen. hintergrund ist die Eigenheit des Muskels, dass er sich nach zwölf Stunden so gut wie regeneriert hat. wenn man erst nach 24 Stunden wieder gehen, hat man quasi wieder Status 0 erreicht so dass das denen nicht seine volle Wirkung entfalten kann. alle 12 Stunden ist also mega cool
 
 weiterhin weiß: während des Dehnens sollten Gelenke nicht belastet sein bzw Schmerzen. wenn du merkst dass eine Dehnübung übermäßig das Knie belastet wandle die Übung so ab, dass das Knie entlastet ist Punkt bei Meniskus dankt es dir
 
