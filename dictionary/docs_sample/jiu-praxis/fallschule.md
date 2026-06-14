@@ -26,10 +26,17 @@ diese Form der fall/schwerkraftabsorption kommen vor allem in traditionellen Jiu
 
 ## absorbtion
 
-**geschichte**: fall
+**geschichte**: fall eine sehr gute Freundin, die übermäßig beleidigt und entsprechend schlecht zu Fuß ist, stolperte über eine mini-treppe innerhalb eines Gangs. sie schaffte es nicht einmal die Hände vor die Brust zu schlagen. zum Glück war ihr Bauch so groß, dass dieser sie wie ein enormer Wackelpudding Airbag auffing. daher war sie voll erschrecken, aber unverletzt. da ist mir zum ersten Mal klar geworden dass eine gute Fahrschule für Menschen im Alter Gold wert ist
+
+## fallen im alltag und im alter
+
+fallen ist auch im Alltag eine wichtige Fertigkeit. ich weiß nicht wie häufig dir das schon passiert ist. vielleicht hast du ja auch ein paar Ereignisse, wo du sehr froh darüber warst, dass das dein Körper weißt wie man fällt bei jedem
 
 
+überlege einmal wie oft in deinem Alltag du mit Fallen konfrontiert gewesen bist wo du gestolpert bist wo du vielleicht ein schweres durz vermeiden konntest durch abrollen. die Fähigkeit zu fallen hilft dir dabei gesund zu bleiben. es ist eines der zentralen Fertigkeiten, die du in einer Kampfsportart lernen kannst. übe sie mit Bedacht, wiederhole so viel wie möglich. Zweifelsfall gibt es dir während einer hochstress-situation die Möglichkeit richtig zu reagieren 
 
+Geschichte: ich war schnell mit dem Fahrrad unterwegs und bin in 90 Grad Winkel mit einem anderen Fahrradfahrer kollidiert. ich weiß nicht was genau passiert ist auf jeden Fall war ich plötzlich mitten in einer Rückwärtsrolle und mein Gedankengang war in etwa das ist jetzt eine schöne Rolle Punkt eigentlich bin ich etwas zu langsam dafür das gefährlich ist die Bordsteinkante hinter mir Punkt aber da ich jetzt noch nicht querschnittsgelähmt bin, besteht hier keine Gefahr. aber wenn ich jetzt nicht mit den Beinen Schwung oder, dann sieht das richtig kacke aus . also hole ich mal Schwung
+das mag der jetzt ein bisschen viel erscheinen für diese kurze Rolle Punkt der Faktor hat es sich angefühlt während der Rolle, als hätte ich 10 Sekunden Zeit. anscheinend Falte das Hirn in diesem Moment die Zeit ein bisschen auf, so dass man wirklich viel Zeit hat währenddessen
 
 
 
