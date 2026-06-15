@@ -61,5 +61,12 @@ nein, das tut rs niczt. vielmehr wird Zeitung der körperlichen Empfindungen üb
 
 Amygdala? Punkt sicherlich kennst du es Komma wenn wir kurz heiß wird, weil der ein Gedanke unangenehm ist oder eine Gefahrensituation auftritt. diese kurze Hitze wird durch die Amygdala verursacht, die springt immer ein, wenn sie irgendwo gefahren wird hat und überschreibt beliebig Cortex Programme
 
+## nach dem Fall
+
+es gibt grundsätzlich zwei Möglichkeiten, wie es nach einem Fall weitergeht. 
+
+* Bodenkampf: die Auseinandersetzung verbleibt am Boden. dann ist es dein Ziel, der dir eine möglichst gute Position zu arbeiten nach dem Fall 
+* technical stand-up: up du versuchst wieder aufzustehen Punkt und damit Rückkehr in den Standkampf
+
 
 
