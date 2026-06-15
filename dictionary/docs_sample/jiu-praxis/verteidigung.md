@@ -25,6 +25,14 @@ Ausweichen nach hinten erreicht man durch
 
 Nachteil ist, dass man dann zumeist ein so großen Abstand hat, dass ein eigener Angriff nicht möglich ist. außerdem wird der Gegner im Kampf nachsetzen Punkt das heißt dann reicht mal wieder aus und es entsteht eine Art rückwärtsflucht.
 
+Hintergrund ist der Komma dass man in diesem Moment in der angriffslinie das Gegners bleibt . der Gegner hat einen Plan der in seiner angriffslinie liegt und den kann er ungehindert weiter verfolgen . dadurch unterstützt man du den Gegner dabei , dass man selbst unter Druck gesetzt wird man kann 
+
+dieses Phänomen auch dafür nutzen dass man den Gegner quasi lockt . sich absichtlich passiv gibt und im richtigen Moment eine Technik ausführt, in der der Gegner in seine Vorwärtsbewegung komplett reinrennt. typisches typisches Beispiel ist ein Roundhouse Kick
+
+## Ausweichbewegungen zur Seite
+
+
+
 meiden
 
 auspendeln
