@@ -101,6 +101,13 @@ doppelblock
 
 helmchen, haare richten
 
+## kombination mit atemi
+
+wenn du eine eine erfolgreich eine Verteidigung durchführst, so ist es großartig gratulation sei jedes Mal froh wenn dir das gelingt. der nächste Schritt ist es, diese Verteidigungen im Voraus zu planen. kombiniere die Verteidigung mit einer anschließenden artemitechnik. z.B
+
+* jab, punch ...
+* 
+
 
 
 
