@@ -31,7 +31,23 @@ dieses Phänomen auch dafür nutzen dass man den Gegner quasi lockt . sich absic
 
 ## Ausweichbewegungen zur Seite
 
+Ausweichbewegung zur Seite sind:
 
+* Gleitschritt mit vorderen Fuß nach außen gegebenenfalls danach Hüfte zum Gegner drehen 
+* übersetzSchritt mit hinterem Fuß nach außen gegebenenfalls danach Hüfte zum Gegner 
+* 90°  Drehung auf vorderen Fuß nach vorne 90°  Drehung nach hinten auf hinteren Fuß 
+* beidseitiges springen nach  nach links oder rechts = "raus hoppeln"
+
+an diese grundlegende Ausweichbewegung können weitere Bewegungen angeschlossen werden, zumeist ein oder zwei. z.B das erneute Ausrichten der eigenen Position, der Kampfstellung in Richtung zum Gegner.
+
+betrachten wir noch kurz, wozu dies führt. der Gegner hat eine Angriffslinie . aus dieser bewegen wir uns hinaus, und behalten dabei eine schlagfähige Distanz ein . das heißt:
+
+du bist danach in der noblen Position, dass du eine oder mehrere Techniken (hatte nie, Wurf) setzen kannst. der Gegner hingegen musste dich erstmal suchen. 
+
+Tipp: erfahrenen Gegnern wird es leicht fallen, dir zu folgen 
+
+* **Kombination von Ausweichbewegungen** kombiniere daher Ausweichbewegungen einfach miteinander . so erreichst du einen größeren Winkel auf die der Gegner nicht sofort eingestellt ist. 
+* **blenden des gegners**:  wenn du mit dafür Hand gleichzeitig blendest, wird der Gegner der nicht sofort folgen können, weil er abgelenkt wird
 
 meiden
 
