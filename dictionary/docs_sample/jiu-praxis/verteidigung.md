@@ -29,7 +29,7 @@ Hintergrund ist der Komma dass man in diesem Moment in der angriffslinie das Geg
 
 dieses Phänomen auch dafür nutzen dass man den Gegner quasi lockt . sich absichtlich passiv gibt und im richtigen Moment eine Technik ausführt, in der der Gegner in seine Vorwärtsbewegung komplett reinrennt. typisches typisches Beispiel ist ein Roundhouse Kick
 
-## Ausweichbewegungen zur Seite
+## Ausweichen zur Seite
 
 Ausweichbewegung zur Seite sind:
 
@@ -49,7 +49,17 @@ Tipp: erfahrenen Gegnern wird es leicht fallen, dir zu folgen
 * **Kombination von Ausweichbewegungen** kombiniere daher Ausweichbewegungen einfach miteinander . so erreichst du einen größeren Winkel auf die der Gegner nicht sofort eingestellt ist. 
 * **blenden des gegners**:  wenn du mit dafür Hand gleichzeitig blendest, wird der Gegner der nicht sofort folgen können, weil er abgelenkt wird
 
-meiden
+**beachte die Ausrichtung der Kampfstellung des Gegners**
+
+weiterhin zu bedenken ist die Tatsache, dass der Gegner selbst eine Kampfstellung hat. das heißt ein Bein steht vorne, die starke Hand ist hinten ein Bein steht vorne, die starke Hand ist hinten.
+
+es bietet sich an in Richtung der Führhand nach außen auszuweichen. dann läufst du dem Gegner in den toten Winkel hinein. mit der führHand wird es ihm schwerer fallen dich zu treffen. 
+
+andersrum formuliert: wenn du in Richtung seiner Schlaghand ausweichst, läufst du in seinen Fokus hinein . er kann Dich dadurch leitet leichter treffen mit Schlaghand und dem hinteren Bein hinein
+
+das Ausweichen in Richtung dafür Hand nach außen ist eine Daumenregel. es kann durchaus sinnvoll sein auch mal in die andere Richtung zu laufen. grundsätzlich solltest du dich dieses Phänomens bewusst sein und es berücksichtigen im Sparring und im Kopf
+
+## meiden
 
 auspendeln
 
