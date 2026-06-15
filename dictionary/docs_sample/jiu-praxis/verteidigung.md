@@ -108,6 +108,19 @@ wenn du eine eine erfolgreich eine Verteidigung durchführst, so ist es großart
 * jab, punch ...
 * 
 
+### Bungo
+
+wenn du ausweichen trainierst und Verteidigung, würde ich dir folgendes empfehlen. trainiere mit Bungo. das heißt 
+
+* stelle dir den Gegner vor 
+* welchen Angriff er genau bringt. 
+* mache dann die passende Abwehr genau für diesen Angriff. 
+* wiederhole dies OFT für denselben Angriff
+
+was dir die Vorstellung erleichtert, dass ein Gegner da ist, ist ein Gegenstand den du z.B auf den Boden legst oder ein Möbelstück. ein Stuhl im Raum repräsentiert den Stand des Gegners. bewege dich um diesen Stuhl herum. 
+
+so hast dein Gehirn ein 3d-Bezugspunkt im raum, den er mit dem Gegner vermerken kann.
+
 
 
 
