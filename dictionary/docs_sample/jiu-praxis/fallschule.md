@@ -51,17 +51,15 @@ hinweis  der sturz seitwärts ist dem Sturz rückwärts in der regel vorzuziehen
 
 fallen ist auch im Alltag eine wichtige Fertigkeit. ich weiß nicht wie häufig dir das schon passiert ist. vielleicht hast du ja auch ein paar Ereignisse, wo du sehr froh darüber warst, dass das dein Körper weißt wie man fällt bei jedem
 
-
 überlege einmal wie oft in deinem Alltag du mit Fallen konfrontiert gewesen bist wo du gestolpert bist wo du vielleicht ein schweres durz vermeiden konntest durch abrollen. die Fähigkeit zu fallen hilft dir dabei gesund zu bleiben. es ist eines der zentralen Fertigkeiten, die du in einer Kampfsportart lernen kannst. übe sie mit Bedacht, wiederhole so viel wie möglich. Zweifelsfall gibt es dir während einer hochstress-situation die Möglichkeit richtig zu reagieren 
 
 **Geschichte**: ich war schnell mit dem Fahrrad unterwegs und bin in 90 Grad Winkel mit einem anderen Fahrradfahrer kollidiert. ich weiß nicht was genau passiert ist auf jeden Fall war ich plötzlich mitten in einer Rückwärtsrolle und mein Gedankengang war in etwa das ist jetzt eine schöne Rolle Punkt eigentlich bin ich etwas zu langsam dafür das gefährlich ist die Bordsteinkante hinter mir Punkt aber da ich jetzt noch nicht querschnittsgelähmt bin, besteht hier keine Gefahr. aber wenn ich jetzt nicht mit den Beinen Schwung oder, dann sieht das richtig kacke aus . also hole ich mal Schwung
-
 
 das mag der jetzt ein bisschen viel erscheinen für diese kurze Rolle . der Faktor hat es sich angefühlt während der Rolle, als hätte ich 10 Sekunden Zeit. anscheinend faltet das Hirn in diesem Moment die Zeit ein bisschen auf, so dass man wirklich viel Zeit hat währenddessen
 
 nein, das tut rs niczt. vielmehr wird Zeitung der körperlichen Empfindungen über die Amygdala geleitet. der Hirnstamm direkt mit den Gliedmaßen und den Empfindungen , die der Körper empfindet. dadurch ist der Cortex von jeglicher Berechnung frei und du hast im Idealfall sehr viel Zeit nachzudenken . das ist so eine Art Überlebensmechanismus im Hirn 
 
-Amygdala? Punkt sicherlich kennst du es Komma wenn wir kurz heiß wird, weil der ein Gedanke unangenehm ist oder eine Gefahrensituation auftritt. diese kurze Hitze wird durch die Amygdala verursacht, die springt immer ein, wenn sie irgendwo gefahren wird hat und überschreibt sämtliche Cortex Programme
+Amygdala? Punkt sicherlich kennst du es Komma wenn wir kurz heiß wird, weil der ein Gedanke unangenehm ist oder eine Gefahrensituation auftritt. diese kurze Hitze wird durch die Amygdala verursacht, die springt immer ein, wenn sie irgendwo gefahren wird hat und überschreibt beliebig Cortex Programme
 
 
 
