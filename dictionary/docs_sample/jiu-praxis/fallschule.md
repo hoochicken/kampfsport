@@ -18,7 +18,11 @@ beim (Ab)rollen bildet man eine Art Rad mit seinem ganzen Körper. schützend wi
 
 bei der Vorwärtsrolle rollt man beispielsweise eher über den Schultergürtel (und nicht über die Wirbelsäule
 
-es gibt insgesamt folgende rollen: Vorwärtsrolle Rückwärtsrolle Seitwärtsrolle
+es gibt insgesamt folgende rollen: 
+
+* Vorwärtsrolle: nachdem man geschubst wurde oder würfen wie reinsballenwurf
+* Rückwärtsrolle: nach schubsenoder gerollzer innensichel
+* Seitwärtsrolle: vor allem aktiv bei gerollter aussensichel oder ausweichbewegung im bodenkampf
 
 diese Form der fall/schwerkraftabsorption kommen vor allem in traditionellen Jiu Jitsu zur Anwendung dort gibt es noch viele Techniken, bei der der Partner in eine runde Bewegung überführt wird.
 
