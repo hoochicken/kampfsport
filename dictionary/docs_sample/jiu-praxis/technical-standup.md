@@ -1,0 +1,3 @@
+# Technical Stand'up
+
+
