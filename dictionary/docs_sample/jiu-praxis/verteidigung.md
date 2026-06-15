@@ -10,7 +10,7 @@ die folgenden Techniken und ich nahen Weise helfen dir dabei, ein optimale Verte
 
 und vielleicht auch, um bei dem Gegner bei möglichst viel für möglichst viel frust zu sorgen:-D die folgenden Verteidigungsmöglichkeiten sitzordnet wieder nach ihrer Distanz von der weites möglichen Distanz bis hin zur größten Nähe
 
-### ausweichende bewegungen
+**ausweichende bewegungen**
 
 ## ausweichen nach hinten 
 
@@ -28,6 +28,14 @@ Nachteil ist, dass man dann zumeist ein so großen Abstand hat, dass ein eigener
 Hintergrund ist der Komma dass man in diesem Moment in der angriffslinie das Gegners bleibt . der Gegner hat einen Plan der in seiner angriffslinie liegt und den kann er ungehindert weiter verfolgen . dadurch unterstützt man du den Gegner dabei , dass man selbst unter Druck gesetzt wird man kann 
 
 dieses Phänomen auch dafür nutzen dass man den Gegner quasi lockt . sich absichtlich passiv gibt und im richtigen Moment eine Technik ausführt, in der der Gegner in seine Vorwärtsbewegung komplett reinrennt. typisches typisches Beispiel ist ein Roundhouse Kick
+
+typisch ist auch folgende Verhaltensweise:
+* du wartet bis der Gegner eine führHand bringt 
+* du mämachst einen beidseitigen Sprung zurück 
+* springe der zurückgezogenen Führhand direkt hinterher und ...
+* bringe einen eigenen Angriff.
+
+dadurch hat man einen sehr schnellen distanzwechsel, weicht dafür Hand aus und kann danach direkt seine eigenen Techniken bringen
 
 ## Ausweichen zur Seite
 
