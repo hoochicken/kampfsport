@@ -8,9 +8,22 @@ verlieren heißt: du bist vielleicht verletzt oder schwer verletzt. und da du ge
 
 die folgenden Techniken und ich nahen Weise helfen dir dabei, ein optimale Verteidigung zu haben, damit du gesund bleibst und dein Lieblingssport ganz ganz lange ausführen kannst. 
 
-und vielleicht auch, um bei dem Gegner bei möglichst viel für möglichst viel frust zu sorgen:-D
+und vielleicht auch, um bei dem Gegner bei möglichst viel für möglichst viel frust zu sorgen:-D die folgenden Verteidigungsmöglichkeiten sitzordnet wieder nach ihrer Distanz von der weites möglichen Distanz bis hin zur größten Nähe
 
 ### ausweichende bewegungen
+
+## ausweichen nach hinten 
+
+nach hinten auszuweichen ist die einfachste und natürliche Art sich vor Gefahr zu schützen. durch Umdrehen ermöglicht sich dann auch die Flucht. 
+
+Ausweichen nach hinten erreicht man durch 
+
+* Gleitschritt nach hinten  
+* Sprung nach hinten 
+* übersetzSchritt nach hinten mit einhergehendem Auslagenwechsel
+* diese Ausweichbewegungen können einfach oder doppelt ausgeführt werden
+
+Nachteil ist, dass man dann zumeist ein so großen Abstand hat, dass ein eigener Angriff nicht möglich ist. außerdem wird der Gegner im Kampf nachsetzen Punkt das heißt dann reicht mal wieder aus und es entsteht eine Art rückwärtsflucht.
 
 meiden
 
