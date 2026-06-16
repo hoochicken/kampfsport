@@ -222,11 +222,7 @@ Oft nimmst du diese Signale unbewusst wahr. Dein Körper reagiert darauf mit ein
 
 ## Dein Bauchgefühl
 
-Manchmal hast du plötzlich ein ungutes Gefühl und weißt nicht genau, warum.
-
-Dieses Bauchgefühl entsteht häufig dadurch, dass dein Nervensystem Dinge wahrnimmt, die deinem Bewusstsein noch gar nicht aufgefallen sind: ein Geruch, eine Bewegung, ein Geräusch oder eine Veränderung der Stimmung.
-
-Höre auf dieses Gefühl.
+Manchmal hast du plötzlich ein ungutes Gefühl und weißt nicht genau, warum. Dieses Bauchgefühl entsteht häufig dadurch, dass dein Nervensystem Dinge wahrnimmt, die deinem Bewusstsein noch gar nicht aufgefallen sind: ein Geruch, eine Bewegung, ein Geräusch oder eine Veränderung der Stimmung. Höre auf dieses Gefühl.
 
 Es muss nicht bedeuten, dass tatsächlich Gefahr besteht. Es bedeutet aber, dass du aufmerksam werden solltest.
 
@@ -235,10 +231,6 @@ Scanne die Umgebung. Überlege dir Fluchtwege. Suche gegebenenfalls die Nähe an
 Du musst nicht sofort zu deinem Auto gehen. Du kannst auch warten, Begleitung organisieren oder einen anderen Weg wählen.
 
 Dein Bauchgefühl ist nicht unfehlbar. Oft ist es jedoch ein wertvolles Frühwarnsystem.
-
-**Geschichte**: Ein Freund geriet in einer Stadtbahn mit einem jungen Mann in Streit. An seiner Haltestelle stieg er aus. Er war der Meinung, die Situation sei damit beendet. Der andere Mann wartete lediglich auf eine Gelegenheit. Auf der Treppe wurde mein Freund von hinten gestoßen und stürzte schwer. Das Ergebnis war ein zertrümmertes Knie.
-
-Die wichtigste Lehre daraus: Eine Situation ist nicht vorbei, nur weil niemand mehr spricht. Bleibe wachsam. Eine gefährliche Situation ist oft erst dann wirklich beendet, wenn du sicher zu Hause angekommen bist.
 
 ## Kinder
 

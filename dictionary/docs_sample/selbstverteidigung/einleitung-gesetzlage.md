@@ -61,42 +61,30 @@ Keine dieser Reaktionen ist grundsätzlich richtig oder falsch. Sie dienen alle 
 
 > Überleben.
 
-### Freeze / Erstarrung
-
-Eine Gefahr wurde erkannt. Möglicherweise hat die Gefahr dich jedoch noch nicht bemerkt. Der Körper schaltet deshalb in eine Art Starre. Bewegung wird minimiert, die Aufmerksamkeit erhöht sich. Diese Reaktion kann dazu beitragen, nicht entdeckt zu werden.
+**Freeze / Erstarrung**: Eine Gefahr wurde erkannt. Möglicherweise hat die Gefahr dich jedoch noch nicht bemerkt. Der Körper schaltet deshalb in eine Art Starre. Bewegung wird minimiert, die Aufmerksamkeit erhöht sich. Diese Reaktion kann dazu beitragen, nicht entdeckt zu werden.
 
 Stell dir eine Höhle vor, in die ein Säbelzahntiger hineinspaziert. Ein Kind versteckt sich regungslos hinter einem Stein und hofft, übersehen zu werden.
 
 Auch heute reagieren Menschen in gefährlichen Situationen manchmal mit Erstarrung. Das ist kein Versagen, sondern ein uralter Schutzmechanismus.
 
-### Flight / Flucht
-
-Flucht ist eine weitere Möglichkeit, einer Gefahr zu begegnen. Das Ziel ist einfach:
+**Flight / Flucht**: Flucht ist eine weitere Möglichkeit, einer Gefahr zu begegnen. Das Ziel ist einfach:
 
 > Abstand zwischen sich und die Gefahr bringen.
 
 Die deutsche Sprache kennt viele Redewendungen dafür: Die Beine in die Hand nehmen. Hals über Kopf flüchten. Das Hasenpanier ergreifen. Allein die Vielzahl dieser Ausdrücke zeigt, wie wichtig Flucht für das menschliche Überleben ist.
 
-### Fight / Kampf
-
-Der Kampf ist die direkte Auseinandersetzung mit einer Gefahr. Dabei versucht man, die Bedrohung aktiv zu stoppen oder zurückzudrängen.
+**Fight / Kampf**: Der Kampf ist die direkte Auseinandersetzung mit einer Gefahr. Dabei versucht man, die Bedrohung aktiv zu stoppen oder zurückzudrängen.
 
 Einflussfaktoren sind unter anderem: Kraft, Gewicht, Beweglichkeit, Waffen, Erfahrung, Kampffertigkeit. Einige dieser Faktoren lassen sich trainieren, andere nur begrenzt.
 
-### Fawn / Anschmiegen
-
-Fawn bedeutet, sich so zu verhalten, dass die Gefahr keinen Grund mehr sieht anzugreifen. Dabei versucht die betroffene Person, dem Angreifer zu gefallen, Konflikte zu vermeiden oder dessen Wünsche zu erfüllen. Diese Strategie findet man besonders häufig in langfristigen Gewalt- oder Missbrauchssituationen.
+**Fawn / Anschmiegen**: Fawn bedeutet, sich so zu verhalten, dass die Gefahr keinen Grund mehr sieht anzugreifen. Dabei versucht die betroffene Person, dem Angreifer zu gefallen, Konflikte zu vermeiden oder dessen Wünsche zu erfüllen. Diese Strategie findet man besonders häufig in langfristigen Gewalt- oder Missbrauchssituationen.
 
 Ein Kind, das in einer gewalttätigen Familie aufwächst, entwickelt möglicherweise ein sehr angepasstes Verhalten. Es bemüht sich ständig, alles richtig zu machen, keine Fehler zu begehen und die Erwartungen der Eltern zu erfüllen. Von außen wirkt ein solches Kind oft besonders brav, höflich oder leistungsstark. Der Grund kann jedoch Angst sein.
 
 Deshalb sollte man vorsichtig sein, aus guten Noten oder angepasstem Verhalten auf eine gesunde Familiensituation zu schließen. Auch Fawn ist letztlich ein Überlebensmechanismus.
 
-## Hinweis
-
-Viele Menschen glauben, sie würden in einer Gefahrensituation automatisch kämpfen. Die Realität sieht oft anders aus. Je nach Situation kann dein Körper erstarren, flüchten, kämpfen oder sich anschmiegen.
+**Hinweis**: Viele Menschen glauben, sie würden in einer Gefahrensituation automatisch kämpfen. Die Realität sieht oft anders aus. Je nach Situation kann dein Körper erstarren, flüchten, kämpfen oder sich anschmiegen.
 
 All diese Reaktionen sind normale biologische Programme. Sie machen dich nicht schwach. Sie machen dich menschlich.
 
-## Merkspruch
-
-"Dein Körper will nicht gewinnen. Dein Körper will überleben."
+FYI: "Dein Körper will nicht gewinnen. Dein Körper will überleben."

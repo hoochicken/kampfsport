@@ -89,6 +89,10 @@ Dafür habe ich kein Skript. Die Situation ist eh schon total kaputt. Erlaubt is
 * "Ich fand das so geil, keiner hat es so gebracht wie du, lass uns nochmal treffen, ich gebe Dir meine Telefonnummer."
 * "Danke, das habe ich gebraucht. Wo trainierst du."
 
+Nachdem du lebend aus der Situation herausgekommen bist, ist Dein nächstes Ziel die Polizeidienststelle oder Krankenhaus. Es geht um Beweisaufnahme und Zeugenaussage. Versuche deine Gefühle (die wahrscheinlich vollkommen chaotisch sind) zu ignorieren. Halte durch!
+
+Sage Dir: "Heulen kann ich später, jetzt erst Krankenhaus." XXXXX <= RECHERCHE
+
 ## 7. Sicherheit
 
 Nach der Tat ist vor der Tat. Du bist erst sicher, wenn die Tür deiner Wohnung hinter dir ins Schloss fällt (meist). Dies erreichst du durch folgende Handlungen:
@@ -98,8 +102,6 @@ Nach der Tat ist vor der Tat. Du bist erst sicher, wenn die Tür deiner Wohnung 
     * blicke immer wieder über die Schulter, checke, ob er dich verfolgt
 * **Helfen lassen**: sprich Helfer an: Entschuldigen Sie bitte, dieser Mann belästigt mich und ich habe Angst. Können Sie mich bitte zu XYZ begleiten?"
 
-## Eine Geschichte
-
-Ein Freund von mir, volltrunken, hat mit einem jungen, mutmasslich respektlosen Kerl einen Streit vom Zaun gebrochen, in der Stadtbahn. An seiner Haltestelle steigt er aus ... und wird herb die Treppe heruntergschuckt. Folge: Knie zertrümmert!
+**Geschichte**: Ein Freund von mir, volltrunken, hat mit einem jungen, mutmasslich respektlosen Kerl einen Streit vom Zaun gebrochen, in der Stadtbahn. An seiner Haltestelle steigt er aus ... und wird herb die Treppe heruntergschuckt. Folge: Knie zertrümmert!
 
 Er dachte, die Situation ist vorbei. Der Angreifer hat nur auf eine Chance gewartet. bleibe wachsam. die Situation ist erst vorbei, wenn du sicher zu Hause bist
