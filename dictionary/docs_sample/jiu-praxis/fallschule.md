@@ -28,10 +28,6 @@ diese Form der fall/schwerkraftabsorption kommen vor allem in traditionellen Jiu
 
 **geschichte**: als mein Bruder jung war, liebt er es mit dem Fahrrad zu fahren. er hatte damals sogar ein Rennrad die waren damals sehr teuer. an einem Tag ist er mit einiger Geschwindigkeit auf eine Art Kreuzung rausgefahren. er war schnell unterwegs. Helme gab es damals noch nicht. auf jeden Fall war er in einer Art und Weise unterwegs, dass er sich nun einfach aussuchen musste auf welches Auto er drauf fährt, weil eine Kollision unvermeidlich war  die Jude Rolle hat ihm das Leben gerettet
 
-## abrollen lernen
-
-
-
 ## absorbtion - sturz
 
 die Kunst des Sturzes ist es, mit den Gliedmaßen so viel wie möglich Effe abzufangen. dadurch gerät wenig Energie zum Rumpf des Körpers. dadurch sind die Organe geschützt. zusätzlich wird der Kopf in einer Weise vom Boden weggehalten dass der Schädel den Boden nicht berührt. somit wird eine Gehirnerschütterung oder einem Schädelbasisbruch vorgebeugt
@@ -65,12 +61,27 @@ nein, das tut rs niczt. vielmehr wird Zeitung der körperlichen Empfindungen üb
 
 Amygdala? Punkt sicherlich kennst du es Komma wenn wir kurz heiß wird, weil der ein Gedanke unangenehm ist oder eine Gefahrensituation auftritt. diese kurze Hitze wird durch die Amygdala verursacht, die springt immer ein, wenn sie irgendwo gefahren wird hat und überschreibt beliebig Cortex Programme
 
+## abrollen und stürzen lernen
+
+die Krafteinwirkung beim Fallen ist immens. der Körper bewegt sich zum Boden aufgrund der Schwerkraft. je schwerer eine Person ist, desto höher die Verletzungsgefahr weil die Krafteinwirkung proportional ansteigt. 
+
+zum erlernen ist es praktisch die Fallhöhe möglichst gering zu halten. das heißt man beginnt mit dem fallen auf den Knien oder sogar auf dem Hinterteil auf dem Hinterteil
+
+folgende Reihenfolge des Erlernens empfiehlt sich als eingangsdrill für anfänger
+
+* sturz seitwärts: auf Hintern sitzen am boden, beine bosschen angezogen: seitswärze fallen mit abklopfen
+* rolle rückwärts: auf Hintern situen, nachhinten rollen, über schulter rollen, auf den Knien landen, mehrmals wiedeholen
+* rolle vorwärts: nach rolle vorwärts auf gleichem wege zurück, der Körper kennt dann quasi das begwegungsmuster schon
+
 ## nach dem Fall
 
 es gibt grundsätzlich zwei Möglichkeiten, wie es nach einem Fall weitergeht. 
 
+* ggf. Kick oder anderer Atemi am Boden
 * Bodenkampf: die Auseinandersetzung verbleibt am Boden. dann ist es dein Ziel, der dir eine möglichst gute Position zu arbeiten nach dem Fall 
 * technical stand-up: up du versuchst wieder aufzustehen Punkt und damit Rückkehr in den Standkampf
+
+PS: ich dachte dieses Kapitel wird ein kleines Kapitel
 
 
 
