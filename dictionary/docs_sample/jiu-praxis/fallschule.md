@@ -60,6 +60,28 @@ letztere Variante sieht man häufig, und die Leute kommen komplett mit dem Schul
 
 **geschichte**: fall eine sehr gute Freundin, die übermäßig beleibt und entsprechend schlecht zu Fuß ist, stolperte über eine mini-treppe innerhalb eines Gangs. sie schaffte es nicht einmal die Hände vor die Brust zu schlagen. zum Glück war ihr Bauch so groß, dass dieser sie wie ein enormer Wackelpudding Airbag auffing. daher war sie voll erschrecken, aber unverletzt. da ist mir zum ersten Mal klar geworden dass eine gute Fahrschule für Menschen im Alter Gold wert ist
 
+## gegenstände und fallen
+
+mit Gegenständen zu fallen, kann man das zweierlei sich betrachten. zum einen geht es z.B um Waffen und waffenaufnahme, zum anderen um Kleidungsstücke oder Ausrüstungsgegenstände
+
+** Fall mit Waffen**
+
+fallen mit Waffen kann man einfach mal langsam beginnen Punkt z.B mit einem Stock. wichtig ist, das spitze oder scharfe Enden von Waffen immer vom Körper weg zeigen müssen. wie man also Rollen, so hält man den Stock quer vor sich und nicht mit der Spitze zum Bauch dann kann man darüber langsam rollen.
+
+als nächstes kann man mit dem Stock rollen und auf dem Boden ablegen Punkt hierbei ist wichtig, dass man den Stock hinter sich ablegt, damit man nicht drüber rollt Punkt und das ist sehr schmerzhaft gefährlich sein). möglichst schnell zur Körpermitte führen, damit man damit der Stock nicht so herumschlenkert und ein eventuell verletzt
+
+**fallen mit austrüstungsgegenständen - vorsicht!**
+
+**fahrradhelm** wer heutzutage mit dem Fahrrad unterwegs ist, der hat in der Regel ein Helm an. der Helm verändert den Umfang des Kopfes und damit auch die Hebelwirkung. Rollen mit dem Helm will gelernt sein. es empfiehlt sich, gerade als Fahrradfahrer, ganz langsam mit dem hell Rollen mit Helm zu beginnen Rollen mit dem Helm will gelernt sein. 
+
+es empfiehlt sich, gerade als Fahrradfahrer, ganz langsam mit dem hell Rollen mit Helm zu beginnen. grundsätzlich hat der Helm einiges an Breite. dadurch wird der Schädel dicker und wenn man darüber rollt wird der Hals mehr nach vorne gebeugt. das kann sehr gefährlich sein. 
+
+daher taste dich langsam ran, damit du im Ernstfall einigermaßen verletzungsfrei rollen kannst.
+
+**Rucksack** der Rucksack ist ein weiterer spannender Ausrüstungsgegenstand. darin möchte man damit doch rollen, so dürfen darin keine harten oder gefährlichen Gegenstände fliegen. ich glaube das ist einfach scheiße. 
+
+dieses Kapitel ist im übrigen inspiriert von einemeinem amerikanischen Marina Soldaten. sie bekam er bekam das Rollen beigebracht und viele andere Techniken auch später im Einsatz, dass die Techniken haben mit der Ausrüstung gar nicht auszuführen sind. ein Rollen mit dem Rucksack und den Kampfhund Tour und mit Waffe: unmöglich Punkt und dann noch der schweren drauf Punkt überlege, was denn Alltag für Ausrüstungsgegenstände dabei hast und an Kleidung trägst, die verändert sich dann rollen dann
+
 ## fallen im alltag und im alter
 
 fallen ist auch im Alltag eine wichtige Fertigkeit. ich weiß nicht wie häufig dir das schon passiert ist. vielleicht hast du ja auch ein paar Ereignisse, wo du sehr froh darüber warst, dass das dein Körper weißt wie man fällt bei jedem
