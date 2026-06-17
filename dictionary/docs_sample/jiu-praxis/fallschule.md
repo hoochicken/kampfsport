@@ -42,6 +42,8 @@ vom Winkel her sollte das Abschlagen im 45° Winkel erfolgen. das ist für das G
 
 **knöchel** besonders beim Sturz seitwärts beachte (und erkläre als Trainer auch) die Beinstellung. die Knöchel sollten nicht aufeinander schlagen, das tut weh. das Bein auf der Seite Komma auf die gefallen wird, ist leicht angewinkelt, das andere etwas angebeugt stehend
 
+**geschichte**: ein befreundeter Trainer hatte mit etwa 40 Jahren eine OP in der Schulter. sie haben ihn ein Streichholz Großes Gewächs aus der Schulter geholt Punkt eine Spätfolge von seiner Wettkampf Tätigkeit. beim Training und im Wettkampf natürlich wurde auch abklatschen verzichtet, damit man schneller zum Bodenkampf übergehen kann. das ist toll, wenn man dann gewinnt, mit 40 kriegt man dann die Quittung. es ist deine Wahl, was du mal deinem Körper machst. bedenke, dass du ihn mehr als 30 Jahre brauchst entsprechend auf Gelenke aufpassen solltest
+
 **sturzarten**
 
 man geht von drei sturzarten aus, die man anhand ihrer Richtung unterscheidet
@@ -87,6 +89,7 @@ folgende Reihenfolge des Erlernens empfiehlt sich als eingangsdrill für anfäng
 für fortgeschrittene
 
 * rollen aus dem stand heraus
+* freier fall <= da ist das abklatschen massiv wichtig!
 
 ## nach dem Fall
 
