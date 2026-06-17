@@ -1,4 +1,4 @@
-.# Fallschule
+# Fallschule
 
 Fallschule ist das Lernen darüber, wie man auf dem Boden aufkommt, ohne sich zu verletzen. lass dich dabei von dem Wort fallen nicht täuschen. 
 
@@ -32,18 +32,29 @@ diese Form der fall/schwerkraftabsorption kommen vor allem in traditionellen Jiu
 
 die Kunst des Sturzes ist es, mit den Gliedmaßen so viel wie möglich Effe abzufangen. dadurch gerät wenig Energie zum Rumpf des Körpers. dadurch sind die Organe geschützt. zusätzlich wird der Kopf in einer Weise vom Boden weggehalten dass der Schädel den Boden nicht berührt. somit wird eine Gehirnerschütterung oder einem Schädelbasisbruch vorgebeugt
 
+**abklatschen** 
+
+wenn man bei einem Sturz auf dem Boden aufkommt so wirken auch auf die Organe große Kräfte. die Organe können aneinander schlagen, eine Rippe kann berechnen, es ist einfach ziemlich unangenehm. deshalb gibt es das abklatschen. bevor der Rumpf auf dem Boden aufkommt, führt man den Arm oder die Hand zum Boden und schlägt auf den Boden. dies nimm einiges an Kraft weg. und diese Kraft geht dann nicht in den Körper um Schaden zu verursachen. das abklatschen kann auch laut sein, das macht nichts. es schützt dich. 
+
+in der Regel schlägt man mit dem Unterarm ab. Ausnahme: sturzvorwärts dort schlägt man mit der Handfläche ab, und das Schultergelenk gesund zu halten s. u.
+
+vom Winkel her sollte das Abschlagen im 45° Winkel erfolgen. das ist für das Gelenk am angenehmsten Punkt vermeide ein 90 Grad Winkel, die Belastung für das Schultergelenk ist da ziemlich hoch
+
+**knöchel** besonders beim Sturz seitwärts beachte (und erkläre als Trainer auch) die Beinstellung. die Knöchel sollten nicht aufeinander schlagen, das tut weh. das Bein auf der Seite Komma auf die gefallen wird, ist leicht angewinkelt, das andere etwas angebeugt stehend
+
+**sturzarten**
+
 man geht von drei sturzarten aus, die man anhand ihrer Richtung unterscheidet
 
 **sturz seitwärts** zur zeit wird's der Sturz seitwärts ist wohl die wichtigste fallart innerhalb des Kampfsports. er lässt sich bequem fallen
 
+hinweis  der sturz seitwärts ist dem Sturz rückwärts in der regel vorzuziehen. du als fallender kannst  **entscheiden ob du rückwärts** fällst oder ob du eunen Stück seitwärts machst
 
+**sturz rückwärts** hier sind zwei Formen zu unterscheiden: angerollter Sturz( Beine einknicken und hintern recht nah zum Boden bringen, dann abschlagen) und der Sturz auf den Schultergürtel( ins Hohlkreuz gehen und mit den Unterarmen zuerst hinter sich aufkommen)
 
+letztere Variante sieht man häufig, und die Leute kommen komplett mit dem Schultergürtel auf. finde ich kritisch, weil weil dann viel Kraft auf den Kopf übertragen wird ( auf mit dem Hirn drin). hier würde ich wirklich darauf achten dass die Unterarme zuerst aufkommen und nicht komplett die Schulter
 
-hinweis  der sturz seitwärts ist dem Sturz rückwärts in der regel vorzuziehen. du als fallender kannst  entscheiden ob du rückwärts fällst oder ob du ein Stück Zeit hast
-
-**sturz rückwärts**
-
-**sturz vorwärts**
+**sturz vorwärts** der Sturz vorwärts verhindert üble Verletzungen im Gesicht. man landet in einer Art plank-position. der Hintern sollte dabei aber relativ hoch gehalten werden, die Beine ein bisschen auseinander. damit verringert man die Hebelwirkung. wenn man gestreckt aufkommt, ist die Kraft die auf den Rücken wirkt immens. durch Verkürzung der Distanz zwischen den Standpunkten ( Arme und Beine) verringern wir die Hebelwirkung. dem dafür bewusst den Hintern nach oben und Beine ein bisschen auseinander dadurch entsteht auch kein schädliches Hohlkreuz der Sturz vorwärts ist der einzige Sturz bei dem die Handfläche zwingend vor dem Unterarm abklatschen sollte. dadurch wird bereits beim abklatschen mit der Handfläche und der Anspannung in den Armen Kraft vom Sturz weggenommen. oder andersrum formuliert wenn du sofort mit dem Unterarm aufkommst wird eine Verbindung geschaffen zwischen Ellenbogen und Schultergelenk. dies mit dem ganzen Gewicht belastet, wird früher oder später dein Schultergelenk sehr belasten. und auch Asphalt wollen wir das ganze erst recht nicht ausführen.
 
 **geschichte**: fall eine sehr gute Freundin, die übermäßig beleibt und entsprechend schlecht zu Fuß ist, stolperte über eine mini-treppe innerhalb eines Gangs. sie schaffte es nicht einmal die Hände vor die Brust zu schlagen. zum Glück war ihr Bauch so groß, dass dieser sie wie ein enormer Wackelpudding Airbag auffing. daher war sie voll erschrecken, aber unverletzt. da ist mir zum ersten Mal klar geworden dass eine gute Fahrschule für Menschen im Alter Gold wert ist
 
@@ -70,8 +81,12 @@ zum erlernen ist es praktisch die Fallhöhe möglichst gering zu halten. das hei
 folgende Reihenfolge des Erlernens empfiehlt sich als eingangsdrill für anfänger
 
 * sturz seitwärts: auf Hintern sitzen am boden, beine bosschen angezogen: seitswärze fallen mit abklopfen
-* rolle rückwärts: auf Hintern situen, nachhinten rollen, über schulter rollen, auf den Knien landen, mehrmals wiedeholen
+* rolle rückwärts: auf Hintern situen, nachhinten rollen, über schulter rollen, auf den Knien landen, mehrmals wiederholen, tipp: arm, über den gerollt wird, gestreckt auf dem Boden ablegem, handfläche nach oben
 * rolle vorwärts: nach rolle vorwärts auf gleichem wege zurück, der Körper kennt dann quasi das begwegungsmuster schon
+
+für fortgeschrittene
+
+* rollen aus dem stand heraus
 
 ## nach dem Fall
 
