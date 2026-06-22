@@ -1,4 +1,4 @@
-q# Verteidigung
+# Verteidigung
 
 was ist wichtiger als Gewinnen? die Antwort ist klar: nicht verlieren.
 
@@ -83,11 +83,11 @@ führe diese Bewegung schnell und locker aus. dabei darauf, dass deine Deckung i
 
 ## auspendeln
 
-oder isz fad meiden XXXXX? ggf meoden überbegriff
+
 
 ## ducken, slipline
 
-beim ducken, drückt man sich gerade ab Punkt dabei werden die beine kurz eingeknickt danach schießt man wieder nach oben. es findet keine seitliche Bewegung statt. dadurch vermeidet man den Schlag, der einen genau an diesem Punkt treffen würde und taucht hinter dem Schlag wieder auf
+beim ducken, drückt man sich gerade ab . dabei werden die beine kurz eingeknickt danach schießt man wieder nach oben. es findet keine seitliche Bewegung statt. dadurch vermeidet man den Schlag, der einen genau an diesem Punkt treffen würde und taucht hinter dem Schlag wieder auf
 
 ## tauchen
 
@@ -101,7 +101,7 @@ dies ist eine sehr effektive Art der Bewegung, denn die Eckigkeit irritiert den 
 
 ## springen
 
-schritt nach hinten
+## schritt nach hinten
 
 schritt zur seite
 
