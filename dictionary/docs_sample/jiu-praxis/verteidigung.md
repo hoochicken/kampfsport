@@ -83,15 +83,23 @@ führe diese Bewegung schnell und locker aus. dabei darauf, dass deine Deckung i
 
 ## auspendeln
 
-oder isz fad meiden XXXXX?
+oder isz fad meiden XXXXX? ggf meoden überbegriff
 
-ducken, slipline
+## ducken, slipline
 
-tauchen
+beim ducken, drückt man sich gerade ab Punkt dabei werden die beine kurz eingeknickt danach schießt man wieder nach oben. es findet keine seitliche Bewegung statt. dadurch vermeidet man den Schlag, der einen genau an diesem Punkt treffen würde und taucht hinter dem Schlag wieder auf
 
-dreieckstauchen
+## tauchen
 
-springen
+man taucht unter dem Schlag durch mit einer u-bewegung, als einer seitlichen Bewegung Punkt zuerst geht man nach unten während der Schlag über einen hinweg fährt, gegen den Schlag und taucht auf der anderen Seite des Schlages wieder auf. diese Verteidigung wird gegen Haken eingesetzt. wie alle anderen verteidigungsbewegungen eignet sie sich aber auch einfach zum beschäftigen des Gegners und zum erschweren dessen Angriffs
+
+## dreieckstauchen
+
+das dreieckstauchen ist eine Variante des tauchen. statt eine Runde UBE wegen zu machen, wird daraus eine eher eckige Bewegung nach schräg links unten dann bewegt man sich nach rechts und geht wieder schräg Links nach oben
+
+dies ist eine sehr effektive Art der Bewegung, denn die Eckigkeit irritiert den Gegner zusätzlich Punkt es ist keine schöne biologische Bewegung, sondern eine mathematische. unbedingt als Variante zu empfehlen
+
+## springen
 
 schritt nach hinten
 
@@ -99,9 +107,11 @@ schritt zur seite
 
 drehungen
 
-### stopp-techniken
+**stopp-techniken**
 
-stoppfussstoss
+## stoppfussstoss
+
+XXXXX
 
 ### blöcke und fegen
 
