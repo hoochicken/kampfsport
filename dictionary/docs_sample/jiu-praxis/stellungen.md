@@ -10,8 +10,7 @@ Die Gewichtsverteilung variiert je nach Situation.
 Die Füße stehen etwa schulterbreit auseinander. Das Bein der dominanten Hand steht hinten. (Als Rechtshänder nimmst du also das rechte Bein nach hinten.) Der Oberkörper steht fast frontal zum Gegner.
 Hände schützen Kopf und Oberkörper.
 
-Die frontale Stellung ermöglicht schnelle und direkte Angriffe nach vorne.
-Durch die frontale Körperausrichtung können beide Seiten gleichermassen eingesetzt werden.
+Die frontale Stellung ermöglicht schnelle und direkte Angriffe nach vorne. Durch die frontale Körperausrichtung können Gliedmaßen beider Seiten gleichermassen eingesetzt werden.
 Besonders geeignet sind: Frontkicks, Gerade Fauststöße, Aufwärtshaken.
 
 Die frontale Kampfstellung präsentiert eine große Trefferfläche. Brust und Bauch sind leichter angreifbar als in seitlichen Positionen.
@@ -53,6 +52,8 @@ Das Bein der dominanten Hand steht hinten. Die Schrittstellung ist weit, das Gew
 Die weite Stellung ermöglicht starke Kraftübertragung nach vorne. Besonders geeignet sind: Frontkicks, Gerade Fauststöße und Aufwärtshaken.
 
 ### Kiba Dachi
+
+der Kiba Dachi heißt auch große pferdestellung
 
 Die Beine stehen etwa anderthalb Schulterbreit auseinander. Die Hüfte bleibt tief, die Knie sind stark gebeugt. Der Blick zeigt nach vorne. Die Stellung wird auch grosse Pferdestellung genannt.
 
