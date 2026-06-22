@@ -1,4 +1,4 @@
-# Verteidigung
+q# Verteidigung
 
 was ist wichtiger als Gewinnen? die Antwort ist klar: nicht verlieren.
 
@@ -79,9 +79,11 @@ das Ausweichen in Richtung dafür Hand nach außen ist eine Daumenregel. es kann
 
 biegt sich der Oberkörper links oder rechts zur Seite ab. dadurch ist es möglich, einen geraden Schlag zu vermeiden.
 
+führe diese Bewegung schnell und locker aus. dabei darauf, dass deine Deckung immer gewährleistet ist. der Blick richtet sich dabei immer zum Gegner, das ist meist nach vorne, kann aber auch mal zur Seite sein, je nachdem wohin sich der Gegner hinbewegt (hat)
 
+## auspendeln
 
-auspendeln
+oder isz fad meiden XXXXX?
 
 ducken, slipline
 
