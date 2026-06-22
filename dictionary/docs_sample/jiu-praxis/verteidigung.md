@@ -8,7 +8,15 @@ verlieren heißt: du bist vielleicht verletzt oder schwer verletzt. und da du ge
 
 die folgenden Techniken und ich nahen Weise helfen dir dabei, ein optimale Verteidigung zu haben, damit du gesund bleibst und dein Lieblingssport ganz ganz lange ausführen kannst. 
 
-und vielleicht auch, um bei dem Gegner bei möglichst viel für möglichst viel frust zu sorgen:-D die folgenden Verteidigungsmöglichkeiten sitzordnet wieder nach ihrer Distanz von der weites möglichen Distanz bis hin zur größten Nähe
+und vielleicht auch, um bei dem Gegner bei möglichst viel für möglichst viel frust zu sorgen:-D die folgenden Verteidigungsmöglichkeiten sind geordnet wieder nach ihrer Distanz von der weites möglichen Distanz bis hin zur größten Nähe
+
+## bewegung, bewegung, bewegung
+
+in einem Kampf ist Bewegung jeglicher Art von immenser Wichtigkeit in einem Typ zusammengefasst: nach einem Angriff sei es eine artemis-technik oder ein Wurfversuch für unbedingt eine verteidigungsbewegung auf aus dadurch wird dem Gegner erschwert
+
+durch die Bewegung zur Seite wird zusätzlich der Gegner irritiert. denn sein Ziel ist nicht mehr statisch sondern bewegt sich. dadurch können geplante Schläge nicht mehr so treffen, wie der es sich eigentlich wünscht. die angriffsarbeit des Gegners wird dadurch erschwert 
+
+alle diese verteidigungsübungen lohnt es sich daher, sie auch zwischendurch im Kampf ohne Anlass durchzuführen. beispielsweise kannst du dir vornehmen, nach jedem deiner eigenen Angriffe, eine Verteidigungs handlung durchzuführen.
 
 **ausweichende bewegungen**
 
@@ -68,6 +76,10 @@ andersrum formuliert: wenn du in Richtung seiner Schlaghand ausweichst, läufst 
 das Ausweichen in Richtung dafür Hand nach außen ist eine Daumenregel. es kann durchaus sinnvoll sein auch mal in die andere Richtung zu laufen. grundsätzlich solltest du dich dieses Phänomens bewusst sein und es berücksichtigen im Sparring und im Kopf
 
 ## meiden
+
+biegt sich der Oberkörper links oder rechts zur Seite ab. dadurch ist es möglich, einen geraden Schlag zu vermeiden.
+
+
 
 auspendeln
 
