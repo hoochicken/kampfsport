@@ -111,13 +111,24 @@ drehungen
 
 ## stoppfussstoss
 
-XXXXX
+der stofffußstoß ist gerade Fußstoß nach vorne. dieser den primär dazu den Gegner zurückzustoßen. so wird eine Distanz zwischen sich und den Gegner erzwungen. voraussetzung dafür ist ein guter Stand (sonst stößt du dich selbst nach hinten weg)
 
-### blöcke und fegen
+Konkretisierung zu gerade gerichteter Fußstoß: damit ist sowohl der gerade Fußstoß gemeint als auch der Sidekick. auch hier wird die Kraft gerade ausgeführt. denn Zeit geht kannst du vor allem aus der seitlichen Kampfstellung her als stockfußstoß verwenden Punkt den frontalen er aus der frontalenstellung
 
-block, passiv 
+diese Technik ist für folgendes gedacht: der Gegner befindet sich in einer Vorwärtsbewegung, oft in Kombination mit einer artemi-technik, also er schlägt oder versucht einen dritt anzusetzen. der stofffußstoß stoppt die Vorwärtsbewegung des Gegners abrupt und unterbricht damit dessen Angriff.
 
-fegen
+**blöcke und fegen**
+
+## block, passiv 
+
+bei einem nahekommenden Angriff wird der Kopf leicht von der Gefahr abgewandt und der Arm zum Schutz nach oben genommen die Handfläche liegt dabei auf dem Hinterhaupt, der Ellenbogen zeigt fast nach vorne.
+
+damit schützt dieser Block den Kopf von der Seite. Punkt da passive Block eignet sich vor allem zur Abwehr eines zur Seite geführten Hakens, kann aber auch entsprechend abgewandelt werden, um einen frontalen Schlag abzuwehren
+
+der passive Block ist die technische Verfeinerung der natürlichen Abwehrbewegung des Menschen
+
+
+## fegen
 
 block aktiv
 
