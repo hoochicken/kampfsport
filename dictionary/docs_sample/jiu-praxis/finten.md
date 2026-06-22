@@ -26,17 +26,21 @@ lass uns noch mal ein bisschen darüber nachdenken, was ich im Kopf des Gegners 
 * du wurdest schwer getroffen, zeige keine Reaktion, oder lächle das weg und lächelt den Gegner milde an
 * Kämpfe die erste oder die ersten zwei Runden in deiner unbeliebten Auslage, Wechsel für die nächste Runde in deine richtige ausladelage und nimmt den Gegner auseinander
 * mache ständig auslagenwechsel, bringt den Gegner zum Verzweifeln
+* wiederhole deine Kombination so wie oben und variiere sie. nach dem fünften Mal, hat es der Gegner wahrscheinlich geschnallt, würfelt und einfach alles durcheinander, und dann später mit deinen sicheren standardkombination wiederzukommen
 
 finten lassen sich bei aller Art von Techniken anbringen, z.B
 
 * würfe
 * schläge 
 * freeze = spezial finte
-* false-tells
-* priming
 
 **würfe**
 
 **schläge**
 
+**freeze** 
+
+der Freeze ist eine meiner absoluten Lieblingstechniken, sicherlich wird es dir genauso gehen. nehmen wir wieder das Beispiel oben mit Jet punch. bringe jab punch dreimal hintereinander beim vierten Mal machst du jab Punch lässt den Punch  auf halbem wege stehen. 
+
+wenn du einen Gegner hast, der sehr gut ausreichen kann, ist der Free das Mittel der Wahl. der angedeutete Punch lässt den Gegner bereits in die Ausweichbewegung verfallen. und du kannst ihn dann etwa eine halbe Sekunde später komplett abschießen. 
 
