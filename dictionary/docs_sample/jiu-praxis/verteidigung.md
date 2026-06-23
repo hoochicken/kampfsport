@@ -101,11 +101,26 @@ dies ist eine sehr effektive Art der Bewegung, denn die Eckigkeit irritiert den 
 
 ## springen
 
-## schritt nach hinten
+Bewegungen können bei gleichbleibenden stand und nur mit dem Oberkörper ausgeführt werden.
 
-schritt zur seite
+man kann sie aber auch springend ausführen und gleichzeitig einen Ortswechsel machen. damit verwendet sich  Winkel und  Distanz für den Gegner
 
-drehungen
+durch den Ortswechsel wird der Gegner irritiert und du erhältst die Möglichkeit, eine nicht parierbare Angriff zu setzen.
+
+der Gegner wird sich natürlich mitdrehen und versuchen sich dir zuzuwenden. das ist nur natürlich und selbstverständlich. gegebenenfalls füge eine weitere Ausweichbewegung hinzu
+
+## schritt 
+
+auch durch einen ganz normalen Schritt kann man natürlich seine Position verändern die obigen ausweicharten kannst du also auch durch einen Gleitschritt unterstützen. dabei bewegt sich der richtungsfuß zuerst danach folgt das andere Bein
+
+## drehungen
+
+Drehungen werden immer auf einem Fuß als Achse ausgefüllt dies kann der vordere oder der hintere Fuß sein. wenn du dir dies vergegenwärtigst so wird es sicherlich gleich auffallen, dass mit einer kleinen 90° Drehung, du nicht nur eine Drehung vollführst, sondern dass du gleichzeitig aus der Angriffslinie des Angreifers herausdrehst.
+
+bei einer Drehung verändert sich ebenfalls der Winkel und deine Position massiv. durch eine Drehung erarbeitest du dir also neue Angriffsmöglichkeiten. da eine Drehung eben auch dazu führt, dass du aus der angreiferlinie heraus kommst, sag ich es wieder für eine Irritation des Gegners. 
+
+jede Irritation führt dazu, dass der Gegner sich an die neue Situation anpassen muss. der Angriff des Gegners verzögert sich dadurch und du hast nun mehr Möglichkeiten und kannst auch schneller eingreifen, weil du diese Positionsveränderung selbst geplant hast und natürlich auch Dich darauf vorbereitet hast
+
 
 **stopp-techniken**
 
@@ -116,6 +131,16 @@ der stofffußstoß ist gerade Fußstoß nach vorne. dieser den primär dazu den 
 Konkretisierung zu gerade gerichteter Fußstoß: damit ist sowohl der gerade Fußstoß gemeint als auch der Sidekick. auch hier wird die Kraft gerade ausgeführt. denn Zeit geht kannst du vor allem aus der seitlichen Kampfstellung her als stockfußstoß verwenden Punkt den frontalen er aus der frontalenstellung
 
 diese Technik ist für folgendes gedacht: der Gegner befindet sich in einer Vorwärtsbewegung, oft in Kombination mit einer artemi-technik, also er schlägt oder versucht einen dritt anzusetzen. der stofffußstoß stoppt die Vorwärtsbewegung des Gegners abrupt und unterbricht damit dessen Angriff.
+
+## schubsen auf Brustkorb
+
+ ein schubsen des Gegners auf Brusthöhe, unterhalb des Schlüsselbeins. dort ist der Brustkorb fest. dadurch kannst du den Gegner von dir weg bewegen. 
+
+im clinch ergibt diese Technik ebenfalls Sinn. auch hier wird der Gegner nach dem Clinch einfach weggestoßen. auch wenn du Boxhandschuhe trägst, kannst du den Gegner von dir wegstoßen. durch das schubsen ergibt sich eine Erhöhung der Distanz und du kannst danach zum Beispiel
+
+* mit Schlägen nachsetzen
+* ein oder mehrere Kicks bringen
+* eine Auswahl ich Bewegung nach links oder rechts ausführen und von dort aus angreifen
 
 **blöcke und fegen**
 
