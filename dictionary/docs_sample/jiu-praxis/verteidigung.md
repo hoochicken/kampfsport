@@ -152,7 +152,6 @@ damit schützt dieser Block den Kopf von der Seite. Punkt da passive Block eigne
 
 der passive Block ist die technische Verfeinerung der natürlichen Abwehrbewegung des Menschen
 
-
 ## fegen
 
 block aktiv
