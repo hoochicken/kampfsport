@@ -35,34 +35,28 @@ beim Ausweichen kann man sich folgender Bewegungsarten bedienen:
 
 * nur mit dem Oberkörper, der aufrecht verbleibt oder der gebeugt wird 
 * Schritt in die ausweichrichtung - Gleitschritt oder Übersetzschritt
-* beifußige Sprung in die ausweichrichtung
-
-**ausweichende bewegungen**
+* beifußige Sprung in die ausweichrichtung = federn
 
 ## ausweichen nach hinten 
 
 nach hinten auszuweichen ist die einfachste und natürliche Art sich vor Gefahr zu schützen. durch Umdrehen ermöglicht sich dann auch die Flucht. 
 
-Ausweichen nach hinten erreicht man durch 
+befindest du dich in einem Ring, so ist der Raum natürlich begrenzt. das heißt du kannst nicht ewig nach hinten ausweichen. es ist eine Notlösung, die dich schützt. aber keine nachhaltige Strategie
 
-* Gleitschritt nach hinten  
-* Sprung nach hinten 
-* übersetzSchritt nach hinten mit einhergehendem Auslagenwechsel
-* diese Ausweichbewegungen können einfach oder doppelt ausgeführt werden
+Nachteil ist, dass man dann zumeist ein so großen Abstand hat, dass ein eigener Angriff nicht möglich ist. außerdem wird der Gegner im Kampf nachsetzen . das heißt dann reicht mal wieder aus und es entsteht eine Art rückwärtsflucht. 
 
-Nachteil ist, dass man dann zumeist ein so großen Abstand hat, dass ein eigener Angriff nicht möglich ist. außerdem wird der Gegner im Kampf nachsetzen Punkt das heißt dann reicht mal wieder aus und es entsteht eine Art rückwärtsflucht.
+Hintergrund ist der , dass man in diesem Moment in der angriffslinie des Gegners bleibt . der Gegner hat einen Plan der in seiner angriffslinie liegt und den kann er ungehindert weiter verfolgen . dadurch unterstützt man du den Gegner dabei , dass man selbst unter Druck gesetzt wird man kann 
 
-Hintergrund ist der Komma dass man in diesem Moment in der angriffslinie das Gegners bleibt . der Gegner hat einen Plan der in seiner angriffslinie liegt und den kann er ungehindert weiter verfolgen . dadurch unterstützt man du den Gegner dabei , dass man selbst unter Druck gesetzt wird man kann 
-
-dieses Phänomen auch dafür nutzen dass man den Gegner quasi lockt . sich absichtlich passiv gibt und im richtigen Moment eine Technik ausführt, in der der Gegner in seine Vorwärtsbewegung komplett reinrennt. typisches typisches Beispiel ist ein Roundhouse Kick
+dieses Phänomen auch dafür nutzen dass man den Gegner quasi lockt / pullt . das heisst fu gibst dich absichtlich passiv  und im richtigen Moment eine Technik ausführt, in der der Gegner in seine Vorwärtsbewegung komplett reinrennt. typisches typisches Beispiel ist ein Roundhouse Kick
 
 typisch ist auch folgende Verhaltensweise:
-* du wartet bis der Gegner eine führHand bringt 
-* du mämachst einen beidseitigen Sprung zurück 
-* springe der zurückgezogenen Führhand direkt hinterher und ...
-* bringe einen eigenen Angriff.
 
-dadurch hat man einen sehr schnellen distanzwechsel, weicht dafür Hand aus und kann danach direkt seine eigenen Techniken bringen
+* du wartet bis der Gegner eine führHand bringt 
+* du machst einen beidseitigen feder-Sprung zurück 
+* springe der zurückgezogenen Führhand direkt hinterher und ...
+* bringe gleichzeitig einen eigenen Angriff, z. b. mit der Schlaghand auf der innenbahn
+
+dadurch hast du einen sehr schnellen distanzwechsel, weichst der führHand aus und kann danach direkt deine eigenen Techniken bringen
 
 ## Ausweichen zur Seite
 
