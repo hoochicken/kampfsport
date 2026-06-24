@@ -2,6 +2,11 @@
 
 auch vor dem Bildschirm kannst du wunderbar Üben. der Fokus ist dann weniger auf Koordination als auf Kraft und langsamer Bewegung. die volle Wirksamkeit entfaltet das Training natürlich ohne Ablenkung. wenn du aber mal was Gemütliches machen willst helfen dir diese Übungen, die einen statischen Blick nach vorne haben und nicht zu sehres Gehoppel sind.
 
+grundsätzlich gibt es zwei Positionen bei Bildschirm: 
+
+* vertikal an der Wand dir gegenüber 
+* horizontal vor dir auf dem Boden liegt
+
 **aufwärmen**
 
 die folgenden Übungen jeweils 10 Wiederholungen durchführen, davon insgesamt 5 Sets; für ein schnelles Workout nimm fünf Wiederholungen in fünf Sätzen
