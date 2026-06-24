@@ -18,7 +18,7 @@ durch die Bewegung zur Seite wird zusätzlich der Gegner irritiert. denn sein Zi
 
 alle diese verteidigungsübungen lohnt es sich daher, sie auch zwischendurch im Kampf ohne Anlass durchzuführen. beispielsweise kannst du dir vornehmen, nach jedem deiner eigenen Angriffe, eine Verteidigungs handlung durchzuführen.
 
-## bewegungsrichtungen
+## ausweichrichtungen
 
 grundsätzlich gibt es folgende Bewegungsrichtungen beim Ausweichen: 
 
@@ -27,7 +27,9 @@ grundsätzlich gibt es folgende Bewegungsrichtungen beim Ausweichen:
 * nach unten 
 * Kombinationen aus diesen Richtungen
 
-## bewegungsarten
+eine ausweich Richtung nach vorne ist auch denkbar, um z.B einen langen Cross zu unterlaufen und in den Nahdistanz zu kommen . wird aber eher dieselben Sicherheit sein
+
+## ausweicharten
 
 beim Ausweichen kann man sich folgender Bewegungsarten bedienen: 
 
