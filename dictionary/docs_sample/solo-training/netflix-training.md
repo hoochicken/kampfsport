@@ -7,6 +7,10 @@ grundsätzlich gibt es zwei Positionen bei Bildschirm:
 * vertikal an der Wand dir gegenüber 
 * horizontal vor dir auf dem Boden liegt
 
+## vertikaler Bildschirm
+
+der vertikale Bildschirm ist ideal, um die Bewegungslehre zu trainieren. gleichzeitig ist es ein Anreiz, den Blick immer oben zu halten. dadurch trainierst du den Blick nach vorne zum Gegner.
+
 **aufwärmen**
 
 die folgenden Übungen jeweils 10 Wiederholungen durchführen, davon insgesamt 5 Sets; für ein schnelles Workout nimm fünf Wiederholungen in fünf Sätzen
