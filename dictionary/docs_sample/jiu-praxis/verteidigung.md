@@ -34,8 +34,11 @@ eine ausweich Richtung nach vorne ist auch denkbar, um z.B einen langen Cross zu
 beim Ausweichen kann man sich folgender Bewegungsarten bedienen: 
 
 * nur mit dem Oberkörper, der aufrecht verbleibt oder der gebeugt wird 
+* drehung 
 * Schritt in die ausweichrichtung - Gleitschritt oder Übersetzschritt
 * beifußige Sprung in die ausweichrichtung = federn
+
+schau dir die Liste noch einmal an überlege dir Komma warum diese ausweicharten genau dieser Reihenfolge aufgeführt sind und nicht in einer anderen.
 
 ## ausweichen nach hinten 
 
@@ -47,9 +50,9 @@ Nachteil ist, dass man dann zumeist ein so großen Abstand hat, dass ein eigener
 
 Hintergrund ist der , dass man in diesem Moment in der angriffslinie des Gegners bleibt . der Gegner hat einen Plan der in seiner angriffslinie liegt und den kann er ungehindert weiter verfolgen . dadurch unterstützt man du den Gegner dabei , dass man selbst unter Druck gesetzt wird man kann 
 
-dieses Phänomen auch dafür nutzen dass man den Gegner quasi lockt / pullt . das heisst fu gibst dich absichtlich passiv  und im richtigen Moment eine Technik ausführt, in der der Gegner in seine Vorwärtsbewegung komplett reinrennt. typisches typisches Beispiel ist ein Roundhouse Kick
+dieses Phänomen auch dafür nutzen dass man den Gegner quasi lockt / pullt . das heisst du gibst dich absichtlich passiv  und im richtigen Moment eine Technik ausführt, in der der Gegner in seine Vorwärtsbewegung komplett reinrennt. z.B einen backgrounders Kick nach einem kleinen Schrittchen zur Seite
 
-typisch ist auch folgende Verhaltensweise:
+mit anderen Worten: bewusst kannst du den Gegner locken, um eine Kontertechnik vorzubereiten, wie dieses Beispiel dir Zeit
 
 * du wartet bis der Gegner eine führHand bringt 
 * du machst einen beidseitigen feder-Sprung zurück 
