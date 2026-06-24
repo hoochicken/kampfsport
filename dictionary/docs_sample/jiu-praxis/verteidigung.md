@@ -18,6 +18,23 @@ durch die Bewegung zur Seite wird zusätzlich der Gegner irritiert. denn sein Zi
 
 alle diese verteidigungsübungen lohnt es sich daher, sie auch zwischendurch im Kampf ohne Anlass durchzuführen. beispielsweise kannst du dir vornehmen, nach jedem deiner eigenen Angriffe, eine Verteidigungs handlung durchzuführen.
 
+## bewegungsrichtungen
+
+grundsätzlich gibt es folgende Bewegungsrichtungen beim Ausweichen: 
+
+* nach hinten 
+* zur Seite 
+* nach unten 
+* Kombinationen aus diesen Richtungen
+
+## bewegungsarten
+
+beim Ausweichen kann man sich folgender Bewegungsarten bedienen: 
+
+* nur mit dem Oberkörper, der aufrecht verbleibt oder der gebeugt wird 
+* Schritt in die ausweichrichtung - Gleitschritt oder Übersetzschritt
+* beifußige Sprung in die ausweichrichtung
+
 **ausweichende bewegungen**
 
 ## ausweichen nach hinten 
