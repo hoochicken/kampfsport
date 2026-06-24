@@ -67,7 +67,7 @@ Ausweichbewegung zur Seite sind:
 
 * Gleitschritt mit vorderen Fuß nach außen gegebenenfalls danach Hüfte zum Gegner drehen 
 * übersetzSchritt mit hinterem Fuß nach außen gegebenenfalls danach Hüfte zum Gegner 
-* 90°  Drehung auf vorderen Fuß nach vorne 90°  Drehung nach hinten auf hinteren Fuß 
+* 90°-Drehung auf vorderen Fuß nach vorne 90°-Drehung nach hinten auf hinteren Fuß 
 * beidseitiges springen nach  nach links oder rechts = "raus hoppeln"
 
 an diese grundlegende Ausweichbewegung können weitere Bewegungen angeschlossen werden, zumeist ein oder zwei. z.B das erneute Ausrichten der eigenen Position, der Kampfstellung in Richtung zum Gegner.
