@@ -82,6 +82,8 @@ stehe in Kampfstellung
 * mache einen Doppelsprung zurück, 5x,  und springe wieder an deine Ausgangsposition
 * mache das gleiche mit dem auslagenwechsel
 
+bestimme die Distanz des Schrittes oder des Sprungs so genau wie möglich. nimm dir z.B vor dass du eine matte zurückspringst und wieder hinein Punkt fordere Dich,. fordere Dich, halte den Abstand bewusst groß. später im Kampf wird er sich wahrscheinlich vehement verkleinern. die richtige Distanz zu finden ist ein bisschen eine Gratwanderung bestimme die Distanz so dass du sie noch schnell springen kannst, steigere Dich allmählich
+
 ## Ausweichen zur Seite
 
 Ausweichbewegung zur Seite sind:
