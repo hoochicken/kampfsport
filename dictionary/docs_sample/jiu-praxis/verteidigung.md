@@ -29,6 +29,16 @@ grundsätzlich gibt es folgende Bewegungsrichtungen beim Ausweichen:
 
 eine ausweich Richtung nach vorne ist auch denkbar, um z.B einen langen Cross zu unterlaufen und in den Nahdistanz zu kommen . wird aber eher dieselben Sicherheit sein
 
+**übung** 
+
+der schulterbreit in kampfstellung, lasse deine Beine stehen, bewege nur den Oberkörper habe die Deckung
+
+* kreise den Oberkörper 5x nach rechts und 5x nach Links
+* weiche mit dem Oberkörper 5x nach links und Federe schnell zurück; dann 5x nach rechts
+* mache dasselbe in der anderen Auslage
+
+der Blick immer nach vorne bleibt und die Rumpfmuskulatur angespannt
+
 ## ausweicharten
 
 beim Ausweichen kann man sich folgender Bewegungsarten bedienen: 
