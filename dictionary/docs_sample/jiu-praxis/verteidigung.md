@@ -137,6 +137,7 @@ bei einer Drehung verändert sich ebenfalls der Winkel und deine Position massiv
 
 jede Irritation führt dazu, dass der Gegner sich an die neue Situation anpassen muss. der Angriff des Gegners verzögert sich dadurch und du hast nun mehr Möglichkeiten und kannst auch schneller eingreifen, weil du diese Positionsveränderung selbst geplant hast und natürlich auch Dich darauf vorbereitet hast
 
+## t-schritt
 
 **stopp-techniken**
 
