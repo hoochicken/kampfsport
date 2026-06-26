@@ -71,7 +71,15 @@ Da das vordere Bein kaum Gewicht trägt, ermöglicht die Stellung schnelle Kicks
 
 Die starke Gewichtsverlagerung auf das hintere Bein macht die Stellung auf Dauer anstrengend und unbeweglicher.
 
-*ä## fusssohlen-nutzung
+### Tipps &amp; Übungen II
+
+- Halte Zenkutsu Dachi für 30 Sekunden und steigere die Zeit allmählich
+- Halte Kiba Dachi für 30 Sekunden und steigere die Zeit allmählich
+- Wechsle zwischen Zenkutsu Dachi und Kiba Dachi, ohne die Füsse zu versetzen
+- Wechsle zwischen frontaler, seitlicher, Zenkutsu-, Kiba- und Neko-Ashi-Stellung
+- Weiche Angriffen nur durch Gewichts- und Körperverlagerung aus, ohne die Füsse zu bewegen.( kleine Drehbewegung sind erlaubt)
+
+## fusssohlen-nutzung
 
 überlege dir bei jeder Stellung, welchen Teil des Fußes du belasten möchtest. die fußsohlenbelastung ist noch einmal eine kleine Sache für sich. man kann die Fußsohle verwenden wie folgt
 
@@ -85,11 +93,3 @@ Die starke Gewichtsverlagerung auf das hintere Bein macht die Stellung auf Dauer
 traditionelle wird eine gleichmäßige fußsohlenbelastung durchgeführt . ich weiß nicht, ob das Absicht ist, oder ob sich das einfach so ergeben hat. von meinem Empfinden her, fühle ich mich da nicht wohl. (gerade im traditionellen Karate finde ich manche Stände auch unergonomisch, und schädlich für mein Knie.) ich bevorzuge eindeutig den Stand auf den Ballen . dies verschafft mir eine größere Flexibilität und Schnelligkeit in der Bewegung. 
 
 dieser Abschnitt ist ein kleiner Abschnitt aber erst ein wichtiger Abschnitt. du hast nun die wichtigsten Argumente an der Hand, um in Zukunft zu entscheiden, wie du deinen stand gestalten möchtest. probiere verschiedene Dinge aus und entscheide dann.
-
-### Tipps &amp; Übungen II
-
-- Halte Zenkutsu Dachi für 30 Sekunden und steigere die Zeit allmählich
-- Halte Kiba Dachi für 30 Sekunden und steigere die Zeit allmählich
-- Wechsle zwischen Zenkutsu Dachi und Kiba Dachi, ohne die Füsse zu versetzen
-- Wechsle zwischen frontaler, seitlicher, Zenkutsu-, Kiba- und Neko-Ashi-Stellung
-- Weiche Angriffen nur durch Gewichts- und Körperverlagerung aus, ohne die Füsse zu bewegen.( kleine Drehbewegung sind erlaubt)
