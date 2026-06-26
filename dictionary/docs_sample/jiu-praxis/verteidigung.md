@@ -71,6 +71,16 @@ mit anderen Worten: bewusst kannst du den Gegner locken, um eine Kontertechnik v
 
 dadurch hast du einen sehr schnellen distanzwechsel, weichst der führHand aus und kann danach direkt deine eigenen Techniken bringen
 
+**übung** 
+
+stehe in Kampfstellung 
+
+* weiche nach hinten aus, nur mit dem Oberkörper 
+* weiche nach hinten aus, mach einen Mini Schritt mit deinem hinteren Bein nach hinten und stoße dich dann wieder nach vorne ab 
+* gleitschritt nach hinten, und zurück un ausgangsposition
+* springe beidseitig zurück und wieder rein 
+* mache einen Doppelsprung zurück und springe wieder an deine Ausgangsposition
+
 ## Ausweichen zur Seite
 
 Ausweichbewegung zur Seite sind:
