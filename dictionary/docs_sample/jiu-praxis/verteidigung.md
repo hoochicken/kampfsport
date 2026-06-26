@@ -75,11 +75,12 @@ dadurch hast du einen sehr schnellen distanzwechsel, weichst der führHand aus u
 
 stehe in Kampfstellung 
 
-* weiche nach hinten aus, nur mit dem Oberkörper 
-* weiche nach hinten aus, mach einen Mini Schritt mit deinem hinteren Bein nach hinten und stoße dich dann wieder nach vorne ab 
-* gleitschritt nach hinten, und zurück un ausgangsposition
+* oberkörper: weiche 5x nach hinten aus, nur mit dem Oberkörper 
+* mini schritt: weiche 5x nach hinten aus, mach einen Mini Schritt mit deinem hinteren Bein nach hinten und stoße dich dann wieder nach vorne ab 
+* gleitschritt nach hinten, 5x, und zurück un ausgangsposition
 * springe beidseitig zurück und wieder rein 
-* mache einen Doppelsprung zurück und springe wieder an deine Ausgangsposition
+* mache einen Doppelsprung zurück, 5x,  und springe wieder an deine Ausgangsposition
+* mache das gleiche mit dem auslagenwechsel
 
 ## Ausweichen zur Seite
 
