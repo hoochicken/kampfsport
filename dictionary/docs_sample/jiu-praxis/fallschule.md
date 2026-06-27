@@ -120,6 +120,9 @@ folgende Reihenfolge des Erlernens empfiehlt sich als eingangsdrill für anfäng
 * einarmiger Handstand auf der Faust, Übergang in die Vorwärtsrolle
 * kurze rollen: wer die meisten Rollen entlang der bahn schafft, hat gewonnen
 * alle stehen im Kreis, im Uhrzeigersinn stürzt immer ein Partner und steht sofort auf so geht das im Ringelreihen
+* Rollen auf harte Boden, langsam anfangen
+* auf dem Stuhl sitzen den Stuhl nach hinten umkippen lassen und sich abfangen, Achtung verletzungsgefahr! da musst du wirklich ganz früh abklopfen mit den Händen, das Kind muss der Brust gezogen sein der Hinterkopf darf keinesfalls auf dem Boden aufkommen, verletzungesgefahr!
+* 
 
 ## nach dem Fall
 
