@@ -190,11 +190,21 @@ nach einem Team oder um sich gerade aus einer anderen sehr engen Positionierung 
 
 ## block, passiv 
 
+passivblöcke zeichnen sich dadurch aus dass sie nur eine Art Schutzrahmen erzeugen es wird keine Bewegung entgegen eines bestimmten Angriffs ausgeführt sondern nur ein Schutz aufgebaut. entsprechend ist ein passiver Block in der Regel eine minimale Bewegung die einen Schutzrahmen aufbaut 
+
+der passive Block ist die technische Weiterentwicklung der natürlichen Abwehrreaktion die bei einem Angriff erfolgt: kleine werden und irgendetwas zwischen sich und die Gefahr bringen
+
 bei einem nahekommenden Angriff wird der Kopf leicht von der Gefahr abgewandt und der Arm zum Schutz nach oben genommen die Handfläche liegt dabei auf dem Hinterhaupt, der Ellenbogen zeigt fast nach vorne.
 
-damit schützt dieser Block den Kopf von der Seite. Punkt da passive Block eignet sich vor allem zur Abwehr eines zur Seite geführten Hakens, kann aber auch entsprechend abgewandelt werden, um einen frontalen Schlag abzuwehren
+damit schützt dieser Block den Kopf von der Seite. da passive Block eignet sich vor allem zur Abwehr eines zur Seite geführten Hakens, kann aber auch entsprechend abgewandelt werden, um einen frontalen Schlag abzuwehren
 
 der passive Block ist die technische Verfeinerung der natürlichen Abwehrbewegung des Menschen
+
+**übungen solo** 
+
+**übungen partner**
+
+**sparringsaufgabe**
 
 ## helmchen (sv)
 
@@ -249,14 +259,20 @@ das Blocken muss mit ein bisschen mehr Kraft ausgeführt werden. (es kommt natü
 
 blocken kannst du z.B anwenden wie folgt
 
-* 
+* gerader fauststoss - gleichseitiges blocken bitte offenen Hand von vorne
+* gerade fussstoss - gegenseitiges fegen das gegnerischen Beins nach innen, dabei mit Schritt nach außen
 
-## kombination mit atemi
+## atemi-kombination danach
 
-wenn du eine eine erfolgreich eine Verteidigung durchführst, so ist es großartig gratulation sei jedes Mal froh wenn dir das gelingt. der nächste Schritt ist es, diese Verteidigungen im Voraus zu planen. kombiniere die Verteidigung mit einer anschließenden artemitechnik. z.B
+wenn du eine eine erfolgreich eine Verteidigung durchführst, so ist es großartig! gratulation! sei jedes Mal froh wenn dir das gelingt. 
 
-* jab, punch ...
-* 
+der nächste Schritt ist es, diese Verteidigungen im Voraus zu planen. kombiniere die Verteidigung mit einer anschließenden artemitechnik. z.B
+
+* jab, punch
+* middle kick etc.
+* lowkick
+
+##
 
 ### Bungo
 
