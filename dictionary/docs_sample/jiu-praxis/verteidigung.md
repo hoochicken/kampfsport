@@ -33,7 +33,13 @@ wenn man angegriffen wird ist es die natürlichste Reaktion des Körpers, den Ko
 
 wenn man nun effektiv kämpfen will, muss man diese natürliche Reaktion des Körpers umprogrammieren. und das ist natürlich eine Herausforderung. ein Programm das über Millionen von Jahren geschrieben wurde, dass dazu beiträgt dass du überlebst . das musst du nun überschreiben.
 
-diese reicht so
+dieser reichst du, durch folgende Maßnahmen
+
+* solotraining: lasse den Blick nach vorn, stelle dir den Gegner vor dir wirklich vor. auch wenn Du beispielsweise in den Doppelblock gehst
+* pratzenTraining achte hier auf deine Blicke Richtung Punkt bitte deinen Partner auf deine Blickrichtung zu achten Punkt er soll dir sagen wo du den Blick abwendest
+* sparring: bitte den Partner, oben sanft zu schlagen. erkläre ihm dass du immer nach unten schaust und dass du dies gezielt abtrainieren möchtest 
+
+**geschichte**: wenn ich mit einem Partner trainiere dann Blick immer abwendet, erkläre ich in kurz und bündig dass er auf mein Schlüsselbein schauen soll, und dass er mich anlächeln soll. dadurch Grinsen wir uns die ganze Zeit und Sparring oder im Pratzentraining ab dadurch Grinsen wir uns die ganze Zeit und Sparring oder im Pratzentraining. das macht Laune
 
 ## ausweichrichtungen
 
