@@ -150,7 +150,13 @@ der Gegner wird sich natürlich mitdrehen und versuchen sich dir zuzuwenden. das
 
 ## schritt 
 
-auch durch einen ganz normalen Schritt kann man natürlich seine Position verändern die obigen ausweicharten kannst du also auch durch einen Gleitschritt unterstützen. dabei bewegt sich der richtungsfuß zuerst danach folgt das andere Bein
+auch durch einen ganz normalen Schritt kann man natürlich seine Position verändern die obigen ausweicharten kannst du also auch durch einen Gleitschritt unterstützen. dabei bewegt sich der richtungsfuß zuerst danach folgt das andere Bein.
+
+eine Variante ist der übersatzschritt, also ein Hund normaler Schritt vom vorderen Bein das nach hinten geführt wird. diese Bewegungsweise ist nicht ganz stabil, aber sie ist natürlich weshalb dein Körper sie auch schnell machen
+
+## T-Schritt
+
+der T-Schritt ist eine Verbindung von Schritte rückwärts und einer Seitwärtsbewegung, sei es nach rechts oder nach links. die Seitwärtsbewegung mit dem T-schritt bewegst du dich aus der Angriffslinie des Gegners raus. der muss darauf hin seine Pläne umstrukturieren und dir folgen. dies verschafft dir einen Vorteil und die gegen einen Nachteil
 
 ## drehungen
 
