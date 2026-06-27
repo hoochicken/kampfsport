@@ -164,9 +164,9 @@ bei einer Drehung verändert sich ebenfalls der Winkel und deine Position massiv
 
 jede Irritation führt dazu, dass der Gegner sich an die neue Situation anpassen muss. der Angriff des Gegners verzögert sich dadurch und du hast nun mehr Möglichkeiten und kannst auch schneller eingreifen, weil du diese Positionsveränderung selbst geplant hast und natürlich auch Dich darauf vorbereitet hast
 
-## stopp-techniken
+**stopp-techniken**
 
-### stoppfussstoss
+## stoppfussstoss
 
 der stofffußstoß ist gerade Fußstoß nach vorne. dieser den primär dazu den Gegner zurückzustoßen. so wird eine Distanz zwischen sich und den Gegner erzwungen. voraussetzung dafür ist ein guter Stand (sonst stößt du dich selbst nach hinten weg)
 
@@ -174,15 +174,17 @@ Konkretisierung zu gerade gerichteter Fußstoß: damit ist sowohl der gerade Fu�
 
 diese Technik ist für folgendes gedacht: der Gegner befindet sich in einer Vorwärtsbewegung, oft in Kombination mit einer artemi-technik, also er schlägt oder versucht einen dritt anzusetzen. der stofffußstoß stoppt die Vorwärtsbewegung des Gegners abrupt und unterbricht damit dessen Angriff.
 
-### schubsen auf Brustkorb
+## schubsen 
 
-ein schubsen des Gegners auf Brusthöhe, unterhalb des Schlüsselbeins. dort ist der Brustkorb fest. dadurch kannst du den Gegner von dir weg bewegen. 
+ein schubsen am Brustkorb des gegners, unterhalb des Schlüsselbeins. dort ist der Brustkorb fest. dadurch kannst du den Gegner von dir weg bewegen. 
 
 im clinch ergibt diese Technik ebenfalls Sinn. auch hier wird der Gegner nach dem Clinch einfach weggestoßen. auch wenn du Boxhandschuhe trägst, kannst du den Gegner von dir wegstoßen. durch das schubsen ergibt sich eine Erhöhung der Distanz und du kannst danach zum Beispiel
 
 * mit Schlägen nachsetzen
 * ein oder mehrere Kicks bringen
 * eine Auswahl ich Bewegung nach links oder rechts ausführen und von dort aus angreifen
+
+nach einem Team oder um sich gerade aus einer anderen sehr engen Positionierung zu befreien, da kannst du ebenfalls das schubsen einsetzen. du kannst z.B den Gegner an den Schultern fassen und den anderen wegschubsen bzw dich selbst wegschieben . so generierst du kontrollierte Distanz. das schubsen ermöglicht dir auch das positionieren des Gegners in eine für dich vorteilhaftere Position, die dir z.B den kommenden Angriff erleichtert
 
 **blöcke und fegen**
 
@@ -237,11 +239,17 @@ Ziel des Gegners ist es z.B dein Gesicht zu treffen. deswegen für diesen Angrif
 
 **fegerichtung** wie schon oben gesagt: der Angriff des Gegners (z.B die Faust) wird einfach nur minimal nach rechts oder links abgelenkt. der Angriff sollte nicht nach unten geführt werden. indem man die Hand des Gegners nach unten führt öffnet man das angriffsfenster für seinen zweiten Arm. deshalb halte die fegerichtung horizontal so ist der zweite Angriff des Gegners mit der anderen Hand mit der bereits angreifenden Hand blockiert.
 
-block aktiv
+## block aktiv
 
+als blocken bezeichnet man das Abstoppen des feindlichen Angriffs. beispielsweise für der Gegner eine Gerade Schlaghand und du blockst mit der gleichseitigen Hand dagegen. 
 
+erinnere dich: beim Fegen findet eine richtungsablenkung statt hier hast du ein bewegungsstopp . 
 
+das Blocken muss mit ein bisschen mehr Kraft ausgeführt werden. (es kommt natürlich auch auf die Stärke des Angriffs an. im lockeren Sparring ist ist das blocken leicht.) in ernsthaften kämpfen, kann es etwas anstrengender sein.
 
+blocken kannst du z.B anwenden wie folgt
+
+* 
 
 ## kombination mit atemi
 
