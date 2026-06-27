@@ -120,10 +120,6 @@ biegt sich der Oberkörper links oder rechts zur Seite ab. dadurch ist es mögli
 
 führe diese Bewegung schnell und locker aus. dabei darauf, dass deine Deckung immer gewährleistet ist. der Blick richtet sich dabei immer zum Gegner, das ist meist nach vorne, kann aber auch mal zur Seite sein, je nachdem wohin sich der Gegner hinbewegt (hat)
 
-## auspendeln
-
-
-
 ## ducken, slipline
 
 beim ducken, drückt man sich gerade ab . dabei werden die beine kurz eingeknickt danach schießt man wieder nach oben. es findet keine seitliche Bewegung statt. dadurch vermeidet man den Schlag, der einen genau an diesem Punkt treffen würde und taucht hinter dem Schlag wieder auf
@@ -138,7 +134,15 @@ das dreieckstauchen ist eine Variante des tauchen. statt eine Runde UBE wegen zu
 
 dies ist eine sehr effektive Art der Bewegung, denn die Eckigkeit irritiert den Gegner zusätzlich Punkt es ist keine schöne biologische Bewegung, sondern eine mathematische. unbedingt als Variante zu empfehlen
 
-## springen
+## positionswechsel
+
+**schritt**
+
+auch durch einen ganz normalen Schritt kann man natürlich seine Position verändern die obigen ausweicharten kannst du also auch durch einen Gleitschritt unterstützen. dabei bewegt sich der richtungsfuß zuerst danach folgt das andere Bein.
+
+eine Variante ist der übersatzschritt, also ein Hund normaler Schritt vom vorderen Bein das nach hinten geführt wird. diese Bewegungsweise ist nicht ganz stabil, aber sie ist natürlich weshalb dein Körper sie auch schnell machen
+
+**springen**
 
 Bewegungen können bei gleichbleibenden stand und nur mit dem Oberkörper ausgeführt werden.
 
@@ -147,12 +151,6 @@ man kann sie aber auch springend ausführen und gleichzeitig einen Ortswechsel m
 durch den Ortswechsel wird der Gegner irritiert und du erhältst die Möglichkeit, eine nicht parierbare Angriff zu setzen.
 
 der Gegner wird sich natürlich mitdrehen und versuchen sich dir zuzuwenden. das ist nur natürlich und selbstverständlich. gegebenenfalls füge eine weitere Ausweichbewegung hinzu
-
-## schritt 
-
-auch durch einen ganz normalen Schritt kann man natürlich seine Position verändern die obigen ausweicharten kannst du also auch durch einen Gleitschritt unterstützen. dabei bewegt sich der richtungsfuß zuerst danach folgt das andere Bein.
-
-eine Variante ist der übersatzschritt, also ein Hund normaler Schritt vom vorderen Bein das nach hinten geführt wird. diese Bewegungsweise ist nicht ganz stabil, aber sie ist natürlich weshalb dein Körper sie auch schnell machen
 
 ## T-Schritt
 
@@ -166,11 +164,9 @@ bei einer Drehung verändert sich ebenfalls der Winkel und deine Position massiv
 
 jede Irritation führt dazu, dass der Gegner sich an die neue Situation anpassen muss. der Angriff des Gegners verzögert sich dadurch und du hast nun mehr Möglichkeiten und kannst auch schneller eingreifen, weil du diese Positionsveränderung selbst geplant hast und natürlich auch Dich darauf vorbereitet hast
 
-## t-schritt
+## stopp-techniken
 
-**stopp-techniken**
-
-## stoppfussstoss
+### stoppfussstoss
 
 der stofffußstoß ist gerade Fußstoß nach vorne. dieser den primär dazu den Gegner zurückzustoßen. so wird eine Distanz zwischen sich und den Gegner erzwungen. voraussetzung dafür ist ein guter Stand (sonst stößt du dich selbst nach hinten weg)
 
@@ -178,9 +174,9 @@ Konkretisierung zu gerade gerichteter Fußstoß: damit ist sowohl der gerade Fu�
 
 diese Technik ist für folgendes gedacht: der Gegner befindet sich in einer Vorwärtsbewegung, oft in Kombination mit einer artemi-technik, also er schlägt oder versucht einen dritt anzusetzen. der stofffußstoß stoppt die Vorwärtsbewegung des Gegners abrupt und unterbricht damit dessen Angriff.
 
-## schubsen auf Brustkorb
+### schubsen auf Brustkorb
 
- ein schubsen des Gegners auf Brusthöhe, unterhalb des Schlüsselbeins. dort ist der Brustkorb fest. dadurch kannst du den Gegner von dir weg bewegen. 
+ein schubsen des Gegners auf Brusthöhe, unterhalb des Schlüsselbeins. dort ist der Brustkorb fest. dadurch kannst du den Gegner von dir weg bewegen. 
 
 im clinch ergibt diese Technik ebenfalls Sinn. auch hier wird der Gegner nach dem Clinch einfach weggestoßen. auch wenn du Boxhandschuhe trägst, kannst du den Gegner von dir wegstoßen. durch das schubsen ergibt sich eine Erhöhung der Distanz und du kannst danach zum Beispiel
 
@@ -198,13 +194,36 @@ damit schützt dieser Block den Kopf von der Seite. Punkt da passive Block eigne
 
 der passive Block ist die technische Verfeinerung der natürlichen Abwehrbewegung des Menschen
 
+## helmchen (sv)
+
+eine Variante des passiven Blockes ist das Helmchen bzw das bewegte helmchen/sich durch die Haare fahren. vor allem in der Selbstverteidigung ist diese Block sinnvoll denn er schützt den Schädel vor Angriffen aus vielen verschiedenen Richtungen 
+
+ein Helmchen erhältst du, wenn du deine Arme um deinen Kopf herumfaltest. dabei lässt
+
+* der rechten Ellenbogen zeigt nach vorne zeigwn lässt.  der ellenbogen befindet sich vor der Nase . der Unterarm wird auf dem Schädeldach abgelegt der die Handfläche greift auf Schädel Hinterhaupt. damit bilden Ellenbogen und Unterarm eine Art Überrollbügel bei einem Auto
+* die linke Hand greift dicht unterhalb des rechten Oberarms auf die rechte Schulter. der linke Ellenbogen zeigt ebenfalls nach vorne, die linke Schulter wird hochgehoben, um die Seite zu schützen.
+
+platziere die Arme so, das möglichst viel von deinem Schädel unter diesem Helmchen sitzt und auch die Seiten deines Kopfes geschützt sind. achte darauf, dass du genügend Platz hast damit du auch etwas siehst. du solltest jetzt eigentlich den rechten Unterarm mit dich haben, so dass du mit den Augen links und rechts daran vorbeischauen kannst
+
+das helmchen schützt sehr gut gegen Angriffe von vorne und oben. wenn der Gegner auf die Idee kommt, aber Katze zu machen oder Knie, musst Du entsprechend anpassen.
+
+## haare richten (sv)
+
+dies ist eine hähnchenvariante. der Helm ist statisch und sehr nützlich. durch die Statik könnte der Gegner aber verstehen, dass es bestimmte Bereiche deine Schädels gibt dir dennoch erreichen kann. hier hilft das"Haare richten" 
+
+* beim Haare richten fährst du dir mit der rechten Hand von der Stirn ab bis zum Hinterhaupt durch die Haare.
+* danach folgt direkt die linke Hand. 
+* der Ellenbogen zeigt dabei immer nach vorne .
+
+das Ergebnis ist eine Art wandelhhelmchen. die Löcher des helmchens durch die der Gegner angreifen kann, verschieben sich ständig. die Wahrscheinlichkeit, dass ein Schlag des Gegners auf einem der Arme hängen bleibt, ist sehr hoch
+
 ## fegen
 
 block aktiv
 
 doppelblock
 
-helmchen, haare richten
+
 
 ## kombination mit atemi
 
