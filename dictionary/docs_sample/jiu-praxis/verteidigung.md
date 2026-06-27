@@ -225,6 +225,12 @@ ein Doppelblock erreichst du, indem du vor deinem Kopf beide Unterarme zusammenf
 
 mini-hinweis: trägst du Boxhandschuhe, lege die Fäuste Knöchel auf der Stirn ab. durch die Polsterung werden eventuelle Verletzung gemildert. trägst du keine Handschuhe, so lege die Handfläche auf der Stirn ab. sollte Dich dann jemand schlagen, schlagen Dich nicht deine eigenen Knöchel
 
+die doppeldecken ist eine Deckung, die dir hilft, schnell gesichert zu sein. sie ist aber keine ideale Position. die wuchtigen Handschuhe verhindern eine ideale Sicht auf den Gegner . daher trainiere auch, wieder bis dann zum Gegner aufzubauen Punkt z.B kannst du folgendes machen
+
+* entschiedenen Schritt nach hinten dabei schlägst du mir dafür Hand nach vorne und setzt danach die Schlaghand
+* entschieden Schritt zur Seite und setzt dabei ebenfalls eine führt schlaghandkombination
+* das Anziehen des Gegners um ihn dann weg zu schubsen während du zur Seite weg gehst
+
 ## haare richten (sv)
 
 dies ist eine Helmchen Variante. der Helm ist statisch und sehr nützlich. durch die Statik könnte der Gegner aber verstehen, dass es bestimmte Bereiche deine Schädels gibt dir dennoch erreichen kann. hier hilft das"Haare richten" 
