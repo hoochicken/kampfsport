@@ -134,15 +134,15 @@ das dreieckstauchen ist eine Variante des tauchen. statt eine Runde UBE wegen zu
 
 dies ist eine sehr effektive Art der Bewegung, denn die Eckigkeit irritiert den Gegner zusätzlich Punkt es ist keine schöne biologische Bewegung, sondern eine mathematische. unbedingt als Variante zu empfehlen
 
-## positionswechsel
+**positionswechsel**
 
-**schritt**
+## schritt
 
 auch durch einen ganz normalen Schritt kann man natürlich seine Position verändern die obigen ausweicharten kannst du also auch durch einen Gleitschritt unterstützen. dabei bewegt sich der richtungsfuß zuerst danach folgt das andere Bein.
 
 eine Variante ist der übersatzschritt, also ein Hund normaler Schritt vom vorderen Bein das nach hinten geführt wird. diese Bewegungsweise ist nicht ganz stabil, aber sie ist natürlich weshalb dein Körper sie auch schnell machen
 
-**springen**
+## springen
 
 Bewegungen können bei gleichbleibenden stand und nur mit dem Oberkörper ausgeführt werden.
 
@@ -278,7 +278,7 @@ anstatt einen direkten Block zu setzen, dass du alternativ auf eine artemikomina
 
 ### Bungo
 
-wenn du ausweichen trainierst und Verteidigung, würde ich dir folgendes empfehlen. trainiere mit Bungo. das heißt 
+wenn du ausweichen solo, also alleine trainierst und Verteidigung, würde ich dir folgendes empfehlen. trainiere mit Bungo. das heißt 
 
 * stelle dir den Gegner vor 
 * welchen Angriff er genau bringt. 
@@ -287,7 +287,7 @@ wenn du ausweichen trainierst und Verteidigung, würde ich dir folgendes empfehl
 
 was dir die Vorstellung erleichtert, dass ein Gegner da ist, ist ein Gegenstand den du z.B auf den Boden legst oder ein Möbelstück. ein Stuhl im Raum repräsentiert den Stand des Gegners. bewege dich um diesen Stuhl herum. 
 
-so hast dein Gehirn ein 3d-Bezugspunkt im raum, den er mit dem Gegner vermerken kann.
+so hast dein Gehirn einen 3d-Bezugspunkt im raum, den er mit dem Gegner vermerken kann.
 
 
 
