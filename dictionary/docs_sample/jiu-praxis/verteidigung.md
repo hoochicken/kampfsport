@@ -108,7 +108,7 @@ Tipp: erfahrenen Gegnern wird es leicht fallen, dir zu folgen
 
 weiterhin zu bedenken ist die Tatsache, dass der Gegner selbst eine Kampfstellung hat. das heißt ein Bein steht vorne, die starke Hand ist hinten ein Bein steht vorne, die starke Hand ist hinten.
 
-es bietet sich an in Richtung der Führhand nach außen auszuweichen. dann läufst du dem Gegner in den toten Winkel hinein. mit der führHand wird es ihm schwerer fallen dich zu treffen. 
+es bietet sich an in Richtung der Führhand nach außen auszuweichen. dann läufst du dem Gegner in den toten Winkel hinein. mit der führHand wird es ihm schwerer fallen dich zu treffen. und mit der Schlaghand wird es ihm unmöglich sein dich zu treffen Punkt zuvor müsste er sich drehen
 
 andersrum formuliert: wenn du in Richtung seiner Schlaghand ausweichst, läufst du in seinen Fokus hinein . er kann Dich dadurch leitet leichter treffen mit Schlaghand und dem hinteren Bein hinein
 
@@ -227,7 +227,7 @@ mini-hinweis: trägst du Boxhandschuhe, lege die Fäuste Knöchel auf der Stirn 
 
 ## haare richten (sv)
 
-dies ist eine hähnchenvariante. der Helm ist statisch und sehr nützlich. durch die Statik könnte der Gegner aber verstehen, dass es bestimmte Bereiche deine Schädels gibt dir dennoch erreichen kann. hier hilft das"Haare richten" 
+dies ist eine Helmchen Variante. der Helm ist statisch und sehr nützlich. durch die Statik könnte der Gegner aber verstehen, dass es bestimmte Bereiche deine Schädels gibt dir dennoch erreichen kann. hier hilft das"Haare richten" 
 
 * beim Haare richten fährst du dir mit der rechten Hand von der Stirn ab bis zum Hinterhaupt durch die Haare.
 * danach folgt direkt die linke Hand. 
@@ -243,7 +243,7 @@ Ziel des Gegners ist es z.B dein Gesicht zu treffen. deswegen für diesen Angrif
 
 **fegezeitpunkt**  deswegen findet nicht direkt vor dem Gesicht statt, das geht nicht. es passiert schon auf halben Wege vor deinem Gesicht. das heißt, eine fegebewegung ist nicht nur eine seitwärtsbefähigung sondern auch eine Vorwärtsbewegung des Armes. man führt den eigenen wegen den Arm nach vorne, um den Angriff des Gegners möglichst früh zu erreichen
 
-**minimaler fegeweg** achte hierbei auf die Effizienz diese fegebewegung muss vielleicht die angreifende Faust um 7 cm bewegen Punkt nämlich genau an einer Hälfte deines Gesichts vorbei. die Bewegung ist also minimal. es ist also nicht sinnvoll, den Angriff des Partners bis über seine eigene Schulter hinauszuführen. dadurch verschenkst du Zeit. optimal arbeitest du wenn du das angreifende Körperteil nur genau so weit ablenkst wie es erforderlich ist
+**minimaler fegeweg** achte hierbei auf die Effizienz diese fegebewegung muss vielleicht die angreifende Faust um 7 cm bewegen . nämlich genau an einer Hälfte deines Gesichts vorbei. die Bewegung ist also minimal. es ist also nicht sinnvoll, den Angriff des Partners bis über seine eigene Schulter hinauszuführen. dadurch verschenkst du Zeit. optimal arbeitest du wenn du das angreifende Körperteil nur genau so weit ablenkst wie es erforderlich ist
 
 **kraftaufwand** der Kraftaufwand beim Fliegen ist minimal. denn der mit viel Kraft kommt der Angriff wird nicht gestoppt, sondern nur weitergeführt. dadurch ist fegen aus Sicht ist krafteinsatzes sehr effizient
 
@@ -272,7 +272,9 @@ der nächste Schritt ist es, diese Verteidigungen im Voraus zu planen. kombinier
 * middle kick etc.
 * lowkick
 
-##
+## atemi als block
+
+anstatt einen direkten Block zu setzen, dass du alternativ auf eine artemikomination schlagen. das hat den Vorteil, dass du ihm gleichzeitig ein Treffer setzen kannst Punkt du wirst also nicht getroffen kriegst gleichzeitig aber einen. wenn du einen Schlag in irgendeiner Weise Paris mit der offenen Hand, oder ob du eine Admin nach vorne machst: beides verhindert, dass die Fäuste des Gegners ihr Ziel finden
 
 ### Bungo
 
