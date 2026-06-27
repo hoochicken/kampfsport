@@ -282,9 +282,24 @@ der nächste Schritt ist es, diese Verteidigungen im Voraus zu planen. kombinier
 
 anstatt einen direkten Block zu setzen, dass du alternativ auf eine artemikomination schlagen. das hat den Vorteil, dass du ihm gleichzeitig ein Treffer setzen kannst Punkt du wirst also nicht getroffen kriegst gleichzeitig aber einen. wenn du einen Schlag in irgendeiner Weise Paris mit der offenen Hand, oder ob du eine Admin nach vorne machst: beides verhindert, dass die Fäuste des Gegners ihr Ziel finden
 
-### Bungo
+## ebgagierterr konzer - u.a. Gegnerfrustration
 
-wenn du ausweichen solo, also alleine trainierst und Verteidigung, würde ich dir folgendes empfehlen. trainiere mit Bungo. das heißt 
+um den Gegner zu frustrieren, ist es sinnvoll jedes Mal einen Konter zu schlagen. das Wort Konter meint nichts anderes als Gegenangriff. je zeitnaher der Gegenangriff wird verfolgt, desto eher wird der Gegner aus dem Konzept gebracht. 
+
+du kannst das auch auf die Spitze treiben. 
+
+* du wählst eine Kombination, die dir sehr leicht fällt das ist deine kontokombination. es kann eine ganz einfache Kombination sein, z.B Jeff Punch Lowkick. 
+* jedes Mal wenn der Gegner auch nur zuckt und auch nur denkt anzureifen, bringst du diese Kombination, mit voller Härte. 
+
+im Gehirn des Gegners wird dann sein eigener Angriff mit Schmerzen assoziiert. in der Folge wird dazu Grübeln anfangen: "will ich jetzt wirklich diese Person angreifen denn jedes mal an wenn ich angreife kriege ich Schmerzen." 
+
+dadurch lebt der Gegner in permanente Angst, und diese Angst und Vorsicht bringt mit sich, dass er anfangen zu zögern. das heißt es bringt dir ein zeitverteil.
+
+das mit dem Schmerzen ist natürlich relativ. time Sparring trotzdem entsprechend vorsichtig. ihr seid Partner keine Gegner.
+
+## schattenboxen
+
+wenn du ausweichen solo, also alleine trainierst (samdsack, Schattenboxen) und Verteidigung, würde ich dir folgendes empfehlen. trainiere mit Bungo! das heißt 
 
 * stelle dir den Gegner vor 
 * welchen Angriff er genau bringt. 
@@ -295,6 +310,7 @@ was dir die Vorstellung erleichtert, dass ein Gegner da ist, ist ein Gegenstand 
 
 so hast dein Gehirn einen 3d-Bezugspunkt im raum, den er mit dem Gegner vermerken kann.
 
+**geschichte**: eines warings Partnerin, 30 Jahre jünger, hat mich schlichtweg jedes Mal überrannt. mit ihrer jugendlichen Schlagkraft und Schnelligkeit was sie mir einfach über. und natürlich läuft sie vorwärts schneller als ich rückwärts zurückweichen kann und natürlich läuft sie vorwärts schneller als ich rückwärts zurückweichen kann. also habe ich mir zu diesem Problem gezielt Gedanken gemacht Punkt immer wieder habe ich vor meiner regalecke geübt, dass sie ein geraden Fuß durch nach vorne setzen mit rechts den ich mit rechts pariere nach links ausweiche. immer und immer wieder. im nächsten Sparring hat er genau dieses Verhalten große Probleme bereitet. fehlt mich dann später trotzdem vermöbelt, als meine Kräfte alle waren, aber die anderthalb Minuten wo ich es geschafft habe auszuweichen haben es rausgerissen
 
 
 
