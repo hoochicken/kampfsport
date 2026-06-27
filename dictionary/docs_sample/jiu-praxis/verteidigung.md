@@ -207,6 +207,12 @@ platziere die Arme so, das möglichst viel von deinem Schädel unter diesem Helm
 
 das helmchen schützt sehr gut gegen Angriffe von vorne und oben. wenn der Gegner auf die Idee kommt, aber Katze zu machen oder Knie, musst Du entsprechend anpassen.
 
+## doppelblock
+
+ein Doppelblock erreichst du, indem du vor deinem Kopf beide Unterarme zusammenführst. die Ellenbogen berühren sich und die Hände werden auf der Stirn abgelegt.
+
+mini-hinweis: trägst du Boxhandschuhe, lege die Fäuste Knöchel auf der Stirn ab. durch die Polsterung werden eventuelle Verletzung gemildert. trägst du keine Handschuhe, so lege die Handfläche auf der Stirn ab. sollte Dich dann jemand schlagen, schlagen Dich nicht deine eigenen Knöchel
+
 ## haare richten (sv)
 
 dies ist eine hähnchenvariante. der Helm ist statisch und sehr nützlich. durch die Statik könnte der Gegner aber verstehen, dass es bestimmte Bereiche deine Schädels gibt dir dennoch erreichen kann. hier hilft das"Haare richten" 
@@ -219,9 +225,21 @@ das Ergebnis ist eine Art wandelhhelmchen. die Löcher des helmchens durch die d
 
 ## fegen
 
+beim Fegen wischt man den Angriff des Gegners ein bisschen zur Seite. dabei berührst du mit der Hand die ankommende Faust oder Unterarm des Partners und führst diesen an deinem Gesicht vorbei. 
+
+Ziel des Gegners ist es z.B dein Gesicht zu treffen. deswegen für diesen Angriff einfach ein bisschen an den Kopf vorbei.
+
+**fegezeitpunkt**  deswegen findet nicht direkt vor dem Gesicht statt, das geht nicht. es passiert schon auf halben Wege vor deinem Gesicht. das heißt, eine fegebewegung ist nicht nur eine seitwärtsbefähigung sondern auch eine Vorwärtsbewegung des Armes. man führt den eigenen wegen den Arm nach vorne, um den Angriff des Gegners möglichst früh zu erreichen
+
+**minimaler fegeweg** achte hierbei auf die Effizienz diese fegebewegung muss vielleicht die angreifende Faust um 7 cm bewegen Punkt nämlich genau an einer Hälfte deines Gesichts vorbei. die Bewegung ist also minimal. es ist also nicht sinnvoll, den Angriff des Partners bis über seine eigene Schulter hinauszuführen. dadurch verschenkst du Zeit. optimal arbeitest du wenn du das angreifende Körperteil nur genau so weit ablenkst wie es erforderlich ist
+
+**kraftaufwand** der Kraftaufwand beim Fliegen ist minimal. denn der mit viel Kraft kommt der Angriff wird nicht gestoppt, sondern nur weitergeführt. dadurch ist fegen aus Sicht ist krafteinsatzes sehr effizient
+
+**fegerichtung** wie schon oben gesagt: der Angriff des Gegners (z.B die Faust) wird einfach nur minimal nach rechts oder links abgelenkt. der Angriff sollte nicht nach unten geführt werden. indem man die Hand des Gegners nach unten führt öffnet man das angriffsfenster für seinen zweiten Arm. deshalb halte die fegerichtung horizontal so ist der zweite Angriff des Gegners mit der anderen Hand mit der bereits angreifenden Hand blockiert.
+
 block aktiv
 
-doppelblock
+
 
 
 
