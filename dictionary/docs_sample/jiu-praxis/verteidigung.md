@@ -17,6 +17,23 @@ in einem Kampf ist Bewegung jeglicher Art von immenser Wichtigkeit in einem Typ 
 durch die Bewegung zur Seite wird zusätzlich der Gegner irritiert. denn sein Ziel ist nicht mehr statisch sondern bewegt sich. dadurch können geplante Schläge nicht mehr so treffen, wie der es sich eigentlich wünscht. die angriffsarbeit des Gegners wird dadurch erschwert 
 
 alle diese verteidigungsübungen lohnt es sich daher, sie auch zwischendurch im Kampf ohne Anlass durchzuführen. beispielsweise kannst du dir vornehmen, nach jedem deiner eigenen Angriffe, eine Verteidigungs handlung durchzuführen.
+ 
+## blickausrichtung
+
+bei einer Auseinandersetzung muss man den Gegner im Blick behalten. am geschicktesten ist es etwa auf die Höhe der Schlüsselbeine zu schauen.   dadurch siehst du:
+
+*  schulterbewegungen, die Angriffe mit den Armen vorbereiten 
+* Gewichtsverlagerungen, Angriffe mit den Beinen vorbereiten 
+
+aber den Gegner nicht in die Augen. die Augen des Gegners können Lügen. er schaut nach unten schlägt nach oben er schaut nach oben und nach deinen Logik. seine Augen lügen. schaue nur auf Brustbein und Schlüsselbein. dann hast du den gesamten Körper des Gegners im Blick
+
+und nun zu der Herausforderung:
+
+wenn man angegriffen wird ist es die natürlichste Reaktion des Körpers, den Kopf zu senken, die Arme vor das Gesicht zu halten zum Schutz. der Körper schützt automatisch, das was am wichtigsten ist Gehirn und Gesicht, oder auch die Organe. durch das Einrollen der Schultern und vielleicht der ganzen Wirbelsäule rutscht der Blick automatisch nach unten. wenn der Blick unten ist, nicht mehr was dagegen macht. 
+
+wenn man nun effektiv kämpfen will, muss man diese natürliche Reaktion des Körpers umprogrammieren. und das ist natürlich eine Herausforderung. ein Programm das über Millionen von Jahren geschrieben wurde, dass dazu beiträgt dass du überlebst . das musst du nun überschreiben.
+
+diese reicht so
 
 ## ausweichrichtungen
 
