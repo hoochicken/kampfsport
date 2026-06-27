@@ -17,6 +17,8 @@ in einem Kampf ist Bewegung jeglicher Art von immenser Wichtigkeit in einem Typ 
 durch die Bewegung zur Seite wird zusätzlich der Gegner irritiert. denn sein Ziel ist nicht mehr statisch sondern bewegt sich. dadurch können geplante Schläge nicht mehr so treffen, wie der es sich eigentlich wünscht. die angriffsarbeit des Gegners wird dadurch erschwert 
 
 alle diese verteidigungsübungen lohnt es sich daher, sie auch zwischendurch im Kampf ohne Anlass durchzuführen. beispielsweise kannst du dir vornehmen, nach jedem deiner eigenen Angriffe, eine Verteidigungs handlung durchzuführen.
+
+Hinweis: dieses Kapitel ist mal wieder etwas ausführlicher geraten. greife dir ein Aspekt heraus, den du verbessern möchtest Punkt überfordere ich nicht. mache nicht tausend Sachen 10-prozentig, sondern lieber eine Sache richtig.
  
 ## blickausrichtung
 
