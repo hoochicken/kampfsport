@@ -108,10 +108,18 @@ folgende Reihenfolge des Erlernens empfiehlt sich als eingangsdrill für anfäng
 * rolle rückwärts: auf Hintern situen, nachhinten rollen, über schulter rollen, auf den Knien landen, mehrmals wiederholen, tipp: arm, über den gerollt wird, gestreckt auf dem Boden ablegem, handfläche nach oben
 * rolle vorwärts: nach rolle vorwärts auf gleichem wege zurück, der Körper kennt dann quasi das begwegungsmuster schon
 
-für fortgeschrittene
+## für fortgeschrittene
 
 * rollen aus dem stand heraus
 * freier fall <= da ist das abklatschen massiv wichtig!
+* rolle über hindernis ( Personen im Vierfüßlerstand, pratze)
+* rollkombination Rückwärtsrolle seitSturz
+* Rückwärtsrolle in den Handstand
+* federfall vorwärts: das heißt Sprung nach vorne mit beiden Händen auffangen und die Brust sanft auf dem Boden ablegen
+* handstand, Übergang in eine zirkusrolle vorwärts
+* einarmiger Handstand auf der Faust, Übergang in die Vorwärtsrolle
+* kurze rollen: wer die meisten Rollen entlang der bahn schafft, hat gewonnen
+* alle stehen im Kreis, im Uhrzeigersinn stürzt immer ein Partner und steht sofort auf so geht das im Ringelreihen
 
 ## nach dem Fall
 
