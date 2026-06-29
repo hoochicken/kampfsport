@@ -51,18 +51,25 @@ es ist ein bisschen eine gratWanderung beim Pratzentraining zu korrigieren, denn
 
 **anfeuern, forden, planen**: dieser Part ist am Pratzen halten mein Lieblingsfach. es ist einfach schön, den Partner zu fordern und über sich hinauswachsen zu lassen. z.B kannst du folgendes machen:  
 
-* anfeuerndes runterzählen: mal wiederholungsaufgaben zähle die Wiederholung für den Partner mach dies im Film waschschritten, in drei Schritten oder in einer Schritten, wie es gerade passt. die letzten fünf oder drei zählst du dann wie einen: "es sind nur noch fünf, jetzt noch vier, noch drei, zwei, AAAAAINS!"
-* **zeit-planung**: Unterteile längere Zeitabschnitte in unter Abschnitte. Beispiel hier: 2 Minute 30 Sekunden Zeitabschnitt: 
-    * 0:00: "2 minuten :30 ist eine lange Zeit konzentriere dich erstmal auf 
-    * 0:20: "jezt dein erster Sprint! jetzt vier Wiederholung konzentriere also stark wie du kannst genau die Schlaghand super
-    * 0:30: jetzt wieder ruhiger es sind noch zwei Minuten, triff jetzt stabil mach locker atme gut durch"
-    * 0:50: "nächster Sprint vier konzentrierte Wiederholungen 1 2 3 super [...]
-    * 1:40: erhole Dich jetzt 15 Sekunden. mach ganz langsam Punkt nachher gleich kommt die 30 Sekunden Belastung
-    * 1.56 es geht los in drei zwei power
-    * 2:00 mach schnell und locker, behalt genau diese Schnelligkeit bei achte auf deine für Hand bring die Führhand stärker genausoetc 
-    * 2:20 die letzten zehn Sekunden stärker noch einmal letzte Wiederholung WAAAAAH!
+**anfeuerndes runterzählen**: mal wiederholungsaufgaben zähle die Wiederholung für den Partner mach dies im Film waschschritten, in drei Schritten oder in einer Schritten, wie es gerade passt. die letzten fünf oder drei zählst du dann wie einen: "es sind nur noch fünf, jetzt noch vier, noch drei, zwei, AAAAAINS!"
+
+**zeit-planung**: Unterteile längere Zeitabschnitte in unter Abschnitte. positioniere dich so, dass du zwischendurch auf die Zeituhr schauen kannst. plane die Belastungs- und Erholungsphasen deines Partners;  
+
+**Beispiel hier** 
+
+2 Minute 30 Sekunden Zeitabschnitt:
  
-* stimmmodulation:
+* 0:00: "2 minuten :30 ist eine lange Zeit konzentriere dich erstmal auf 
+* 0:20: "jezt dein erster Sprint! jetzt vier Wiederholung konzentriere also stark wie du kannst genau die Schlaghand super
+* 0:30: jetzt wieder ruhiger es sind noch zwei Minuten, triff jetzt stabil mach locker atme gut durch"
+* 0:50: "nächster Sprint vier konzentrierte Wiederholungen 1 2 3 super [...]
+* 1:40: erhole Dich jetzt 15 Sekunden. mach ganz langsam Punkt nachher gleich kommt die 30 Sekunden Belastung
+* 1.56 es geht los in drei zwei power
+* 2:00 mach schnell und locker, behalt genau diese Schnelligkeit bei achte auf deine für Hand bring die Führhand stärker genausoetc 
+* 2:20 die letzten zehn Sekunden stärker noch einmal letzte Wiederholung WAAAAAH!
+* 0:05 danach: wow das war großartig
+ 
+* stimmmodulation: sicherlich hast du gemerkt, dass anfeuern nicht unbedingt leise ist. gib dem anderen das Gefühl, dass er ein Weltmeister ist, der gerade sich auf seinen Titel kam vorbereitet, dass er der beste Athlet ist den du kennst, und dass du stolz bist mit ihm zu arbeiten
 
 ### Sicherheitshinweise
 
