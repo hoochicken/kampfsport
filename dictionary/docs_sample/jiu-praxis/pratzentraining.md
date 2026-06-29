@@ -61,9 +61,7 @@ halte beim Pratzentraining die ballance zwischen powergtaining und korrektur. de
 
 **zeit-planung**: Unterteile längere Zeitabschnitte in unter Abschnitte. positioniere dich so, dass du zwischendurch auf die Zeituhr schauen kannst. plane die Belastungs- und Erholungsphasen deines Partners;  
 
-**Beispiel hier** 
-
-2:30 belastung Zeitabschnitt:
+**Beispiel: 2:30 belastung Zeitabschnitt**
  
 * 0:00: "2 minuten :30 ist eine lange Zeit konzentriere dich erstmal auf 
 * 0:20: "jezt dein erster Sprint! jetzt vier Wiederholung konzentriere also stark wie du kannst genau die Schlaghand super
@@ -75,7 +73,7 @@ halte beim Pratzentraining die ballance zwischen powergtaining und korrektur. de
 * 2:20 "die letzten zehn Sekunden stärker noch einmal letzte Wiederholung WAAAAAH!"
 * 0:05 danach: "wow, du bist echt fit ,super leistung!"
 
-sicherlich hast du gemerkt, dass anfeuern nicht unbedingt leise ist. gib dem anderen das Gefühl, dass er ein Weltmeister ist, der gerade sich auf seinen Titel kam vorbereitet, dass er der beste Athlet ist den du kennst, und dass du stolz bist mit ihm zu arbeiten
+sicherlich hast du gemerkt, dass anfeuern nicht unbedingt leise ist. gib dem anderen das Gefühl, dass er ein Weltmeister ist, der gerade sich auf seinen Titelkampf vorbereitet, dass er der beste Athlet ist den du kennst, und dass du stolz bist mit ihm zu arbeiten
 
 ### Sicherheitshinweise
 
