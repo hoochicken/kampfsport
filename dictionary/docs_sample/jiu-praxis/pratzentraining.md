@@ -36,6 +36,8 @@ die folgende Aufzählung enthält alle die Punkte, die du während des Katzen?:-
 * fussarbeit: geht er die Füße richtig ein Komma z.B da stand beim lowkick oder beim Haken
 * blickrichtung: er sollte dir etwa auf brusthöhe/schlüsselbein schauen. tut er das auch konsequent?
 
+**feedback / direkte Rückmeldung**: 
+
 ### Sicherheitshinweise
 
 auf zwei Weisen kann man Schaden beim Fratzen halten nehmenauf zwei Weisen kann man Schaden beim Fratzen halten nehmen.
