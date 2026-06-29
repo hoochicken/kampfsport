@@ -56,7 +56,12 @@ es ist ein bisschen eine gratWanderung beim Pratzentraining zu korrigieren, denn
     * 0:00: "2 minuten :30 ist eine lange Zeit konzentriere dich erstmal auf 
     * 0:20: "jezt dein erster Sprint! jetzt vier Wiederholung konzentriere also stark wie du kannst genau die Schlaghand super
     * 0:30: jetzt wieder ruhiger es sind noch zwei Minuten, triff jetzt stabil mach locker atme gut durch"
-    * 0:50: "nächster Sprint vier konzentrierte Wiederholungen 1 2 3 super
+    * 0:50: "nächster Sprint vier konzentrierte Wiederholungen 1 2 3 super [...]
+    * 1:40: erhole Dich jetzt 15 Sekunden. mach ganz langsam Punkt nachher gleich kommt die 30 Sekunden Belastung
+    * 1.56 es geht los in drei zwei power
+    * 2:00 mach schnell und locker, behalt genau diese Schnelligkeit bei achte auf deine für Hand bring die Führhand stärker genausoetc 
+    * 2:20 die letzten zehn Sekunden stärker noch einmal letzte Wiederholung WAAAAAH!
+ 
 * stimmmodulation:
 
 ### Sicherheitshinweise
