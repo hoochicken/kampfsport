@@ -8,5 +8,13 @@ der pratzenschläger ist derjenige oder diejenige, die auf die Katze einschlagen
 
 sicherlich interessieren dich jetzt hier zwei Fragen: was trainierst du als katzenschläger (omg, spracherkennung!) ? worin besteht der Unterschied zum Sandsack Training?
 
+## pratzenhalter
+
+ein weit verbreitetes Missverständnis ist es, dass du als Katzenhalter eigentlich gar nicht trainierst, sondern das nur der andere gerade trainieren. mit diesem Vorteil möchte ich hiermit ein für alle Mal ausräumen. kratzen halten ist so ziemlich die beste Schulung, die du überhaupt kriegen kannst als Training Punkt die folgende Aufzählung enthält alle die Punkte, die du während des Katzen?:-DHaltens trainierst
+
+
+
+## das Videospiel
+
 
 
