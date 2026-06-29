@@ -1,4 +1,4 @@
-## Atemi & Standup
+## Atemi allgemein
 
 Üblicherweise nimmt ein Rechtshänder des rechte Bein nach hinten, ein Linkshänder das linke Bein.
 
@@ -43,9 +43,15 @@ Wirkungsweise kann sein:
 
 Wer mit Gleichgewichtssuche etc. beschäftigt ist, ist beschäftigt und kann weder schlagen nach verteidigen.
 
-Bei **langsamen** Über MUSS eine Wirkung ersichtlich sein. Hierzu:
+aich bei **langsamen** Üben MUSS eine Wirkung ersichtlich sein. Hierzu:
 
 * den Atemi zu Ende führen in das Körperteil des Partner hinein, LANGSAM!
 * der Partner arbeitet bitte mit und gibt dem Treffer entsprechend nach
     * Schag in Bauch => Partner knickt ein, als wäre er schwer getroffen
     * Blenden => Partner wartet geduldig auf weitere Aktionen
+
+## schlag und stoss
+
+eine atemitechnik kann als Schlag, als Wirkungstreffer ausgeführt werden. dabei wird die Trefferfläche möglichst klein gehalten Ziel ist es, bei dem Gegner Schmerz und scharf zu erzeugen 
+
+alternativ kann eine atemidechnik als Stoß ausgeführt werden. dann wird eine möglichst große Trefferfläche gewählt, die die Kraft gut verteilt. so kann man den Gegner von sich wegstoßen, oder sich vom Gegner abstoßen
