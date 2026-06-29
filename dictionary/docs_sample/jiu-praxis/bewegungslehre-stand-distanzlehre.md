@@ -20,7 +20,7 @@ bevor wir auf die bewegungslehre einen Blick werfen, müssen wir uns die Kampfst
 
 welche Kampfstellungen haben wir denn? es gibt die frontale Kampfstellung (KS), die halbseitliche KS und die seitliche KS. 
 
-jede Kampfstellung favorisiert bestimmte Techniken. den Bereich in dem diese Technik wirksam sind nennen wir mal den hauptwirkungsbereich der Kampfstellung. als weiterer Parameter hinzu kommt der Stil des kampfsportlers, der natürlich bestimmte Techniken favorisiert
+jede Kampfstellung begünstigt bestimmte Techniken. den Bereich in dem diese Technik wirksam sind nennen wir mal den **hauptwirkungsbereich** der Kampfstellung. als weiterer Parameter hinzu kommt der Stil des kampfsportlers, der natürlich bestimmte Techniken favorisiert
 
 **frontale kampfstellung**
 
