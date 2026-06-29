@@ -8,7 +8,9 @@ der pratzenschläger ist derjenige oder diejenige, die auf die Katze einschlagen
 
 sicherlich interessieren dich jetzt hier zwei Fragen: was trainierst du als katzenschläger (omg, spracherkennung!) ? worin besteht der Unterschied zum Sandsack Training?
 
-wenn dich dein Partner nicht korrigiert, so hieß ihn dabei . 
+XXXXX
+
+wenn dich dein Partner nicht korrigiert, so weise ihn darauf . 
 
 sage z.B: "ich möchte heute auf meine Deckung achten. sie fällt mir immer runter. sag mir dass ich die Deckung hochziehen soll." 
 
