@@ -49,7 +49,15 @@ es ist ein bisschen eine gratWanderung beim Pratzentraining zu korrigieren, denn
  
 "Entschuldigung bitte, mir ist das aufgefallen darf ich dir einen kleinen Tipp geben?"
 
-**anfeuern und forden**: dieser Part ist am Pratzen halten mein Lieblingsfach. es ist einfach schön, den Partner zu fordern und über sich hinauswachsen zu lassen. z.B kannst du folgendes machen:  
+**anfeuern, forden, planen**: dieser Part ist am Pratzen halten mein Lieblingsfach. es ist einfach schön, den Partner zu fordern und über sich hinauswachsen zu lassen. z.B kannst du folgendes machen:  
+
+* anfeuerndes runterzählen: mal wiederholungsaufgaben zähle die Wiederholung für den Partner mach dies im Film waschschritten, in drei Schritten oder in einer Schritten, wie es gerade passt. die letzten fünf oder drei zählst du dann wie einen: "es sind nur noch fünf, jetzt noch vier, noch drei, zwei, AAAAAINS!"
+* **zeit-planung**: Unterteile längere Zeitabschnitte in unter Abschnitte. Beispiel hier: 2 Minute 30 Sekunden Zeitabschnitt: 
+    * 0:00: "2 minuten :30 ist eine lange Zeit konzentriere dich erstmal auf 
+    * 0:20: "jezt dein erster Sprint! jetzt vier Wiederholung konzentriere also stark wie du kannst genau die Schlaghand super
+    * 0:30: jetzt wieder ruhiger es sind noch zwei Minuten, triff jetzt stabil mach locker atme gut durch"
+    * 0:50: "nächster Sprint vier konzentrierte Wiederholungen 1 2 3 super
+* stimmmodulation:
 
 ### Sicherheitshinweise
 
