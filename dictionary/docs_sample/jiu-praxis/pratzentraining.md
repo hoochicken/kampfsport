@@ -8,7 +8,11 @@ der pratzenschläger ist derjenige oder diejenige, die auf die Katze einschlagen
 
 sicherlich interessieren dich jetzt hier zwei Fragen: was trainierst du als katzenschläger (omg, spracherkennung!) ? worin besteht der Unterschied zum Sandsack Training?
 
-wenn dich dein Partner nicht korrigiert, so hieß ihn dabei Punkt sage z.B: ich möchte heute auf meine Deckung achten. sie fällt mir immer runter. sag mir dass ich die Deckung hochziehen soll. Info: diese wenn du kannst du auch dann verwenden, wenn dein Partner du dein Partner schon genug korrigiert hast und dich weiter nerven möchtest, oder der Partner beratungsresistent ist und seine Deckung immer fallen lässt. indem du den aufforderst auch deine Deckung zu achten, wird er vielleicht auch an seine Deckung denken
+wenn dich dein Partner nicht korrigiert, so hieß ihn dabei . 
+
+sage z.B: "ich möchte heute auf meine Deckung achten. sie fällt mir immer runter. sag mir dass ich die Deckung hochziehen soll." 
+
+Info: diese wenn du kannst du auch dann verwenden, wenn du deinen Partner schon genug korrigiert hast und ihn weiter nerven möchtest. indem du ihn aufforderst, auf deine Deckung zu achten, achtet er hoffentlich auch auf seine Deckung. auch anwendbar bei beratungsresistenten Partnern, die sich nicht korrigieren lassen wollen . indem du den aufforderst auch deine Deckung zu achten, wird er vielleicht auch an seine Deckung denken
 
 ## pratzenhalter
 
