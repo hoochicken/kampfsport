@@ -45,9 +45,9 @@ ihr seid Trainingspartner. daher ist es selbstverständlich, dass ihr euch bei F
 
 siehst du also, dass der Partner sein stand war nicht eindreht bei einem Lowkick: mach ihn darauf aufmerksam. fällt seine Deckung während einer Technik oder davor oder danach: mache ihn darauf aufmerksam. 
 
-gib deinem Partner gute Rückmeldung, wenn er es korrigiert hat kleiner Tipp: korrigiere nicht so viel, gerade bei Anfängern reicht es wenn du in 10 Minuten genau eine Sache herausstellst. 
+**korrektur** gib deinem Partner gute Rückmeldung, wenn er es korrigiert hat kleiner Tipp: korrigiere nicht so viel, gerade bei Anfängern reicht es wenn du in 10 Minuten genau eine Sache herausstellst. 
 
-es ist ein bisschen eine gratWanderung beim Pratzentraining zu korrigieren, denn einerseits willst du ja intensiv trainieren andererseits auch nicht intensiv etwas Falsches trainieren. verwende z.B einfach folgende Eingangsfrage:
+halte beim Pratzentraining die ballance zwischen powergtaining und korrektur. denn einerseits will der andere intensiv trainieren andererseits auch nicht intensiv etwas Falsches. verwende z.B einfach folgende Eingangsfrage:
  
 "Entschuldigung bitte, mir ist das aufgefallen darf ich dir einen kleinen Tipp geben?"
 
@@ -59,19 +59,19 @@ es ist ein bisschen eine gratWanderung beim Pratzentraining zu korrigieren, denn
 
 **Beispiel hier** 
 
-2 Minute 30 Sekunden Zeitabschnitt:
+2:30 belastung Zeitabschnitt:
  
 * 0:00: "2 minuten :30 ist eine lange Zeit konzentriere dich erstmal auf 
 * 0:20: "jezt dein erster Sprint! jetzt vier Wiederholung konzentriere also stark wie du kannst genau die Schlaghand super
 * 0:30: jetzt wieder ruhiger es sind noch zwei Minuten, triff jetzt stabil mach locker atme gut durch"
 * 0:50: "nächster Sprint vier konzentrierte Wiederholungen 1 2 3 super [...]
-* 1:40: erhole Dich jetzt 15 Sekunden. mach ganz langsam Punkt nachher gleich kommt die 30 Sekunden Belastung
-* 1.56 es geht los in drei zwei power
+* 1:40: "erhole Dich jetzt 15 Sekunden. mach ganz langsam Punkt nachher gleich kommt die 30 Sekunden Belastung"
+* 1.56 "es geht los in drei zwei power"
 * 2:00 mach schnell und locker, behalt genau diese Schnelligkeit bei achte auf deine für Hand bring die Führhand stärker genausoetc 
-* 2:20 die letzten zehn Sekunden stärker noch einmal letzte Wiederholung WAAAAAH!
-* 0:05 danach: wow das war großartig
- 
-* stimmmodulation: sicherlich hast du gemerkt, dass anfeuern nicht unbedingt leise ist. gib dem anderen das Gefühl, dass er ein Weltmeister ist, der gerade sich auf seinen Titel kam vorbereitet, dass er der beste Athlet ist den du kennst, und dass du stolz bist mit ihm zu arbeiten
+* 2:20 "die letzten zehn Sekunden stärker noch einmal letzte Wiederholung WAAAAAH!"
+* 0:05 danach: "wow, du bist echt fit ,super leistung!"
+
+sicherlich hast du gemerkt, dass anfeuern nicht unbedingt leise ist. gib dem anderen das Gefühl, dass er ein Weltmeister ist, der gerade sich auf seinen Titel kam vorbereitet, dass er der beste Athlet ist den du kennst, und dass du stolz bist mit ihm zu arbeiten
 
 ### Sicherheitshinweise
 
