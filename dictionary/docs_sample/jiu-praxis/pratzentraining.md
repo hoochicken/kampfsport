@@ -26,7 +26,6 @@ die folgende Aufzählung enthält alle die Punkte, die du während des Katzen?:-
 
 **physioligisch** der Partner wird wahrscheinlich hartreten und schlagen. du lernst dabei erstens wie stark diese Schläge kommen. und zweitens lernst du auch wie du die Pratzen optimal mit deinem Körper verbindest, um möglichst wenig Schaden zu nehmen. 
 
-
 **Techniken erkennen** in der Regel wird eine trainingsaufgabe gegeben . in der Folge siehst du dieselbe Kombination immer und immer wieder. achte hierbei auf folgende Punkte
 
 * Gewichtsverlagerung vor dem Kick oder Schlag, die Gewichtsverlagerung ist das größte Anzeichen einer artemitechnik überhaupt
@@ -36,7 +35,21 @@ die folgende Aufzählung enthält alle die Punkte, die du während des Katzen?:-
 * fussarbeit: geht er die Füße richtig ein Komma z.B da stand beim lowkick oder beim Haken
 * blickrichtung: er sollte dir etwa auf brusthöhe/schlüsselbein schauen. tut er das auch konsequent?
 
+durch die Beobachtung lernst du effektiv, welche Vorbereitung nötig ist um eine bestimmte Technik durchzuführen. das bratzentraining ist also eine massive augenschulung.
+
 **feedback / direkte Rückmeldung**: 
+
+ihr seid Trainingspartner. daher ist es selbstverständlich, dass ihr euch bei Fehlern rückmelden gibt. 
+
+siehst du also, dass der Partner sein stand war nicht eindreht bei einem Lowkick: mach ihn darauf aufmerksam. fällt seine Deckung während einer Technik oder davor oder danach: mache ihn darauf aufmerksam. 
+
+gib deinem Partner gute Rückmeldung, wenn er es korrigiert hat kleiner Tipp: korrigiere nicht so viel, gerade bei Anfängern reicht es wenn du in 10 Minuten genau eine Sache herausstellst. 
+
+es ist ein bisschen eine gratWanderung beim Pratzentraining zu korrigieren, denn einerseits willst du ja intensiv trainieren andererseits auch nicht intensiv etwas Falsches trainieren. verwende z.B einfach folgende Eingangsfrage:
+ 
+"Entschuldigung bitte, mir ist das aufgefallen darf ich dir einen kleinen Tipp geben?"
+
+**anfeuern und forden**: dieser Part ist am Pratzen halten mein Lieblingsfach. es ist einfach schön, den Partner zu fordern und über sich hinauswachsen zu lassen. z.B kannst du folgendes machen:  
 
 ### Sicherheitshinweise
 
