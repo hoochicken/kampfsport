@@ -1,6 +1,6 @@
-## Positionen
+## Stellungen
 
-Als Kampfstellung bezeichnet die Körperposition, die man einimmt.
+Als Kampfstellung bezeichne ich hier die Körperstellung, die man einimmt.
 Sicherer Stand ergibt es Gleichgewicht Kontrolle und optimale Kraftübertragung bei Schlag- und Tritttechniken.
 Die Gewichtsverteilung variiert je nach Situation.
 Üblicherweise nimmt ein Rechtshänder des rechte Bein nach hinten, ein Linkshänder das linke Bein.
