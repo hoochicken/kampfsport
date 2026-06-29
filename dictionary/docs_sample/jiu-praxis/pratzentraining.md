@@ -8,11 +8,11 @@ der pratzenschläger ist derjenige oder diejenige, die auf die Katze einschlagen
 
 sicherlich interessieren dich jetzt hier zwei Fragen: was trainierst du als katzenschläger (omg, spracherkennung!) ? worin besteht der Unterschied zum Sandsack Training?
 
-XXXXX
+beim pratzentraining arbeitest du in dreidimensionalen Raum mit einem Partner zusammen. du hast den Vorteil, dass du dich optimal positionieren kannst und dass du ein richtiges gegenüber hast. du siehst die Auslage des Partners du siehst die Schultern, es ist eine optimale Vorbereitung für das Sparring, ohne dass du dabei irgendwelche Schläge einstecken musst oder vor irgendetwas Angst haben müsstest. 
 
-wenn dich dein Partner nicht korrigiert, so weise ihn darauf . 
+du kannst so sicher und behütet trainieren. gleichzeitig hast du nicht nur einen Partner dir gegenüber, sondern eigentlich deinen persönlichen Trainer. der gibt dir jederzeit Rückmeldung zu deinen Techniken. so kannst Du Dich optimal verbessern
 
-sage z.B: "ich möchte heute auf meine Deckung achten. sie fällt mir immer runter. sag mir dass ich die Deckung hochziehen soll." 
+wenn dich dein Partner nicht korrigiert, so weise ihn darauf . sage z.B: "ich möchte heute auf meine Deckung achten. sie fällt mir immer runter. sag mir dass ich die Deckung hochziehen soll." 
 
 Info: diese wenn du kannst du auch dann verwenden, wenn du deinen Partner schon genug korrigiert hast und ihn weiter nerven möchtest. indem du ihn aufforderst, auf deine Deckung zu achten, achtet er hoffentlich auch auf seine Deckung. auch anwendbar bei beratungsresistenten Partnern, die sich nicht korrigieren lassen wollen . indem du den aufforderst auch deine Deckung zu achten, wird er vielleicht auch an seine Deckung denken
 
@@ -29,7 +29,7 @@ die folgende Aufzählung enthält alle die Punkte, die du während des Katzen?:-
 **Koordination**: diese memorierung setzt du nun um indem du die Pratzen korrekt hältst jeder Schlag erfordert eine korrekte Haltung der pratze
 
 * gerade Schlag: gerade Bratze 
-* Haken, rechtwinklig gehaltene Bratze 
+* Haken, rechtwinklig gehaltene pratze 
 * Frontkick: doppelt gehaltene Bratze vor dem Bauch etc.
 
 **physioligisch** der Partner wird wahrscheinlich hartreten und schlagen. du lernst dabei erstens wie stark diese Schläge kommen. und zweitens lernst du auch wie du die Pratzen optimal mit deinem Körper verbindest, um möglichst wenig Schaden zu nehmen. 
@@ -102,5 +102,5 @@ Kombinationen sagst du einfach an z.B
 * jab punch highkick, oder 
 * doppelter frontkick 
 
-ziel ist es, dass der Partner flüssig üben kann
+ziel ist es, dass dein Partner flüssig üben kann.
 
