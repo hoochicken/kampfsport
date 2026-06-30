@@ -11,7 +11,7 @@ finten sind Täuschungen, die du während des Kampfes anwendest. dabei machst du
 
 schauen wir uns einmal an was da Aussicht des Gegners passiert bei ihm wird sich in etwa folgendes abspielen : " Jab punch hook . eine einfache Kombination, das nächste Mal kriegt der die nicht durch . noch mal! super das nächste Mal mache ich das besser. davor habe ich doch gar keine Angst außerdem ist es wohl ein sehr schlechter Gegner wahrscheinlich kommt jetzt wieder jab punch hook."
 
-## durchführung
+## ernst genommen werden
 
 natürlich gehört ein bisschen schauspielerisches Talent ebenfalls dazu. bringe den HUK besonders stark, jedes Mal. so dass ich im Kopf neben den Gedanken die du gerade eben gehört hast auch ein bisschen Angst und Respekt breit macht. denn das sorgt dafür, dass er Fehler machen wird der Trick an der vierten Wiederholung, an der Variante ist, dass der Gegner nun der Überzeugung ist, dass man wieder die altbekannte einfache Dreierkombination kommt und du bestätigst ihn dadurch mit der ersten Technik, den Jab. der Gegner wird aus Hochmut, dass er dich durchschaut hat, aus Angst nun versuchen den folgenden Punch und Hook abzuwehren. du aber setzt ganz klug ein Frontkick, vielleicht sogar ein bisschen Richtung Leber
 
@@ -43,4 +43,13 @@ finten lassen sich bei aller Art von Techniken anbringen, z.B
 der Freeze ist eine meiner absoluten Lieblingstechniken, sicherlich wird es dir genauso gehen. nehmen wir wieder das Beispiel oben mit Jet punch. bringe jab punch dreimal hintereinander beim vierten Mal machst du jab Punch lässt den Punch  auf halbem wege stehen. 
 
 wenn du einen Gegner hast, der sehr gut ausreichen kann, ist der Free das Mittel der Wahl. der angedeutete Punch lässt den Gegner bereits in die Ausweichbewegung verfallen. und du kannst ihn dann etwa eine halbe Sekunde später komplett abschießen. 
+
+## wedeln
+
+wedeln ist jetzt keine direkte finde, aber eine Ablenkung Bernd der Gegner vor dir stehst redest du z.B mit der Schlaghand ein bisschen hinter dir. es ist eine große Bewegung. 
+
+diese wedelbewegung zieht die Aufmerksamkeit und den Blick des Gegners auf sich. setze dann einen schnellen Frontkick oder eine schnelle Schlaghand oder eine beliebige andere Kombination. 
+
+in der Regel ist der Gegner so abgelenkt, dass es nicht schafft, diesen Angriff angemessen zu operieren
+
 
