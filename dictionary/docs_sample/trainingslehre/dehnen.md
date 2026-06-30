@@ -35,33 +35,33 @@ diese komplette den Routine sorgt dafür, dass jede muskulaturgruppe einigermaß
 
 **unterkörper**
 
-* die zehn auf der Matte bewegen runden, keine Bewegung um den großen Zeh 
-* Knöchel Knöchel nach innen und nach außen legen 
-* Knie Kniebeugen machen, dabei die Knie beim ausstrecken tatsächlich durchstrecken wenn möglich. versuchen den Boden zu erreichen. gegebenenfalls in der Hocke anfangen und die Beine strecken und so die Dehnung zu erreichen 
-* Oberschenkel Ausfallschritte zur Dehnung der großen Oberschenkelmuskulatur 
-* Innenschenkel anderthalb schulterbreit stehen und in die große pferdestellung gehen die Knie mit Händen oder Ellenbogen nach außen sehen
+* zehen: die zehen auf der Matte bewegen runde, kleine Bewegung um den großen Zeh 
+* Knöchel: Knöchel nach innen und nach außen legen 
+* Knie: Kniebeugen machen, dabei die Knie beim ausstrecken tatsächlich durchstrecken wenn möglich. versuchen den Boden zu erreichen. gegebenenfalls in der Hocke anfangen und die Beine strecken und so die Dehnung zu erreichen 
+* Oberschenkel: Ausfallschritte zur Dehnung der großen Oberschenkelmuskulatur 
+* Innenschenkel: anderthalb schulterbreit stehen und in die große pferdestellung gehen die Knie mit Händen oder Ellenbogen nach außen sehen
 
 wie du siehst wird hier einfach von unten nach oben gearbeitet. so kannst du einfach dein Hirn ausstellen und weil denn du weißt, dass du jedes Gelenk bzw jede Muskelgruppe beachtet hast
 
 **oberkörper**
 
-* Oberkörper mit den ausgestreckten Händen nach links und nach rechts eindrehen, dabei die Knie leicht gebeugt halten
-*  Hände ausstrecken und nach oben greifen 
+* Oberkörper: mit den ausgestreckten Händen nach links und nach rechts eindrehen, dabei die Knie leicht gebeugt halten
+* Hände ausstrecken und nach oben greifen 
 * nach links und nach rechts abbeugen
 
 **Schultern und Arme**
 
-* Schultern kreisen Schultern vorwärts und rückwärtskreisen. die Betonung der Bewegung sollte immer auf nach hinten liegen ( dies wird der natürlichen Tendenz der Kampfsportler entgegen, einen runden Buckel zu bekommen 
+* Schultern: kreisen Schultern vorwärts und rückwärtskreisen. die Betonung der Bewegung sollte immer auf nach hinten liegen ( dies wird der natürlichen Tendenz der Kampfsportler entgegen, einen runden Buckel zu bekommen 
 * Schultern und Brustmuskulatur: Arme nach hinten aufreißen einmal für die Ellenbogen einmal der komplett ausgestreckte Arm 
-* Schultern Arme kreisen, vorwärts rückwärts, gegen gleich
-* Handgelenke und Finger durch kreisen
+* Schultern: Arme kreisen, vorwärts rückwärts, gegen gleich
+* Handgelenke und Finger: durchkreisen
 
 **hals**
 
 beim Hals bitte vorsichtig Verfahren, da hängt unser Kopf dran und sämtliche Nervenverbindungen gehen durch . hier lieber nicht in den Schmerzbereich dehnen
 
 * nach links und rechts gucken, 
-* nach unten und geradeaus gucken( nicht nach oben schauen, der nach hinten kann man den Kopf nicht dehnen 
+* nach unten und geradeaus gucken( nicht nach oben schauen, denn nach hinten kann man die wirbelsäule nicht dehnen )
 * den Kopf nach unten Kreisen von rechts nach links, so dass das Kinn das muss beim berührt
 
 **Geschichte** meine Omi hat sich jeden Morgen gedient selbst mit über 70 Jahren noch. das hat mir sehr imponiert, wie sie morgens um 8 Uhr vor der Türe draußen steht und in ihrem Unterhemd die Windmühle schlägt. auch mein Vater und meine Tante haben eine Morgenroutine, Frühgymnastik die das auch genannt wird. vielleicht wäre das ja auch was  für dich
