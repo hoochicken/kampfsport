@@ -57,11 +57,11 @@ halte beim Pratzentraining die ballance zwischen powergtaining und korrektur. de
  
 "Entschuldigung bitte, mir ist das aufgefallen darf ich dir einen kleinen Tipp geben?"
 
-**deckungskorrektur**: Mister Partner seine Deckung fallen so mache ihn darauf aufmerksam. sag ihm das oder zeige es ihm indem du mit den Praxen sanft drin in Richtung Kopf schlägst. arbeitet hier zusammen, lobe es wenn die Deckung richtig sitzt
+**deckungskorrektur**: lässt Partner seine Deckung fallen so mache ihn darauf aufmerksam. sag ihm das oder zeige es ihm indem du mit den Praxen sanft drin in Richtung Kopf schlägst. arbeitet hier zusammen, lobe es wenn die Deckung richtig sitzt
 
 **anfeuern, forden, planen**: dieser Part ist am Pratzen halten mein Lieblingsfach. es ist einfach schön, den Partner zu fordern und über sich hinauswachsen zu lassen. z.B kannst du folgendes machen:  
 
-**anfeuerndes runterzählen**: mal wiederholungsaufgaben zähle die Wiederholung für den Partner mach dies im Film waschschritten, in drei Schritten oder in einer Schritten, wie es gerade passt. die letzten fünf oder drei zählst du dann wie einen: "es sind nur noch fünf, jetzt noch vier, noch drei, zwei, AAAAAINS!"
+**anfeuerndes runterzählen**: zähle die Wiederholung für den Partner mach dies im Film waschschritten, in drei Schritten oder in einer Schritten, wie es gerade passt. die letzten fünf oder drei zählst du dann wie einen: "es sind nur noch fünf, jetzt noch vier, noch drei, zwei, AAAAAINS!"
 
 **zeit-planung**: Unterteile längere Zeitabschnitte in unter Abschnitte. positioniere dich so, dass du zwischendurch auf die Zeituhr schauen kannst. plane die Belastungs- und Erholungsphasen deines Partners;  
 
@@ -79,7 +79,7 @@ halte beim Pratzentraining die ballance zwischen powergtaining und korrektur. de
 
 sicherlich hast du gemerkt, dass anfeuern nicht unbedingt leise ist. gib dem anderen das Gefühl, dass er ein Weltmeister ist, der gerade sich auf seinen Titelkampf vorbereitet, dass er der beste Athlet ist den du kennst, und dass du stolz bist mit ihm zu arbeiten
 
-**kombinationen**: neben Einzeltechniken lassen sich auch Kombinationen auf den Pratzen üben. gerade beim freien Pratzen halten, wo es keine Vorgaben gibt, verwende auch hier Kombination. sage also nicht nur Heike sondern jetpunch heikig genau noch mal. über diese Kombination mit dem Partner ein nichts die Menge an Kombination ist wichtig, sondern die Tatsache dass sie beherrscht werden, also die Qualität. und das für dich nach den Sicherheitshinweisen weiter zum letzten Abschnitt Videospiel
+**kombinationen**: neben Einzeltechniken lassen sich auch Kombinationen auf den Pratzen üben. gerade beim freien Pratzen halten, wo es keine Vorgaben gibt, verwende auch hier Kombination. sage also nicht nur Highkick sondern jab punch highkick genau an. übe diese Kombination mit dem Partner ein. nicht die Menge an Kombinationen ist wichtig, sondern die Tatsache dass eine kombination beherrscht wird, also die Qualität. und das führt dich nach den Sicherheitshinweisen weiter zum letzten Abschnitt Videospiel
 
 ### Sicherheitshinweise
 
@@ -89,13 +89,13 @@ auf zwei Weisen kann man Schaden beim pratzenhalten nehmenauf.
 
 weiteres Paradebeispiel ist ein **Haken** oder **roundhouse Kick** oder **back roundhouse Kick**. oft muss die Bratze hierfür rechtwinklig gehalten werden und die Schulter muss entsprechend nachgeben bei ihm . dies kann zur Schulterverletzung führen. denn die Schlagbewegung führt in die Belastungsrichtung der Schulter hinein Tipp im stattdessen die andere Hand um die Bratze zu halten
 
-**eigenverletzung**: durch eine Bratze die nicht stark genug gehalten wird, kann der Schlag so weit führen, dass du dich selbst schlägst. Beispiel ist hierfür eine vor dein Gesicht gehaltene Bratze. der Partner schlägt eine Gerade und dies führt deine Hand so weit nach hinten, dass du dir selbst ins Gesicht schlägst sehr unangenehm und peinlich noch dazu. mach es gleich beim nächsten Schlag besser.
+**eigenverletzung**: durch eine pratze die nicht stark genug gehalten wird, kann der Schlag so weit führen, dass du dich selbst schlägst. Beispiel ist hierfür eine vor dein Gesicht gehaltene pratze. der Partner schlägt eine Gerade und dies führt deine Hand so weit nach hinten, dass du dir selbst ins Gesicht schlägst sehr unangenehm und peinlich noch dazu. mach es gleich beim nächsten Schlag besser.
 
 ## das Videospiel
 
-pratzenhalten ist eine schematische Arbeit. arbeite als pratzenhalter genau. jeder Schlagtechnik und kicktechnik hat seine eigene Art, wie man optimal die Bratze hält. dadurch kannst du eine Art Videospiel generieren 
+pratzenhalten ist eine schematische Arbeit. arbeite als pratzenhalter genau. jeder Schlagtechnik und kicktechnik hat seine eigene Art, wie man optimal die pratze hält. dadurch kannst du eine Art Videospiel generieren 
 
-du hältst die Pratzen und der Partner muss erkennen Wasser zu schlagen hat. dadurch wird Partner in seiner Aufmerksamkeit und seiner Wahrnehmung geschult
+du hältst die Pratzen und der Partner muss erkennen, Was er zu schlagen hat. dadurch wird Partner in seiner Aufmerksamkeit und seiner Wahrnehmung geschult
 
 Kombinationen sagst du einfach an z.B
 
