@@ -28,6 +28,8 @@ lass uns noch mal ein bisschen darüber nachdenken, was ich im Kopf des Gegners 
 * mache ständig auslagenwechsel, bringt den Gegner zum Verzweifeln
 * wiederhole deine Kombination so wie oben und variiere sie. nach dem fünften Mal, hat es der Gegner wahrscheinlich geschnallt, würfelt und einfach alles durcheinander, und dann später mit deinen sicheren standardkombination wiederzukommen
 
+## fintierungs-arten
+
 finten lassen sich bei aller Art von Techniken anbringen, z.B
 
 * würfe
@@ -51,5 +53,32 @@ wedeln ist jetzt keine direkte finde, aber eine Ablenkung Bernd der Gegner vor d
 diese wedelbewegung zieht die Aufmerksamkeit und den Blick des Gegners auf sich. setze dann einen schnellen Frontkick oder eine schnelle Schlaghand oder eine beliebige andere Kombination. 
 
 in der Regel ist der Gegner so abgelenkt, dass es nicht schafft, diesen Angriff angemessen zu operieren
+
+## variante: falsches anzeichen
+
+das falsche anzeichen ist der übersetzungsversuch von false tell. ein tell ist die unwillentliche Ankündigung einer Technik durch ein Verhalten. 
+
+ganz typisch ist z.B, das vor der Schlaghand die Deckung z.B 10 cm nach unten fällt bevor sie nach vorne geschlagen wird. genau diese Bewegung ist der Tell = abzeichen
+
+sobald die Deckung fällt weißt du: "ach jetzt bringt der wieder eine fphrhand"
+
+ein fortgeschrittenerer Gegner weiß das natürlich auch. das heisst:  du baust also bewusst einen tell mit ein. 
+
+**beispiel**: ziehe auffällig immer wieder die führHand nach unten bevor du sie schlägst. mache das so lange, bis Du sicher ist, dass der Gegner glaubt es verstanden zu haben. er wird dich für einen dummen Anfänger halten. denn du machst so einen anfängerfehler. 
+
+nutze dies zu deinem Vorteil warte auf den perfekten Zeitpunkt. 
+
+zu diesem Zeitpunkt legst du diesen Anfängerfehler ab und schlägst plötzlich doppelt so schnell wieder Gegner ist gewohnt ist. sein Gehirn ist darauf eingestellt, dass es Zeit hat zu realisieren, dass ein Angriff kommt. genau diese Zeit nimmst du ihn weg . er wird es nicht schaffen seine Deckung nach oben zu nehmen. gehst du die Möglichkeit und parisierbare Schläge zu schlagen Punkt das gibt der Punkte und gegebenenfalls den K.o.(im sparen bitte nur spielerisch)
+
+## auslagenwechsel
+
+es ist kaum als Finte zu bezeichnen, passt aber dennoch gut in dieses Kapitel. hast du einen mehr ründigen Kampf vor dir, kannst du den Gegner bewusst auf eine Auslage in der ersten Runde drin. 
+
+Beispiel in der ersten Runde kennst Du konsequent als Rechtsausleger du machst sehr viel Druck. im Kopf des Gegners baut sich dann eine Strategie für ein Rechtsausleger zusammen. 
+
+in der zweiten Runde wechselst du in deine normale Linksausleger-Auslage die Strategien , die sich der Gegner im Kopf zusammengebaut hat, werden in diesem Moment und wirksam gemacht. denn der Kampf gegen einen Rechtsausleger bedingt ein anderes Bewegungsmuster als gegen einen Linksausleger
+
+probiere das doch einfach mal aus, wenn du dich in beiden auslagen sicher fühlst
+
 
 
