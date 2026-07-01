@@ -69,7 +69,7 @@ Möglichkeiten sind:
 
 Ziel ist es, dass ihr beide gefordert seid und Spaß am Training habt.
 
-### Sicherheit
+### Sicherheit - Atemi
 
 Die Sicherheit des Partners und deine eigene Sicherheit stehen immer an erster Stelle.
 
@@ -81,7 +81,16 @@ Anders ausgedrückt: Stell dir vor, du würdest jemanden schwer verletzen, nur w
 
 Wenn du eine Verletzung hast, teile dies deinem Partner mit.
 
-Gibt dein Partner ungewöhnliche Anweisungen, frage nach. Vielleicht liegt eine Verletzung vor und der Schmerz tritt deutlich früher ein, als die Beweglichkeit des Gelenks vermuten lässt.
+Gibt dein Partner "ungewöhnliche" Anweisungen, frage nach. Vielleicht liegt eine Verletzung vor und der Schmerz tritt deutlich früher ein, als die Beweglichkeit des Gelenks vermuten lässt oder er kuriert gerade eine gebrochene Nase aus.
+
+### Sicherheit - Lokalität
+
+im Kampfsport ist man meist in einer ganzen Gruppe auf der Matte. hier kann es zwangsläufig zu Verletzungen kommen. Habe aber bei Partnerübungen immer deine Umgebung im Blick. Schaue dahin, wohin dein Partner nicht schauen kann. Warne ihn wenn Gefahr droht, z.B.:
+
+* verbal: "Komm zu mir, Vorsicht!"
+* visuell: die Hände hochnehmen und rückwärts laufen, als würdest du dich ergeben, dadurch ist dem Partner klar, dass er dich nicht angreifen soll, sondern dass er aufpassen muss
+* haptisch am Partner: den Partner greifen oder Clinchen und aus der Gefahr ziehen
+* haptisch an der Gefahr: die Gefahr anfassen und sanft wegschieben (nicht schubsen) und dabei sagen: "Achtung, Jungs!" oder "Geht da mal rüber, Mädels!"
 
 ### Angst
 
