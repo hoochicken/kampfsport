@@ -64,7 +64,7 @@ extra:
 nav:
   - "Einleitung": "index.md"
   - "Prompts Init": "prompts.md"
-  - "Jiu - Theorie":
+  - "Kampfsport - Theorie":
       - "Einleitung": "jiu-theorie/einleitung.md"
       - "Geschichte": "jiu-theorie/geschichte.md"
       - "Erscheinungsformen": "jiu-theorie/erscheinungsformen.md"
@@ -72,7 +72,7 @@ nav:
       - "Lebenshaltung": "jiu-theorie/lebenshaltung.md"
       - "Bungo": "jiu-theorie/bungo.md"
       - "Klein sein im Kampfsport": "jiu-theorie/klein-sein-im-kampfsport.md"
-  - "Jiu - Praxis":
+  - "Kampfsport - Praxis":
       - "Einleitung": "jiu-praxis/einleitung.md"
       - "Fallschule": "jiu-praxis/fallschule.md"
       - "Stellungen": "jiu-praxis/stellungen.md"
@@ -117,6 +117,7 @@ nav:
   - "Eigen-Optimierung":
       - "Einleitung": "solo-training/einleitung.md"
       - "Training &amp; Disziplin, Tagestraining": "solo-training/training-disziplin-tagestraining.md"
+      - "Lebensführung":"solo-training/lebensfuehrung.md"
       - "Wiederholung &amp; Memorierung": "solo-training/wiederholung-memorierung.md"
       - "Fehlerbehebung": "solo-training/fehlerbehebung.md"
       - "Kleine Schritte &amp; Einen Plan haben": "solo-training/kleine-schritte-einen-plan-haben.md"
