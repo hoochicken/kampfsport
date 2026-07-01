@@ -18,18 +18,19 @@ das heißt du gehst jeden Tag zur gleichen Zeit ins Bett und stehst du jeden Tag
 
 ## ernährung und fasten
 
-**nährstoffe**: in Europa essen wir in der Regel viel mehr als er eigentlich bräuchten Punkt und dazu noch die falschen Sachen. wenn man sich mal unsere Supermärkte anschaut und das Verhältnis von der frischmittelabteilung zu der Süßwaren und chipsabteilung betrachtet
+**nährstoffe**: in Europa essen wir in der Regel viel mehr als er eigentlich bräuchten Punkt und dazu noch die falschen Sachen. das zeigt sich auch, wenn man sich mal unsere Supermärkte anschaut und das Verhältnis von der frischmittelabteilung zu der Süßwaren und chipsabteilung betrachtet
 
-was kam Sportler benötigst du Muskeln. entsprechend solltest du auf folgende bestandteile achten: 
+als Sportler benötigst du Muskeln. u d normalgewichtig zu sein, ist in den meisten sportarten von vorteil. entsprechend solltest du auf folgende bestandteile achten: 
 
 * Eiweiß, enthalten z.B in in Soja Seitan Bohnen Erbsen (oder auch Fleisch und Quark)
+* fett
 * Ballaststoffe, enthalten in jedem Gemüse z.B Karotten Tomaten Zucchini
 
-um einer Mangelernährung vorzubeugen, ist möglichst breit, verfestige dich nicht auf nur drei Lebensmittel oder drei Yum-Yum-supppen weil die so praktisch sind
+um einer Mangelernährung vorzubeugen, ist möglichst breit, verfestige dich nicht auf nur drei Lebensmittel oder drei Yum-Yum-suppen weil die so praktisch sind
 
-wenn du schon fertig Süppchen machst, schneid dir wenigstens ein bisschen Gemüse rein
+wenn du schon fertig-süppchen machst, schnippel dir wenigstens ein bisschen Gemüse rein
 
-**b12 für Veganer!**: solltest du vegan sein, achte unbedingt auf B12. bei B12 Mangel treten irreparable Nährstoffe auf. wenn du den Nervenschäden merkst ist es schon zu spät. das willst du nicht
+**b12 für Veganer!**: solltest du vegan sein, achte unbedingt auf B12. bei B12 Mangel treten irreparable neevenschäden auf. wenn du den Nervenschäden merkst ist es schon zu spät. das willst du nicht
 
 **fasten**: unter Fasten wird hier der völlige Verzicht auf Nahrung für eine gewisse Zeit betrachtet es wird Punkten und zwar ausschließlich Wasser Tee oder Gemüsebrühe.
 
@@ -37,9 +38,21 @@ dass man während des Fastens ein bisschen Hunger hat, liegt ja auf der Hand. wa
 
 Autophagie ist der körpereigene Recycling-Mechanismus der Zellen . Die Zellen bauen beschädigte Proteine und defekte Bestandteile ab . Sie nutzen den Abfall als Energiequelle oder für den Aufbau neuer, gesunder Strukturen . Das Prinzip ähnelt einer Müllabfuhr mit eigener Recycling-Anlage
 
-lass es mich mit einem Beispiel erklären. deine Zelle ist wie eine wohnung in der du lebst. du sitzt am Rechner machst irgendwas und irgendwann bestellst du dir essen du kriegst die Pizza an der Tür. du isst die Pizza, setz dich wieder an den Rechner und die Pizza Packung wird irgendwo rum das machst du so ein Jahr lang Punkt und in diesem Jahr wird sich deine Wohnung in eine Müllkippe verwandeln. überall sind Pizzakartons die Alu Container vom Inder, Cola Becher Kaffee to go Becher und verschmutztes. und dann kommt der Tag,an dem Pizzaservice nicht kommt. das ist total nervig, weil du hast Hunger. also wartest du, nach drei Tagen beschließt du, dass der Hunger so groß ist dass du mal schaust ob noch irgendwo was zu essen ist. du machst eine Pizza Packung auf und schläft fest dass da noch ein trockenes Stück Pizza drin ist also isst du das weil das die Pizza packen zusammen. nach weiteren zwei Tagen hast du plötzlich eine aufgeräumte Wohnung. nach einer Woche ist doch das Treppenhaus sauber. und genau das, was in deiner Wohnung geschehen würde, das passiert auch in deiner Zelle Punkt dein Körper reinigt sich.
+lass es mich mit einem Beispiel erklären. deine Zelle ist wie eine wohnung in der du lebst. du sitzt am Rechner machst irgendwas und irgendwann bestellst du dir essen du kriegst die Pizza an der Tür. du isst die Pizza, setz dich wieder an den Rechner.  das machst du so ein Jahr lang . und in diesem Jahr wird sich deine Wohnung in eine Müllkippe verwandeln. überall sind Pizzakartons die Alu Container vom Inder, Cola Becher Kaffee to go Becher und verschmutztes. 
 
+und dann kommt der Tag,an dem Pizzaservice nicht kommt. das ist total nervig, weil du hast Hunger. also wartest du, nach drei Tagen beschließt du, dass der Hunger so groß ist dass du mal schaust ob noch irgendwo was zu essen ist. du machst eine Pizza Packung auf und stellst fest dass da noch ein trockenes Stück Pizza drin ist. also isst du das weil das und klappst die Pizzapackung zusammen. nach weiteren zwei Tagen hast du plötzlich eine aufgeräumte Wohnung. nach einer Woche ist doch das Treppenhaus sauber. 
 
+und genau das, was in deiner Wohnung geschehen würde, das passiert auch in deiner Zelle . dein Körper reinigt sich. 
+
+die nahrungsverarbeitung ist für den Körper Hochleistung. er stellt sich auf unglaublich viele Rohstoffe ein die angeliefert werden, und versucht das irgendwie in Energie und Baustoffe umzuwandeln dadurch hat er kaum Zeit, richtig aufzuräumen und auch mal Schäden zu reparieren. indem du fastest gibst du den Körper einfach mal in Ruhepause. er fährt seine Energieverbrauch runter. er verbraucht alles, was irgendwie noch verbrauchenswert ist. und genau dieser Prozess nennt sich Autophagie
+
+dies gibt dem Körper viel Kraft zurück und ermöglicht ein reibungsloseres funktionieren.
+
+es gibt verschiedene Möglichkeiten, wie du fasten kannst plane das so, wie du es willst. ich persönlich fasste alle drei Monate für drei Tage. das ist nicht viel, mehr kriege ich aber irgendwie gerade nicht hin. auch fünf sieben oder zehn Tage sind gute fastenintervalle
+
+kleiner Tipp: gönne dir während des Fastens Ruhe. gehe spazieren, mach aber kein Hochleistungstraining.
+
+**achtung**: sei was das Fasten anbetrifft bitte vernünftig. es ist für den Körper sehr ungewohnt, erstmal nichts zu essen. gegebenenfalls spricht dich mit dem Arzt deines Vertrauens ab, damit er dich begleitet oder such dir eine Fastengruppe. insbesondere, wenn du Diabetiker bist, kann das mit dem Fasten nicht so einfach sein. wie gesagt: handle vernünftig!
 
 ## alles ist training
 
