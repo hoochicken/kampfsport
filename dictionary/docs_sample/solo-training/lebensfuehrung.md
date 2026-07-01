@@ -30,6 +30,10 @@ um einer Mangelernährung vorzubeugen, ist möglichst breit, verfestige dich nic
 
 wenn du schon fertig-süppchen machst, schnippel dir wenigstens ein bisschen Gemüse rein
 
+sie das mit dem Essen auf jeden Fall locker,  versteife dich da nicht zu sehr du bist immer noch ein Mensch, dein schönes Leben haben willl. vermeide orthorexie, das heißt es übermäßige achten auf Essen. das macht dich nur unglücklich und führt häufig zu einer massiven Fehlernährung führen. über einige Zeit (Monate, Jahre) kann der Körper das kompensieren Punkt irgendwann aber einfach dann nicht mehr Punkt und dann ist es in der Regel sehr schlimm 
+
+halte dir immer vor Augen, dass du essen musst, wenn du trainierst. geht darum dein Körper gesund und fit zu halten.
+
 **b12 für Veganer!**: solltest du vegan sein, achte unbedingt auf B12. bei B12 Mangel treten irreparable neevenschäden auf. wenn du den Nervenschäden merkst ist es schon zu spät. das willst du nicht
 
 **fasten**: unter Fasten wird hier der völlige Verzicht auf Nahrung für eine gewisse Zeit betrachtet es wird Punkten und zwar ausschließlich Wasser Tee oder Gemüsebrühe.
