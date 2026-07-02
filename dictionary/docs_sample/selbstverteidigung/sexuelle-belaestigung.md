@@ -10,6 +10,26 @@ ich glaube sexuelle Belästigung entsteht aus einer großen Verunsicherung. da i
 
 dass der Täter in der Regel unsicher ist keine Entschuldigung. es soll einfach eine Erklärung für diese Verhaltensweise bieten.
 
+## mit verbaler sexueller gewalt umgehen
+
+nur mal angenommen, du bist in einem Kaffee oder einer Bar. du wirst sexuell belästigt wirst sexuell belästigt . es kommt ein Spruch zu dir geraunt, halbgeflüstert wie "du hast aber schöne Beine kannst du dir auch mal für mich breit machen." 
+
+Frage zurück was er gesagt hat, so als hättest du nicht verstanden also in etwa so etwas 
+
+"entschuldigung ich habe sie nicht verstanden könnten sie das noch einmal wiederholen könnten Sie das bitte noch mal lauter sagen damit es alle hören oder soll ich das für sie wiederholen okay dann wiederhole ich einfach was Sie gesagt haben sie haben gerade eben gesagt dass .." und dann wiederholst du, was er dir gerade an den Kopf geworfen hat.
+
+die Frage kann ruhig laut erfolgen. damit schaffst du Öffentlichkeit und legst gleichzeitig seine Taktik des sexuellen Angriffs offen. die Täter rechnen in der Regel damit, dass eben keine Gegenwehr kommt oder dass ich die Frau verschämt wegdreht. indem Du nachfragst weil du einfach etwas schlecht verstanden hast, zwingst du ihn dazu dies laut zu wiederholen und das ist sehr unangenehm für diese Person.
+
+## Umgang mit körperlicher sexueller Belästigung
+
+dies ist ein Angriff auf deinen Körper Punkt keiner darf Dich anfassen. du kannst hier jede Maßnahme verwenden, die bei der distanzlehre erwähnt wird: 
+
+* Öffentlichkeit schaffen durch verbale Deeskalation 
+* wegschubsen 
+* auf die Nase schlagen
+* hilfe von Umstehenden anfordern 
+* die Polizei rufen
+
 ## die liste
 
 Diese Liste an sexuellen Belästigungen ist von mir erstellt. Es sind ausschliesslich sexuelle Belästigungen, die ich erfahren habe.
