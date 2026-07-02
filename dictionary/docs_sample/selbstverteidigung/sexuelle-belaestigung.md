@@ -1,6 +1,6 @@
 ## Sexuelle Belästigung
 
-sexuelle Belästigung wird vor allem von Männern gegen Frauen ausgeübt. hier kann es sowohl zur verbalen als auch zu körperlichen Übergriffen kommen. hier gibt es kein richtig oder falsch, was die Reaktion betrifft. die Situation sind so unterschiedlich und die übergriffige Person in ihrer Taktik so Unikat, dass es schwer ist hier eine allgemeine Taktik zu finden. im Folgenden findest du eine Liste von Situationen und möglichen Reaktionen darauf. diese Reaktionen sind nicht richtig, sondern einfach nur vorgestellt. es ist schwer in einer Situation spontan zu reagieren, weil man in der Regel so überfahren ist und und sich verletzlich fühlt. das wiederum führt auch dazu, dass man überhaupt nicht reagiert, oder mit einem verlegenen wegschauen. dies wiederum gibt den Tätern Vortrieb, die merken, dass keine Bestrafung kommt. somit machen sie immer dreister und wilder weiter. es ist also eine Art Teufelskreis. zudem ist es auch noch gefährlich, in irgendeiner Weise zu reagieren, und es ist auch gefährlich nicht zu reagieren. man hat einfach die komplette Arschkarte gezogen als Frau, wenn so etwas passiert. daher hoffe ich, dass du bei deiner nächsten erfahrenen sexuellen Belästigung, in einer Gruppe unterwegs ist bist, in einem Café bist mit möglichst vielen Zeugen.
+sexuelle Belästigung wird vor allem von Männern gegen Frauen oder Kindern ausgeübt. hier kann es sowohl zur verbalen als auch zu körperlichen Übergriffen kommen. hier gibt es kein richtig oder falsch, was die Reaktion betrifft. die Situation sind so unterschiedlich und die übergriffige Person in ihrer Taktik so Unikat, dass es schwer ist hier eine allgemeine Taktik zu finden. im Folgenden findest du eine Liste von Situationen und möglichen Reaktionen darauf. diese Reaktionen sind nicht richtig, sondern einfach nur vorgestellt. es ist schwer in einer Situation spontan zu reagieren, weil man in der Regel so überfahren ist und und sich verletzlich fühlt. das wiederum führt auch dazu, dass man überhaupt nicht reagiert, oder mit einem verlegenen wegschauen. dies wiederum gibt den Tätern Vortrieb, die merken, dass keine Bestrafung kommt. somit machen sie immer dreister und wilder weiter. es ist also eine Art Teufelskreis. zudem ist es auch noch gefährlich, in irgendeiner Weise zu reagieren, und es ist auch gefährlich nicht zu reagieren. man hat einfach die komplette Arschkarte gezogen als Frau, wenn so etwas passiert. daher hoffe ich, dass du bei deiner nächsten erfahrenen sexuellen Belästigung, in einer Gruppe unterwegs ist bist, in einem Café bist mit möglichst vielen Zeugen.
 
 ## aufbereitung im training
 
@@ -31,6 +31,23 @@ dies ist ein Angriff auf deinen Körper Punkt keiner darf Dich anfassen. du kann
 * auf die Nase schlagen
 * hilfe von Umstehenden anfordern 
 * die Polizei rufen
+
+## Aufklärung über sexuelle Belästigung bei Kindern
+
+hui, das ist ein ganz heißes Eisen. es macht natürlich einen Unterschied, ob du Trainer bist, oder ob du mit deinen eigenen Kindern darüber sprichst. als Mutter spreche ich mit meiner Tochter offen über sexuelle Belästigung und was ich bereits erlebt habe. ich erkläre ihr die Fehler die ich gemacht habe und wie ich heute reagieren würde ich frage, ob sie schon so etwas ähnliches erlebt hat. sie hat auch inzwischen einen Blick dafür, wenn sie von Menschen komisch angeschaut wird. sie macht und die Vermeidungstaktik und entschließt sich dazu diesen Personen aus dem Weg zu gehen, z.B den Zugwagen zu wechseln
+
+als Trainerin habe ich sexuelle Belästigung nicht direkt angesprochen. wohl aber habe ich gefragt, ob sie z.B schon mal ein komisches Gefühl im Bauch hatten Punkt und dann habe ich erklärt dass dieses Bauchgefühl etwas ist worauf sie hören sollten. schließlich habe ich auch gefragt, ob sie schon komische Situationen erlebt hätten. dann erzählen die Kinder von sich aus, welche Situation zu diesem schönen Bauchgefühl geführt haben.
+
+sowohl trainingskinder als auch meine Tochter kläre ich darüber auf, dass die Täter Angst vor Entdeckung haben. Drohungen, die ein Täter äußern könnte, nehme ich vorweg, indem ich sie ihnen vorsage. und die ist auch als deren Strategie darstelle, Straffrei zu bleiben. sie hören dann z.B folgendes
+
+* "das ist doch ganz normal dass wir das machen, das machen alle so"
+* "dir wird so oder so keiner glauben. wenn es darauf ankommt glaubt man immer dem erwachsenen"
+* die Polizei wird dich mitnehmen und ins Heim stecken dann siehst du deine Schwester nie mehr wieder"
+* "du bist doch selbst schuld du hast ja damit angefangen. das weiß jeder der dich ansieht"
+
+ziel ist es, die Kinder mit Wissen auszustatten und diverse Taktiken von Tätern vorwegzunehmen. das Thema ist auf jeden Fall eine ganz heiße Kiste, und muss vorsichtig angepackt werden, wenn man sich diesen Schuh überhaupt anziehen will. 
+
+(ich persönlich ziehe mir gerne diesen Schuh an, weil irgendeiner muss es ja tun. ich könnte es mir nicht verzeihen, wenn durch meine Untätigkeit oder Angst, ein Kind zu schaden gerne wenn das vermeidbar gewesenwäre)
 
 ## die liste
 
