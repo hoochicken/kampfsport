@@ -159,3 +159,12 @@ wenn man danke sagt, bedeutet das ja, dass man in irgendeiner Weise von einem an
 lasse einfach zu, dass dir jemand anderes hilft. auch wenn es für den anderen ein wenig Mühe bedeutet, beobachte sein Gesicht, wenn der andere Erfolg damit hatte. eventuell kannst Du jemanden sein gesamten Tag retten, wenn du dir von ihm helfen. das ist einfach zu . das ist okay
 
 **kleiner Hinweis**: es tut im Übrigen nicht weh, Personen, die in unbeachteten Berufen arbeiten auch einmal Danke zu sagen. besonders wenn sie dich z.B tagtäglich im Bus herumfahren in der Straßenbahn, deine Straße asphaltieren. ich habe es mir inzwischen zur Gewohnheit gemacht, immer vorne auszusteigen, damit ich den Bus oder Zug fahre noch in danke sagen kann. ich glaube die hören das nämlich sehr selten.
+
+## leitsprüche
+
+* alles ist Training 
+* alles ist mindset 
+* immer aufmerksam 
+* Aufmerksamkeit ist Bewusstheit
+* schnell und locker 
+* alles ist Kommunikation
