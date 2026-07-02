@@ -6,7 +6,7 @@ im Folgenden findest du einzelne Abschnitte so Schlaf Regeneration Ernährung Tr
 
 da halte dabei immer im Auge Komma dass du als Sportler einfach einsparen erfasst Punkt das heißt du bist einfach nicht ganz dicht Punkt und das bedeutet Komma dass du eigentlich vernünftig Entscheidungen nicht triffst weil du trainieren möchtest Punkt das ist zum einen eine gute und disziplinierte Einstellung Komma andererseits kann eine verbissenheit auch zu massiven körperlichen und psychischen Problemen führen. bedenke, bei allen trainingsroutinen und Maßnahmen die du ergreifst folgendes du brauchst deinen Körper nicht nur für die nächsten zwei drei Jahre , um sportlicher Erfolg zu haben . Sondern du brauchst sie den nächsten 80 Jahre für ALLES! um zu essen schlafen deine Familie groß zu ziehen spaß zu haben Freude im Leben zu haben Freundschaften zu pflegen und einfach nur, und vom A nach B laufen. beachte daher bei deiner Lebensführung bitte folgendes Sprichwort
 
-> quidquid agis, prudenter agas et respi et finem 
+> quidquid agis, prudenter agas et respice et finem 
 > was immer du tust, handle klug und beachte das Ende
 
 ## schlaf und regeneration
@@ -100,9 +100,9 @@ kleiner Tipp: gönne dir während des Fastens Ruhe. gehe spazieren, mach aber ke
 
 ## das unendliche spiel
 
-simon sinek der sich vor allem mit Wirtschaft auseinandersetzt , hat Kommunikation den Begriff "The infinte game" geprägt. 
+simon sinek der sich vor allem mit Wirtschaft und Kommunikation auseinandersetzt , hat  den Begriff "The infinte game" geprägt. er meint damit, dass es im Leben viele Fehlschläge gibt. aber ein Fehlschlag kann ich auch weiterbringen, und die nächste Herausforderung wartet noch. im Deutschen gibt es das martialische Wendung: die Schlacht ist verloren aber der Krieg ist noch dabei.
 
-
+habe gesehen von dem etwas kriegerischen Bild das hier verwendet wird stehe ich aber voll dahinter. es ist ein endloses Spiel, das immer weitergeht. als Kampfsportler lebst du in einem Prozess beständiger Verbesserung und Reflektion . eben das Unendliche Spiel
 
 ## warten
 
