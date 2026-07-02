@@ -122,38 +122,32 @@ warum gibt es dieses dankbarkeitsgefühl? vermutlich, weil wir soziale Wesen sin
 
 Dankbarkeit besteht zwischen zwei Parteien . sie hat also zwei Seiten: den danke-geber und den danke-bekommer
 
-### danke geben
+**danke geben**
 
 zu sagen lernen wir schon von klein auf Eltern liegen größten Wert, dass das Kind diese Handlung lernt. wie oben gesagt fängt dies damit zusammen, dass unsere Gesellschaft auf Mitarbeit aufbaut. 
 
 sich jemanden gegenüber dankbar zu zeigen hat drei positive Auswirkungen: zwei für dich und eine für den Annehmenden
 
-**danke geben als inverstition in die zukunft**: wenn jemand einem hilft, so versichert ihm das Dankeschön, dass seine Handlung wahrgenommen wurde. er wird weitere Handlungen für einen vornehmen. praktisch für dich. Danke zu sagen kann also aus einem eigennützigen Zweck heraus erfolgen. 
+**danke geben als investition in die zukunft**: wenn jemand einem hilft, so versichert ihm das Dankeschön, dass seine Handlung wahrgenommen wurde. er wird weitere Handlungen für einen vornehmen. praktisch für dich. Danke zu sagen kann also aus einem eigennützigen Zweck heraus erfolgen. 
 
 **dankbarkeit empfinden = keine angst**: wer Dankbarkeit empfindet (also nicht ein daher gesagt danke, sondern wirklich Dankbarkeit als Gefühl) verspürt währenddessen keine Angst. zumindest habe ich das sagen hören. 
 
 wenn du Dankbarkeit empfindest fühlst du dich gleichzeitig behütet und beschützt und kannst dich entspannen. nicht umsonst verwenden, Ideen darum geht, Danke zu sagen nicht umsonst verwenden, Ideen darum geht Danke zu sagen. ebenso existieren Meditation die ein dankbares Gefühl aufbauen. dieses Gefühl schützt deine Psyche. auch dieser Aspekt von Dankbarkeit mit dir
 
-**danken zur unterstützung**: wenn du jemandem denkst hat dies auch eine Auswirkung auf den anderen. man dankt ja in der Regel, wenn man Hilfe erfahren hat. die andere Person hat also die in irgendeiner Weise aushelfen können Punkt und dies kannst du massiv einsetzen, um den anderen im positiven zu manipulieren
+**danken zur unterstützung**: wenn du jemandem dankst hat dies auch eine Auswirkung auf den anderen. man dankt ja in der Regel, wenn man Hilfe erfahren hat. die andere Person hat also die in irgendeiner Weise aushelfen können . und dies kannst du massiv einsetzen, um den anderen positiv zu beeunflussen
 
-hast du jemanden vor dir, der aufgelöst ist, der nicht weiter weiß, gerade nicht auch noch ein und massiv Angst empfindet. natürlich hilft es ihm wenn er miteinander spricht und den Tipp geben kann. was ihm aber auch hilft, ist Ben der andere für Dich ein Problem lösen kann. wenn du gerade kein Problem hast, frage ihn, ob er dir helfen kann etwas zu tragen. ein Reißverschluss aufmachen oder ähnliches. frage ihn nach etwas, was erledigen kann für Dich. indem du ihn danke sagst, wird der andere ein gutes Gefühl bekommen . denn trotz seiner Probleme hat er es geschafft jemand anderen zu helfen. was wird ihm Hoffnung geben und Durchhaltevermögen eine harte möglicherweise gerade harte Zeit durchzustehen
+hast du jemanden vor dir, der aufgelöst ist, der nicht weiter weiß, gerade nicht aus noch ein weiss, und massiv Angst empfindet.
 
-**danke geben**
+zum ersten hilft es ihm wenn ihr miteinander sprecht und er dir einen Tipp geben kann. was ihm aber auch hilft, ist, wenn der andere für Dich ein Problem lösen kann. 
 
+wenn du gerade kein Problem hast, frage ihn, ob er dir helfen kann etwas zu tragen, ein verklemmten Reißverschluss aufmachen oder ähnliches. frage ihn nach etwas, was erledigen kann für Dich. 
 
+indem du ihm danach danke sagst, wird der andere ein gutes Gefühl bekommen . denn trotz seiner Probleme hat er es geschafft jemand anderen zu helfen. was wird ihm Hoffnung geben und Durchhaltevermögen eine harte möglicherweise gerade harte Zeit durchzustehen
 
-sieh darin aber auch einen weiteren Zweck: der andere erfährt Wertschätzung. danke zu geben ist also ein Lob. und dieses danke erzeugt in dem anderen ein besticktes Gefühl
+**hilfe zulassen**
 
+wenn man danke sagt, bedeutet das ja, dass man in irgendeiner Weise von einem anderen abhängig war. dieser hat eine Arbeit für einen erhebliche oder ein sonst unterstützt. damit steht man ein bisschen in der Schulter Punkt und das kann unter Umständen ein unangenehmes Gefühl sein. 
 
+lasse einfach zu, dass dir jemand anderes hilft. auch wenn es für den anderen ein wenig Mühe bedeutet, beobachte sein Gesicht, wenn der andere Erfolg damit hatte. eventuell kannst Du jemanden sein gesamten Tag retten, wenn du dir von ihm helfen. das ist einfach zu . das ist okay
 
-Dankbarkeit hat eine sehr spannende Eigenschaft: du kannst nicht dankbar sein und gleichzeitig Angst haben
-
-
-
-
-
-
-
-
-
-
+**kleiner Hinweis**: es tut im Übrigen nicht weh, Personen, die in unbeachteten Berufen arbeiten auch einmal Danke zu sagen. besonders wenn sie dich z.B tagtäglich im Bus herumfahren in der Straßenbahn, deine Straße asphaltieren. ich habe es mir inzwischen zur Gewohnheit gemacht, immer vorne auszusteigen, damit ich den Bus oder Zug fahre noch in danke sagen kann. ich glaube die hören das nämlich sehr selten.
