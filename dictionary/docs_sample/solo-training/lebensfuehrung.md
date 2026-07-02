@@ -14,7 +14,26 @@ das heißt du gehst jeden Tag zur gleichen Zeit ins Bett und stehst du jeden Tag
 
 **reizmittel**: vermeide Reizmittel wie koffeinhaltige Drinks, Kaffee, Schwarztee das putscht dich auf. der Schlaf wird leichter, und in der Nacht fängt das Gedankenkarussell an.
 
+**schlaf(hilfs)mittel**: wenn du gar nicht zur Ruhe kommst sorry zum Schlafen bitte nur der Schlaf Hilfsmittel aushelfen. z.B Johanniskraut Baldrian oder melatoninhaltige Mittelchen. diese verhelfen dir zumindest temporär zueinander schnellen einschlafen. seid Ihr aber bewusst dass dies nur Hilfsmittel sind. sie sind nicht für den chronischen bzw ständigen Einsatz gedacht. setze dir daher einen Termin, wann Du diese Mittel wieder absetzt. in dieser Zeit kannst du auch daran arbeiten, dann Einschlafen zu verbessern.
+
+**einschlafhilfe**: es gibt viele Techniken und Maßnahmen die die helfen, schnell einzuschlafen. wie z.B 
+
+* progressive Muskelrelaxation PMR
+* Meditation 
+    * zum einschlafen
+    * zum XXXXXDrüse
+* Einschlafritual
+* meidung reizmittel bzw. komplette entwöhnung
+* Schlafhygiene ( Disziplin im  zu Bett gehen und wieder aufstehen immer zur selben Zeit)
+* zu Bett geh Ritual
+* einschlafmeditation zum Anhören
+* apnoeübungen mit oder ohne app
+
+**apnoeübungen** sind ein Zufallsfund. ich habe apnoe Übungen zum spass angefangen und gemerkt, dass ich immer wieder fast einschlafe sogar unter Tags. wissenschaftliche Studien dazu kenne ich keine. ich könnte mir aber folgende Mechanik vorstellen: durch das Luft anhalten wird der Parasympathikus massiv aktiviert . und der Parasympathikus sorgt dafür dass du ruhig bist und gelassen.
+
 **Geschichte**: ich persönlich habe quasi Aufbau von meinem Körper Betrieben, täglich nur vier Stunden geschlafen und mich was zu Tode gearbeitet. das ging dann ein paar Jahre lang gut. bis mein Körper vollkommen am Ende war . das Ergebnis war eine Krebserkrankung . das wirst Du glaube ich nicht gib auf dich acht!
+
+**übertraining**: 
 
 ## ernährung und fasten
 
