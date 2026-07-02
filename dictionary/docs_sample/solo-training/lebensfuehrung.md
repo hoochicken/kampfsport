@@ -96,7 +96,13 @@ kleiner Tipp: gönne dir während des Fastens Ruhe. gehe spazieren, mach aber ke
 
 ## alles ist training
 
+das wird ein lustiger Abschnitt, wo fängt man da nur an? alles ist irgendeiner Weise Training. du kannst selbst langweiligste Tätigkeiten dafür nutzen um in deiner Kampfsportler Leben besser zu werden. du musst sie in deinem Gehirn nur richtig verpacken und es so verkaufen, das ist Training ist hier ein paar Beispiele.
 
+* Jacke anziehen: wie kannst du deine Jacke möglichst elegant anziehen möglichst schnell, möglichst geschmeidig
+* aufstehen nach schuhbinden: wie viele verschiedene Möglichkeiten gibt es, nach dem Schuhe binden aufzustehen? Roller rückwärts Rolle vorwärts was bevorzugst du und warum
+* joggen: in deinem Arbeitsalltag hast du keinerlei Zeit zu joggen. vielleicht gehst du aber zur Arbeit. wie wäre es wenn du einfach zur Arbeit dockst? vielleicht kannst du eine Station früher aussteigen, und dann joggen. nimm dir ein zweites T-Shirt und etwas zum frisch machen mit natürlich, oder Dusche auf der Arbeit verbinde also dein Arbeitsweg mit dem Joggen. (ja, das geht auch mit dem Rucksack, ich habe es ausprobiert)
+* rasenmähen: wie nähst du den Rasen möglichst effektiv. welche Punkte musst du ablaufen, damit du dann die Fläche möglichst bequem melden kannst. könntest du den Rasenmäher als Wasser einsetzen? ist der rasenfrei, so ist es ein wunderbares Krafttraining. beachte hier bitte, dass ein Rasenmäher kein Spielzeug ist und gefährlich sein kann. mach also keine Dummheiten!
+* Gartenarbeiter. jegliche Art von Gartenarbeit eignet sich dazu, Bewegungsabläufe zu optimieren. wie musst du da stehen, um möglichst effektiv ein Rechen zu bedienen? wie sollte die Fußstellung sein, wie das Eindrehen der Hüfte bei Bewegung des Rechens?(auch hier wieder: mag keine dummen Sachen!
 
 ## das unendliche spiel
 
