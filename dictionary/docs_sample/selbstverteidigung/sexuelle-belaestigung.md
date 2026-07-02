@@ -20,6 +20,8 @@ Frage zurück was er gesagt hat, so als hättest du nicht verstanden also in etw
 
 die Frage kann ruhig laut erfolgen. damit schaffst du Öffentlichkeit und legst gleichzeitig seine Taktik des sexuellen Angriffs offen. die Täter rechnen in der Regel damit, dass eben keine Gegenwehr kommt oder dass ich die Frau verschämt wegdreht. indem Du nachfragst weil du einfach etwas schlecht verstanden hast, zwingst du ihn dazu dies laut zu wiederholen und das ist sehr unangenehm für diese Person.
 
+**geschichte**: eine Freundin ging in der Gruppe in eine Bar darunter auch eine sehr sehr schöne Frau. während sie Spaß hatten, kam ein Typ zu ihr der sie offensichtlich sexuell angegangen ist, er muss irgendeinen Spruch gesagt haben. ihre Reaktion auf war die folgende: sie griff ihm beherzt zwischen die Beine hat gründlich daran herum gerüttelt und ihn dann gefragt, ob er das lustig findet. der Mann war sehr konsterniert und ist dann geflohen diese Geschichte soll nicht als Beispiel gelten, wie du dich verhalten sollst. sie soll dir aufzeigen, welchen Leidensweg die Frau hinter sich hat, dass sie so krass diese Situation gelöst hat. sie hat sich währenddessen souverän Verhalten, als wäre es ein Dienstagmorgen. bei dieser Erzählung habe ich mich nur gefragt: was muss diese Frau schon alles erlebt haben?!
+
 ## Umgang mit körperlicher sexueller Belästigung
 
 dies ist ein Angriff auf deinen Körper Punkt keiner darf Dich anfassen. du kannst hier jede Maßnahme verwenden, die bei der distanzlehre erwähnt wird: 
