@@ -1,5 +1,17 @@
 ## Sexuelle Belästigung
 
+sexuelle Belästigung wird vor allem von Männern gegen Frauen ausgeübt. hier kann es sowohl zur verbalen als auch zu körperlichen Übergriffen kommen. hier gibt es kein richtig oder falsch, was die Reaktion betrifft. die Situation sind so unterschiedlich und die übergriffige Person in ihrer Taktik so Unikat, dass es schwer ist hier eine allgemeine Taktik zu finden. im Folgenden findest du eine Liste von Situationen und möglichen Reaktionen darauf. diese Reaktionen sind nicht richtig, sondern einfach nur vorgestellt. es ist schwer in einer Situation spontan zu reagieren, weil man in der Regel so überfahren ist und und sich verletzlich fühlt. das wiederum führt auch dazu, dass man überhaupt nicht reagiert, oder mit einem verlegenen wegschauen. dies wiederum gibt den Tätern Vortrieb, die merken, dass keine Bestrafung kommt. somit machen sie immer dreister und wilder weiter. es ist also eine Art Teufelskreis. zudem ist es auch noch gefährlich, in irgendeiner Weise zu reagieren, und es ist auch gefährlich nicht zu reagieren. man hat einfach die komplette Arschkarte gezogen als Frau, wenn so etwas passiert. daher hoffe ich, dass du bei deiner nächsten erfahrenen sexuellen Belästigung, in einer Gruppe unterwegs ist bist, in einem Café bist mit möglichst vielen Zeugen.
+
+## aufbereitung im training
+
+dieser nächste Abschnitt ist auf jeden Fall eine persönliche Meinung. beachte, dass ich Trainerin bin und kein männlicher Trainer. das heißt ich kann bestimmte Themen einfach ansprechen was es dir als Mann vielleicht möglich ist nach dem Training zur Selbstverteidigung habe ich eine Feedbackrunde gemacht zu sexueller Belästigung. es ist ganz interessant, was dabei herauskam. Grund Weg gesagt: Männer werden nicht sexuell belästigt(eine Ausnahme gab es tatsächlich, die bestätigt). wurden nur Frauen belästigt, und das immer und immer wieder Punkt wir reden hier also nicht zu Einzelfällen sondern von einem Muster. was die Täter mit der sexuellen Belästigung bezwecken, ist mir ehrlich gesagt nicht ganz klar. ich tippe aber auf folgendes: der Täter fühlt sich einsam und hätte gerne eine Bekanntschaft, oder erst einfach nur scharf weil du sie nicht gelingt, eine Freundin zu haben oder geduldig genug ist, sich eine Freundin zu erarbeiten, greift der auf irgendwelche wilden Taktiken zurück. dann kommen so Sprüche raus wie  "deine Brüste wippen aber ganz schön", "mit dir wüsste ich was ich heute Nacht anfangen würde" etc.
+
+ich glaube sexuelle Belästigung entsteht aus einer großen Verunsicherung. da ist es natürlich praktisch wenn das Gegenüber 30 kg leichter ist und kein Gegner darstellt. so kann man aus sicherer Position jemand anderen einfach mit seinem scheiß belabern. wird die andere Person (die Frau) eingeschüchtert so gilt dies als Beweis, dass man mutig ist und schneid hat. obwohl man in Wirklichkeit sich nur ein Opfer gesucht hat
+
+dass der Täter in der Regel unsicher ist keine Entschuldigung. es soll einfach eine Erklärung für diese Verhaltensweise bieten.
+
+## die liste
+
 Diese Liste an sexuellen Belästigungen ist von mir erstellt. Es sind ausschliesslich sexuelle Belästigungen, die ich erfahren habe.
 Nein, ich bin nicht besonders hübsch. Aber ich war mal jung und - aufgrund von offensichtlicher Unerfahrenheit - damit ein optimales Opfer.
 
