@@ -4,6 +4,11 @@ unter Lebensführung wird hier verstanden, wie du dein Alltag, deine Stressoren,
 
 im Folgenden findest du einzelne Abschnitte so Schlaf Regeneration Ernährung Training im Alltag und Respekt
 
+da halte dabei immer im Auge Komma dass du als Sportler einfach einsparen erfasst Punkt das heißt du bist einfach nicht ganz dicht Punkt und das bedeutet Komma dass du eigentlich vernünftig Entscheidungen nicht triffst weil du trainieren möchtest Punkt das ist zum einen eine gute und disziplinierte Einstellung Komma andererseits kann eine verbissenheit auch zu massiven körperlichen und psychischen Problemen führen. bedenke, bei allen trainingsroutinen und Maßnahmen die du ergreifst folgendes du brauchst deinen Körper nicht nur für die nächsten zwei drei Jahre , um sportlicher Erfolg zu haben . Sondern du brauchst sie den nächsten 80 Jahre für ALLES! um zu essen schlafen deine Familie groß zu ziehen spaß zu haben Freude im Leben zu haben Freundschaften zu pflegen und einfach nur, und vom A nach B laufen. beachte daher bei deiner Lebensführung bitte folgendes Sprichwort
+
+> quidquid agis, prudenter agas et respi et finem 
+> was immer du tust, handle klug und beachte das Ende
+
 ## schlaf und regeneration
 
 zum Schlaf gibt es viele verrückte Theorien. da sich unsere Spezies auf einem Planeten entwickelt hat Komma der ein 24 Stunden Tag hat , sollte man sich danach auch richten . unsere Gene sind dafür gebaut 
@@ -31,21 +36,19 @@ das heißt du gehst jeden Tag zur gleichen Zeit ins Bett und stehst du jeden Tag
 
 **apnoeübungen** sind ein Zufallsfund. ich habe apnoe Übungen zum spass angefangen und gemerkt, dass ich immer wieder fast einschlafe sogar unter Tags. wissenschaftliche Studien dazu kenne ich keine. ich könnte mir aber folgende Mechanik vorstellen: durch das Luft anhalten wird der Parasympathikus massiv aktiviert . und der Parasympathikus sorgt dafür dass du ruhig bist und gelassen.
 
-**Geschichte**: ich persönlich habe quasi Aufbau von meinem Körper Betrieben, täglich nur vier Stunden geschlafen und mich was zu Tode gearbeitet. das ging dann ein paar Jahre lang gut. bis mein Körper vollkommen am Ende war . das Ergebnis war eine Krebserkrankung . das wirst Du glaube ich nicht gib auf dich acht!
+**Geschichte**: ich persönlich habe quasi Aufbau von meinem Körper Betrieben, täglich nur vier Stunden geschlafen und mich was zu Tode gearbeitet. das ging dann ein paar Jahre lang gut. bis mein Körper vollkommen am Ende war . das Ergebnis war eine Krebserkrankung . das wirst Du glaube ich nicht so eine Krebserkrankung sorgt auch für ein ordentlichestrainingsdefizit:-D) auf dich acht!
 
-**übertraining**: 
+## übertraining / burn-out
 
 Übertraining (Übertrainingssyndrom) ist eine chronische Überlastung des Körpers . Es entsteht durch zu viel Training und zu wenig Erholung . Die sportliche Leistung sinkt trotz harten Trainings . Betroffene fühlen sich extrem erschöpft, schlafen schlecht und sind oft gereizt wikipedia
 
-ist eine Falle Punkt es ist wie ein Burnout. die Leistung sinkt, du trainierst noch mehr, die Leistung sind noch weiter, und das einzige Gegenmittel dass sie einfällt ist: mehr trainieren. sehr so fest, dass du einfach müde bist Punkt ist das folgende das Beste, was Du für Deinen Körper tun kannst
+ist eine Falle . es ist wie ein Burnout. die Leistung sinkt, du trainierst noch mehr, die Leistung sind noch weiter, und das einzige Gegenmittel dass sie einfällt ist: mehr trainieren. sehr so fest, dass du einfach müde bist Punkt ist das folgende das Beste, was Du für Deinen Körper tun kannst
 
 mach einfach eine Woche Pause . gib deinem Körper Zeit , sich zu erholen. beobachte deinen Körper etwas fühlst du dabei Komma wie schön ist es sich zu entspannen. dein Kopf würde die ganze Zeit sagen: "was machst du musst doch trainieren."
 
 finde selbst dafür die richtigen Argumente, die dich überzeugen. wenn du jetzt gerade nichts einfällt, so sage ich persönlich dir jetzt folgendes: 
 
 "dein Körper glaubt an dich gib auf in Acht wenn er Erholung braucht lasse ihn ruhrn. dein Körper arbeitet viel und dann muss er auch viel wohnen. Ruhe und Entspannung ist Teil deines Trainings."
-
-
 
 führe statt Training ein Tagebuch oder mach eine Meditation. nutze diese Woche nicht nur als trainingsferien sondern auch zur gezielten Planung wie Du Dich zukünftig fordern möchtest und wie du dich entscheiden möchtest.
 
