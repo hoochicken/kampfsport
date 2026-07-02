@@ -34,20 +34,27 @@ dies ist ein Angriff auf deinen Körper Punkt keiner darf Dich anfassen. du kann
 
 ## Aufklärung über sexuelle Belästigung bei Kindern
 
-hui, das ist ein ganz heißes Eisen. es macht natürlich einen Unterschied, ob du Trainer bist, oder ob du mit deinen eigenen Kindern darüber sprichst. als Mutter spreche ich mit meiner Tochter offen über sexuelle Belästigung und was ich bereits erlebt habe. ich erkläre ihr die Fehler die ich gemacht habe und wie ich heute reagieren würde ich frage, ob sie schon so etwas ähnliches erlebt hat. sie hat auch inzwischen einen Blick dafür, wenn sie von Menschen komisch angeschaut wird. sie macht und die Vermeidungstaktik und entschließt sich dazu diesen Personen aus dem Weg zu gehen, z.B den Zugwagen zu wechseln
+hui, das ist ein ganz heißes Eisen. es macht natürlich einen Unterschied, ob du Trainer bist, oder ob du mit deinen eigenen Kindern darüber sprichst. 
 
 als Trainerin habe ich sexuelle Belästigung nicht direkt angesprochen. wohl aber habe ich gefragt, ob sie z.B schon mal ein komisches Gefühl im Bauch hatten Punkt und dann habe ich erklärt dass dieses Bauchgefühl etwas ist worauf sie hören sollten. schließlich habe ich auch gefragt, ob sie schon komische Situationen erlebt hätten. dann erzählen die Kinder von sich aus, welche Situation zu diesem schönen Bauchgefühl geführt haben.
 
-sowohl trainingskinder als auch meine Tochter kläre ich darüber auf, dass die Täter Angst vor Entdeckung haben. Drohungen, die ein Täter äußern könnte, nehme ich vorweg, indem ich sie ihnen vorsage. und die ist auch als deren Strategie darstelle, Straffrei zu bleiben. sie hören dann z.B folgendes
+als Mutter spreche ich mit meiner Tochter offen über sexuelle Belästigung und was ich bereits erlebt habe. ich erkläre ihr die Fehler die ich gemacht habe und wie ich heute reagieren würde ich frage, ob sie schon so etwas ähnliches erlebt hat. sie hat auch inzwischen einen Blick dafür, wenn sie von Menschen komisch angeschaut wird. sie macht und die Vermeidungstaktik und entschließt sich dazu diesen Personen aus dem Weg zu gehen, z.B den Zugwagen zu wechseln
+
+auch die verbalen Taktiken, um zu verhindern, dass das Kind etwas verraten könnte, lege ich meiner Tochter offenbar denn der Täter könnte in etwa folgende Drohungen aussprechen
 
 * "das ist doch ganz normal dass wir das machen, das machen alle so"
 * "dir wird so oder so keiner glauben. wenn es darauf ankommt glaubt man immer dem erwachsenen"
 * die Polizei wird dich mitnehmen und ins Heim stecken dann siehst du deine Schwester nie mehr wieder"
 * "du bist doch selbst schuld du hast ja damit angefangen. das weiß jeder der dich ansieht"
 
-ziel ist es, die Kinder mit Wissen auszustatten und diverse Taktiken von Tätern vorwegzunehmen. das Thema ist auf jeden Fall eine ganz heiße Kiste, und muss vorsichtig angepackt werden, wenn man sich diesen Schuh überhaupt anziehen will. 
+ziel ist es, die Kinder mit Selbstvertrauen auszustatten . sie sollen wissen, dass es das Bauchgefühl gibt, wie sich das anfühlt und und das dann ein Handeln gefragt ist. 
 
-(ich persönlich ziehe mir gerne diesen Schuh an, weil irgendeiner muss es ja tun. ich könnte es mir nicht verzeihen, wenn durch meine Untätigkeit oder Angst, ein Kind zu schaden gerne wenn das vermeidbar gewesenwäre)
+ich spreche auch an, dass sie dann eventuell unhöflich handeln müssen, und dass das vollkommen in Ordnung ist. und dieser Fakt lässt sich den Kindern wie folgt erklären:
+
+* wenn du richtig liegst, und der andere ist böse, dann hast du richtig gehandelt, weil du dich schützt. er spielt keine Rolle, dass du unhöflich warst, der andere ist ein arsch und du hast richtig gehandelt
+* wenn du fälschlicherweise davon ausgehst dass der andere böse ist. und entsprechend handelst, dann ist das ja nicht schlimm. denn wenn es ein guter Mensch ist, wird er dafür Verständnis haben vielleicht wird er sogar sagen Entschuldigung dass ich Dir Angst gemacht habe, ich gehe weg. also hast du richtig gehandelt.
+
+das heißt: unabhängig davon, wie sich ein Kind entscheidet: es handelt immer richtig gut. damit erhält jedes Kind die Erlaubnis, auf sein Bauchgefühl zu hören.
 
 ## die liste
 
