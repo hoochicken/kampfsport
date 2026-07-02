@@ -112,7 +112,23 @@ Daten ist ein Geschenk der Zeit. in der Regel kannst du nicht beeinflussen wie l
 
 du hast normalerweise alle Zeit der Welt. wenn du an einer Ampel stehst, auch wenn es dir lange vorkommt, zumeist sind es noch ein paar ein bis zwei Minuten. wegen dieser ein bis zwei Minuten lohnt es sich nicht ein Unfall zu riskieren oder sich aufzuregen. nimm bewusst den Zeitstress heraus und nehmen diese Zeitspanne als ein Geschenk an, dass der Tag nur für dich bereitgestellt hat.
 
-## dankeschön
+## respekt & dankeschön
+
+wann hat sich das letzte mal jemand bei dir bedankt wie hat sich das angefühlt?
+
+wenn sich jemand bedanke, man erfährt Wertschätzung . und das Gefühl der Wertschätzung ist nicht nur an den Moment gebunden, sondern hält zum Teil den ganzen Tag überein dankbarkeit ist ein spezielles Gefühl 
+
+warum gibt es dieses dankbarkeitsgefühl? vermutlich, weil wir soziale Wesen sind. wir sind in der Gruppe darauf angewiesen, einander zu helfen.
+
+Dankbarkeit besteht zwischen zwei Parteien Punkt sie hat also zwei Seiten: den danke-geber und den danke-bekommer
+
+**danke geben**
+
+
+
+Dankbarkeit hat eine sehr spannende Eigenschaft: du kannst nicht dankbar sein und gleichzeitig Angst haben
+
+
 
 
 
