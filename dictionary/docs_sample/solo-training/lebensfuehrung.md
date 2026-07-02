@@ -100,10 +100,21 @@ kleiner Tipp: gönne dir während des Fastens Ruhe. gehe spazieren, mach aber ke
 
 ## das unendliche spiel
 
+simon sinek der sich vor allem mit Wirtschaft auseinandersetzt , hat Kommunikation den Begriff "The infinte game" geprägt. 
 
-the infinte game simon sinek
+
+
+## warten
+
+in deinem Leben musst du wahrscheinlich viel warten Punkt an der Ampel, auf dem Amt, an der Kasse solltest du zu den Menschen gehören, die diese Situation nervt die diese Situation nervt, die sie als anstrengend empfinden, den Kopf anfangen zu schimpfen auf Gott und die Welt und die Ungerechtigkeit des Lebens bitte hier weiter Punkt bist du bereits ein entspannter water, kannst du demnächsten Abschnitt überspringen.
+
+Daten ist ein Geschenk der Zeit. in der Regel kannst du nicht beeinflussen wie lange du wartest aber wie. entspanne Dich durch eine Atemübung, z.B(4 Sekunden Einatmen, 7 Sekunden halten, 8 Sekunden ausatmen). schließe die Augen, oder halte sie offen, beobachte neugierig interessiert die Menschen.
+
+du hast normalerweise alle Zeit der Welt. wenn du an einer Ampel stehst, auch wenn es dir lange vorkommt, zumeist sind es noch ein paar ein bis zwei Minuten. wegen dieser ein bis zwei Minuten lohnt es sich nicht ein Unfall zu riskieren oder sich aufzuregen. nimm bewusst den Zeitstress heraus und nehmen diese Zeitspanne als ein Geschenk an, dass der Tag nur für dich bereitgestellt hat.
 
 ## dankeschön
+
+
 
 
 
