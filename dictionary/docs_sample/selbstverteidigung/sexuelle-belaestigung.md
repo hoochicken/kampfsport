@@ -22,6 +22,14 @@ die Frage kann ruhig laut erfolgen. damit schaffst du Öffentlichkeit und legst 
 
 **geschichte**: eine Freundin ging in der Gruppe in eine Bar darunter auch eine sehr sehr schöne Frau. während sie Spaß hatten, kam ein Typ zu ihr der sie offensichtlich sexuell angegangen ist, er muss irgendeinen Spruch gesagt haben. ihre Reaktion auf war die folgende: sie griff ihm beherzt zwischen die Beine hat gründlich daran herum gerüttelt und ihn dann gefragt, ob er das lustig findet. der Mann war sehr konsterniert und ist dann geflohen diese Geschichte soll nicht als Beispiel gelten, wie du dich verhalten sollst. sie soll dir aufzeigen, welchen Leidensweg die Frau hinter sich hat, dass sie so krass diese Situation gelöst hat. sie hat sich währenddessen souverän Verhalten, als wäre es ein Dienstagmorgen. bei dieser Erzählung habe ich mich nur gefragt: was muss diese Frau schon alles erlebt haben?!
 
+## verbal reingrätschen
+
+möglicherweise wirst du Zeuge einer sexuellen Belästigung. das Opfer fühlt sich sehr unwohl, der Täter hat nicht auf in diesem Fall kann es hilfreich sein, einfach rüber zu gehen und seine beste Freundin zu begrüßen, die man seit zwei Jahren nicht gesehen hat z.B mit folgenden Formeln: "hallo Lotta wie freue ich mich dich zu sehen ich wollte dich heute Abend eigentlich anrufen hast du eigentlich schon mit Toni gesprochen, der wollte heute eigentlich auch noch vorbeikommen magst du mit mir rübergehen da sitzen Anna und Stefan wir sind gerade was trinken dann können wir uns ausgiebiger unterhalten ..."
+
+erzähle also das Blaue vom Himmel dadurch unterbrichst du die Macht die der Täter auf das Opfer in diesem Moment ausübt, dass vielleicht keinen Ausweg weiß, wie sie sich aus dieser Situation befreien kann 
+
+(ja, die beiden könnten sich auch kennen und ein Spielchen spielen. wird das so sein sollte, werden sie dich wahrscheinlich Grinsen wegschicken. das ist also nicht schlimm.)
+
 ## Umgang mit körperlicher sexueller Belästigung
 
 dies ist ein Angriff auf deinen Körper Punkt keiner darf Dich anfassen. du kannst hier jede Maßnahme verwenden, die bei der distanzlehre erwähnt wird: 
@@ -59,6 +67,7 @@ das heißt: unabhängig davon, wie sich ein Kind entscheidet: es handelt immer r
 ## die liste
 
 Diese Liste an sexuellen Belästigungen ist von mir erstellt. Es sind ausschliesslich sexuelle Belästigungen, die ich erfahren habe.
+
 Nein, ich bin nicht besonders hübsch. Aber ich war mal jung und - aufgrund von offensichtlicher Unerfahrenheit - damit ein optimales Opfer.
 
 Manche Situationen sind echt dämlich. Und ich war mit denen damals echt überfordert. Lerne aus diesen Fehlern, mach es besser!
