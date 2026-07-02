@@ -35,6 +35,20 @@ das heißt du gehst jeden Tag zur gleichen Zeit ins Bett und stehst du jeden Tag
 
 **übertraining**: 
 
+Übertraining (Übertrainingssyndrom) ist eine chronische Überlastung des Körpers . Es entsteht durch zu viel Training und zu wenig Erholung . Die sportliche Leistung sinkt trotz harten Trainings . Betroffene fühlen sich extrem erschöpft, schlafen schlecht und sind oft gereizt wikipedia
+
+ist eine Falle Punkt es ist wie ein Burnout. die Leistung sinkt, du trainierst noch mehr, die Leistung sind noch weiter, und das einzige Gegenmittel dass sie einfällt ist: mehr trainieren. sehr so fest, dass du einfach müde bist Punkt ist das folgende das Beste, was Du für Deinen Körper tun kannst
+
+mach einfach eine Woche Pause . gib deinem Körper Zeit , sich zu erholen. beobachte deinen Körper etwas fühlst du dabei Komma wie schön ist es sich zu entspannen. dein Kopf würde die ganze Zeit sagen: "was machst du musst doch trainieren."
+
+finde selbst dafür die richtigen Argumente, die dich überzeugen. wenn du jetzt gerade nichts einfällt, so sage ich persönlich dir jetzt folgendes: 
+
+"dein Körper glaubt an dich gib auf in Acht wenn er Erholung braucht lasse ihn ruhrn. dein Körper arbeitet viel und dann muss er auch viel wohnen. Ruhe und Entspannung ist Teil deines Trainings."
+
+
+
+führe statt Training ein Tagebuch oder mach eine Meditation. nutze diese Woche nicht nur als trainingsferien sondern auch zur gezielten Planung wie Du Dich zukünftig fordern möchtest und wie du dich entscheiden möchtest.
+
 ## ernährung und fasten
 
 **nährstoffe**: in Europa essen wir in der Regel viel mehr als er eigentlich bräuchten Punkt und dazu noch die falschen Sachen. das zeigt sich auch, wenn man sich mal unsere Supermärkte anschaut und das Verhältnis von der frischmittelabteilung zu der Süßwaren und chipsabteilung betrachtet
