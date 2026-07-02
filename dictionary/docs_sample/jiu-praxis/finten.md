@@ -34,15 +34,12 @@ finten lassen sich bei aller Art von Techniken anbringen, z.B
 
 * würfe
 * schläge 
-* freeze = spezial finte
+* kicks
+* waffen
 
-**würfe**
+## freeze
 
-**schläge**
-
-**freeze** 
-
-der Freeze ist eine meiner absoluten Lieblingstechniken, sicherlich wird es dir genauso gehen. nehmen wir wieder das Beispiel oben mit Jet punch. bringe jab punch dreimal hintereinander beim vierten Mal machst du jab Punch lässt den Punch  auf halbem wege stehen. 
+der Freeze ist eine meiner absoluten Lieblings-azemi-finten. sicherlich wird es dir genauso gehen. nehmen wir wieder das Beispiel oben mit Jet punch. bringe jab punch dreimal hintereinander beim vierten Mal machst du jab Punch lässt den Punch  auf halbem wege stehen. 
 
 wenn du einen Gegner hast, der sehr gut ausreichen kann, ist der Free das Mittel der Wahl. der angedeutete Punch lässt den Gegner bereits in die Ausweichbewegung verfallen. und du kannst ihn dann etwa eine halbe Sekunde später komplett abschießen. 
 
