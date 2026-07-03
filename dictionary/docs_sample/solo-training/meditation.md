@@ -46,7 +46,7 @@ diese Achtsamkeitsübung bezieht den Atem mit ein du stellst dir ein Luftbläsch
 
 **einatmen** diesem Luftbläschen folgst du auf dem Weg in deine Lunge und wieder heraus. das heißt du atmest ein und stellst dir vor wie es den äußeren Nasengang den Rachenraum Luftröhre passiert und schließlich in der Lunge landet und sich das Zwerchfell beim Einatmen nach unten schiebt. 
 
-**halten** bei Bedarf kannst du die Luft auch anhalten, das heißt nicht atmen. dann achte auf die Spannung in Zwerchfell im Unterbauch bei den gespannten Rippen und höre auf dein Herz. wenn das Geräusch des Atems versiegt ist nur noch das Herz, dass dich am Leben erhält.
+**halten** bei Bedarf kannst du die Luft auch anhalten, das heißt nicht atmen. dann achte auf die Spannung in Zwerchfell im Unterbauch bei den gespannten Rippen und höre auf dein Herz. wenn das Geräusch des Atems versiegt ist nur noch das Herz, dass dich am Leben erhält. schenke deinem Herzen deine ganze Aufmerksamkeit
 
 **ausatmen** beim Ausatmen beobachtest du die Entspannung des Zwerchfells wie die Lungen zusammengedrückt werden dass Luftbläschen durch die Luftröhre hindurch durch den Nasenraum wieder nach außen strömt. und das war's schon. diese Meditation ist so schön, weil es so schön einfach ist und dich zurückwirft auf das Komma was so grundlegend für dein Leben ist: dein Atem
 
