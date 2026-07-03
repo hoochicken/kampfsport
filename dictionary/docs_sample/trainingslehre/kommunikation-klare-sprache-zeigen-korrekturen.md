@@ -1,1 +1,9 @@
-# Kommunikation, klare Sprache, Zeigen, Korrekturen
+# Kommunikation
+
+## klare Sprache, Zeigen
+
+
+
+## Korrekturen
+
+
