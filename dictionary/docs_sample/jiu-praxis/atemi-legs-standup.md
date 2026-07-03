@@ -22,14 +22,16 @@ je nach Ausführung als Kik oder Stoß, bieten sich folgende Trefferflächen an
 auch hier gilt: 
 
 * kleine Trefferfläche je kleiner die Trefferfläche, umso größer der im Park und Schmerz. hier sind sogenannte cuts das heißt Platzwunden möglich. 
-* grosse treferfläche: je größer die Trefferfläche, umso leichter kannst du den anderen wegstoßen. böse dient der Distanzkontrolle
+* grosse trefferfläche: je größer die Trefferfläche, umso leichter kannst du den anderen wegstoßen. böse dient der Distanzkontrolle
 
-## sicherer Stand
+## sichererstand und weitere grundregeln
 
 mehr als bei allen anderen Techniken ist der sichere Stand nach einem Kick schwer zu erreichen der Kick geht oft gegen den Körper des Gegners. es ist kaum berechenbar, ob der ausweichen wird gegen Kraft geben wird. mit anderen Worten das Verhalten nach dem Krieg ist ein bisschen unsicher. trainiere daher massiv nach den Kick, dass du schnell in eine sichere (Kampf)stellung zurückkehrst. folgende Aspekte helfen dir dabei
 
 * breiter stand: eine breite Standfläche trägt dazu bei, dass du sicher stehst. wenn du z.B bei einem dreckig dein Fuß direkt neben dem Standbein absetzt, hast du eine kleine Abstandsfläche. besonders bei drehkicks achte auf einen breiteren stand.
-* framing der Gliedmaßen am Körper: behalte deine Hände Ellenbogen Beine relativ nah am Körper, lasse die Beine auch gebeugt. dies trägt dazu bei dass der Schwerpunkt deines physikalischen Körpers besser kontrolliert werden können. je weiter du Gliedmaßen (insbesondere schwere Beine) führst, weißt du du instabiler wirst du. beachte dies insbesondere bei getreten Kicks
+* framing der Gliedmaßen am Körper: behalte deine Hände Ellenbogen Beine relativ nah am Körper, lasse die Beine auch gebeugt. dies trägt dazu bei dass der Schwerpunkt deines physikalischen Körpers besser kontrolliert werden können. je weiter du Gliedmaßen (insbesondere schwere Beine) führst, weißt du du instabiler wirst du. beachte dies insbesondere bei gedrehten Kicks
+* blickfokus: blicke bei Keks immer auf das Schlüsselbein des Partners. richte den Blick nicht auf die Stelle, wohin du kicken möchtest. denn das verrät dem Gegner dein Ziel.(natürlich kannst du damit auch ventieren, mache das also bewusst und nicht unbewusst
+* Blickrichtung: Blicke soweit es geht immer zum Gegner. richte dein Gesicht nach dem Partner aus, beobachte ihn bei ab Ausweichbewegungen aus dem Augenwinkel heraus. sie nicht nur auf den Boden, beuge nicht dein Haupt. halte dies ein besonders in Clinch, denn dein Kopf ist gefährdet wenn du nach unten bringst (wegen dr knee kicks). insbesondere beigetreten Kicks gilt: blicke immer zuerst zum Gegner bevor du kickst. dadurch stellst du sicher dass doch wirklich ins Ziel treffen kannst
 
 ## frontkicks
 
