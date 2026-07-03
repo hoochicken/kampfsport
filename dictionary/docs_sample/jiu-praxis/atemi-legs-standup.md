@@ -1,4 +1,4 @@
-# Atemi & Standup
+# Atemi beine
 
 Üblicherweise nimmt ein Rechtshänder des rechte Bein nach hinten, ein Linkshänder das linke Bein.
 
@@ -23,6 +23,13 @@ auch hier gilt:
 
 * kleine Trefferfläche je kleiner die Trefferfläche, umso größer der im Park und Schmerz. hier sind sogenannte cuts das heißt Platzwunden möglich. 
 * grosse treferfläche: je größer die Trefferfläche, umso leichter kannst du den anderen wegstoßen. böse dient der Distanzkontrolle
+
+## sicherer Stand
+
+mehr als bei allen anderen Techniken ist der sichere Stand nach einem Kick schwer zu erreichen der Kick geht oft gegen den Körper des Gegners. es ist kaum berechenbar, ob der ausweichen wird gegen Kraft geben wird. mit anderen Worten das Verhalten nach dem Krieg ist ein bisschen unsicher. trainiere daher massiv nach den Kick, dass du schnell in eine sichere (Kampf)stellung zurückkehrst. folgende Aspekte helfen dir dabei
+
+* breiter stand: eine breite Standfläche trägt dazu bei, dass du sicher stehst. wenn du z.B bei einem dreckig dein Fuß direkt neben dem Standbein absetzt, hast du eine kleine Abstandsfläche. besonders bei drehkicks achte auf einen breiteren stand.
+* framing der Gliedmaßen am Körper: behalte deine Hände Ellenbogen Beine relativ nah am Körper, lasse die Beine auch gebeugt. dies trägt dazu bei dass der Schwerpunkt deines physikalischen Körpers besser kontrolliert werden können. je weiter du Gliedmaßen (insbesondere schwere Beine) führst, weißt du du instabiler wirst du. beachte dies insbesondere bei getreten Kicks
 
 ## frontkicks
 
