@@ -15,7 +15,9 @@ Bei Formen der Hand zur **Faust** werden die Finger zur Faust eingeklappt; der D
 
 Eine Atemi hat immer auch eine **gleichzeitige Gegenbewegung**. Ein Jab nach vorne bedeutet, dass gleichzeitig den hintere Schulter nach hinten gezogen wird.
 
-Bei Ausführung jeglicher Atemi: Das **Gelenk** (hier Ellenbogengelenk) muss eine **leichte Beugung** beibehalten. Strecke also bei Jab oder Punch  den Arm NICHT durch, sondern halte es GEBEUGT. Sonst droht Verletzung u8nd Überlastung des Gelenks.
+Bei Ausführung jeglicher Atemi: Das **Gelenk** (hier Ellenbogengelenk) muss eine **leichte Beugung** beibehalten. Strecke also bei Jab oder Punch  den Arm NICHT durch, sondern halte es GEBEUGT. Sonst droht Verletzung und Überlastung des Gelenks.
+
+mit jeder artemitechnik, solltest du auch einen Schritt machen. dieser Schritt kann sehr klein sein 10 cm 5 cm 1 cm. wichtig ist, dass du dich bewegst, denn dann kommt die Kraft deiner Körpermasse mit in den Schlag hinein
 
 ### Jab
 
@@ -73,6 +75,7 @@ Diese Übungn sind notiert für den Jab. Übertrage diese auch auf die anderen S
 * führe den Jab mit einem Mini-Schritt nach mit em vorderen Fuss aus
 * Führe den Jab aus und ziehe die gegenseitige Schulter bewusste zurück
 * Schnelligkeitsübung: führe den Jab 20 x aus mit einem Gewicht (z. B. 500ml-Flasche) in der Hand, dann 5 x ohne <= der Jab wird sehr schnell (Achtung: hau dich nicht mit dem Gewicht!)
+* korrekte Fußstellung auf Ballen: stelle dich an deine Wand, stehe in Kampfstellung drücke mit deiner Schlaghand in die Wand hinein. gehe dabei mit deinem hinteren Fuß auf den Beinen. du merkst du, dass du richtig viel Schub mit dem hinteren Bein geben kannst . übertrage diese schubübung auf die schlagübung
 
 ### Ellenbogen
 
