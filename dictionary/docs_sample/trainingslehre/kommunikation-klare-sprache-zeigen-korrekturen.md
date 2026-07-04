@@ -10,12 +10,19 @@ um möglichst fehlerfreie Kommunikation zu gewährleisten heißt das auch, dass 
 
 ## trainingsflow
 
-ein trainingsflow stellt sich ein, wenn die Paare schnell und effizient miteinander trainieren können Punkt das Aufstehen geht schnell, die paar interne Fehlerkorrektur und Rückmeldung ist schnell und effizient. damit sich der trainingsflow einstellt, benötigen die Trainees Zeit. und dem gegenüber stehen Erklärungen und Korrekturen.
+ein trainingsflow stellt sich ein, wenn die Paare schnell und effizient miteinander trainieren können . das Aufstehen geht schnell, die paar paar-interne Fehlerkorrektur und Rückmeldung ist schnell und effizient. 
 
-beachte, dass massive korrektur, der trainingsflow massiv gestört wird. 
+ist die Basis für ein Training mit viel viel Spaß. dadurch sind die Trainees motiviert Punkt und dein Training ist optimal und effektiv.
 
+die Techniken werden verstanden, anhand zahlreiche Wiederholungen weiter geübt und verfestigt.
 
-## visuell zeigen
+damit sich der trainingsflow einstellt, benötigen die Trainees Zeit. und dem gegenüber stehen Erklärungen und Korrekturen.
+
+beachte, dass das zeigen neue Übungen und unzählige Varianten sowie korrektur den trainingsflow negativ beeinflussen können beeinflussen. 
+
+seid ihr dieser Tatsache bewusst und werde ab wann das zeigen einer neuen Technik und eine Korrektur angemessen
+
+## zeigen: visuell
 
 die Grundlage des Erlernens einer neuen Technik, ist die visuelle Aufnahme derselben. in der Regel führt der Trainer die Technik vor der Gruppe aus. diese blosse visuelle Ausführung, mit unterstützt von Kommentaren des Trainers in denen er details hinweist
 
@@ -50,7 +57,7 @@ Perfektion: keiner ist perfekt. auch du musst das nicht sein, auch wenn du ein h
 
 sei sicher in der Unsicherheit!
 
-## klare Sprache, Zeigen
+## Zeigen: verbal
 
 Sprache unterstützt das visuelle zeigen. mit Worten kann man auf wichtige Aspekte bei der Ausführung einer Technik hinweisen. für eine klare Sprache sind folgende Aspekte sehr wichtig
 
@@ -83,7 +90,7 @@ so ein Rant kann dann über mehrere Minuten gehen, du verhaspelst  Dich immer me
 
 dein Training ist dadurch zielgerichtet Punkt der Fokus deiner Gruppe ist zielgerichtet Punkt dann hast du ein effektives Training
 
-## haptisch
+## zeigen: haptisch
 
 **Übung an Training zeigen**
 
