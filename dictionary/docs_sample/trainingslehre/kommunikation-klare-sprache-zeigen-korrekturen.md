@@ -1,4 +1,4 @@
-ääääää# Kommunikation
+# Kommunikation
 
 wenn Du jemand anderen etwas beibringen willst, so musst du mir irgendwie vermitteln, was er machen soll. und dies funktioniert über Kommunikation Punkt das heißt über den Austausch von Informationen. diese Informationen können 
 
@@ -6,7 +6,7 @@ wenn Du jemand anderen etwas beibringen willst, so musst du mir irgendwie vermit
 * auditiv sein wenn du dabei sprichst
 * haptisch wenn der Trainee dabei berührt wird
 
-um fehlerfreie Kommunikation zu gewährleisten heißt das auch, dass du das Ergebnis des Trainings nachher überprüfst und Korrekturen anbringst. auch diese können dann visuell oder auditories oder haptisch erfolgen
+um möglichst fehlerfreie Kommunikation zu gewährleisten heißt das auch, dass du das Ergebnis des Trainings nachher überprüfst und Korrekturen anbringst. auch diese können dann visuell oder auditories oder haptisch erfolgen
 
 ## zeigen
 
@@ -22,9 +22,16 @@ dieses zeigen kann in dreierlei weise ausgeführt werden
 
 **in der individualkorrektur** ist dies sogar extrem nützlich. denn hier kann man den Fehler. es ist **wie eine Videoaufnahme**. dadurch mit dem Training über deutlich, welchen Fehler er macht und auch wie er ihn dann beheben kann <= denn nach dem Aufzeigen des Fehlers des Trainings erfolgt natürlich das korrekte zeigen, wenn dies notwendig ist
 
-das korrekte zeigen einer Technik ist selbstverständlich.
+das korrekte zeigen einer Technik ist selbstverständlich. die allgemeine Körpersprache des Trainers wahrgenommen. das bedeutet: 
 
-## varianten
+wenn du als Trainer vollkommen verkrampft und ängstlich da stehst, wird sich dies übertragen auch sie werden verkrampft da stehen. wenn du mit gefallener Deckung und unaufmerksam da stehst, werden auf deine Trainings faul und unaufmerksam. gerade beim zeigen sollte dir über alles bewusst sein, dass du vorbeugen bist. deine Fehler werden zu den Fehlern deiner Trainings werden. achte daher besonders darauf, dass auch Du diszipliniert deine Kampfstellung und deine  Aufmerksamkeit im griff hast. dies bedeutet en detail
+
+* sei aufmerksam, Blickrichtung zum Gegner 
+* saubere Kampfstellung 
+* Deckung oben 
+* geschlossen dastehen
+
+## technik-varianten vs. fokus
 
 ## klare Sprache, Zeigen
 
