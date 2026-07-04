@@ -137,7 +137,19 @@ verwende individualkorrektur, wenn es für den Trainee stimmt und beachte immer,
 
 warum stellt eine Korrektur Wertschätzung da? weil der Trainee gerade Aufmerksamkeiten kommt und Zeit geschenkt bekommt Zeit die nur für ihn reserviert ist 
 
-in unserer hektischen Zeit kann es oft vorkommen dass die Menschlichkeit. mit einem netten Wort und einem Lohn, kannst du jemandes Tag oder sogar Woche retten
+in unserer hektischen Zeit kann es oft vorkommen dass die Menschlichkeit. mit einem netten Wort und einem Lohn, kannst du jemandes Tag oder sogar Woche . 
+
+**gruppenkorrektur**
+
+üblicherweise läuft man als kampfsporttrainer durch die Reihen der Trainierenden Paare und sieht den ein oder anderen Fehler. für individuelle Fehler ist eine individuelle Korrektur sinnvoll. manchmal stellst du aber fest Personen den gleichen Fehler machen. statt alles fünfmal zu erzählen kannst du auch gleich eine gruppenkorrektur machen. 
+
+rufe die Gruppe zusammen und erkläre, dass es hier ein üblichen Fehler gibt. und dass sie dort wie folgt reagieren können. hebe also diesen Fehler hervor, erkläre , wodurch er zustande kommen. so gehst du gezielt auf die Fehler in deiner Gruppe ein und machst deine ganze Truppe besser.
+
+das gilt auch für den nächsten Abschnitt, da geht es um Lob.
+
+## Lob
+
+
 
 
 
