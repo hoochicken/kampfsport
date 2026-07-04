@@ -179,9 +179,17 @@ es gibt auch das gezielte Lob, du benennst gleichzeitig, welche Handlung genau g
 
 natürlich kannst du auch die ganze Gruppe loben. Abschnitten an direkt nachdem alle eine bestimmte Übung geübt haben, oder global am Ende.
 
-** vorweggenommenes lob**
+**vorweggenommenes lob**
 
-ist genau genommen eine Manipulation du lobst die Gruppe dafür, schon bevor sie etwas gemacht hat anhand eines Beispielsl
+ist genau genommen eine Manipulation du lobst die Gruppe dafür, schon bevor sie etwas gemacht hat anhand eines Beispiels
+
+deine Jugendgruppe hat männliche Jugendliche im Alter von 15 Jahren. matratzentraining gibt es jedes Mal verletzte (beim Pratzentraining!). um diesem Phänomen entgegenzuwirken und alle Teilnehmer gesund zu halten kannst du einfach zuvor ein Lob an die Gruppe aussprechen. z.B kannst du sagen: 
+
+"ich bin froh und stolz, dass ihr eine so vernünftige Gruppe seid ihr passt beim Pratzentraining immer aufeinander auf und fangt immer langsam an zu schlagen ich finde das großartig."
+
+damit schreibst du ihn bereits an Attribut zu, dass sie eigentlich gar nicht hätten in ihrem Kopf aber baut sich baut sich das so zusammen, dass sie die Attribute von langsam, vernünftig bereits besitzen . denn sie wurden ja dafür gerade gelobt. 
+
+natürlich gibt es auch Chaoten, bei denen das nicht funktioniert. im allgemeinen landet ihr damit aber ein Volltreffer
 
 
 
