@@ -6,9 +6,16 @@ wenn Du jemand anderen etwas beibringen willst, so musst du mir irgendwie vermit
 * auditiv sein wenn du dabei sprichst
 * haptisch wenn der Trainee dabei berührt wird
 
-um möglichst fehlerfreie Kommunikation zu gewährleisten heißt das auch, dass du das Ergebnis des Trainings nachher überprüfst und Korrekturen anbringst. auch diese können dann visuell oder auditories oder haptisch erfolgen
+um möglichst fehlerfreie Kommunikation zu gewährleisten heißt das auch, dass du das Ergebnis des Trainings nachher überprüfst und Korrekturen anbringst. auch diese können dann visuell oder auditories oder haptisch erfolgen. das Vorzeichen der Übungen und die Korrekturen sollten dabei den trainingsflow begünstigen Punkt trainingsflow?
 
-## zeigen
+## trainingsflow
+
+ein trainingsflow stellt sich ein, wenn die Paare schnell und effizient miteinander trainieren können Punkt das Aufstehen geht schnell, die paar interne Fehlerkorrektur und Rückmeldung ist schnell und effizient. damit sich der trainingsflow einstellt, benötigen die Trainees Zeit. und dem gegenüber stehen Erklärungen und Korrekturen.
+
+beachte, dass massive korrektur, der trainingsflow massiv gestört wird. 
+
+
+## visuell zeigen
 
 die Grundlage des Erlernens einer neuen Technik, ist die visuelle Aufnahme derselben. in der Regel führt der Trainer die Technik vor der Gruppe aus. diese blosse visuelle Ausführung, mit unterstützt von Kommentaren des Trainers in denen er details hinweist
 
@@ -94,16 +101,20 @@ Beispiel: bei einem Wurf ist im Trainee die zu werfende Richtung noch nicht bewu
 
 ## Korrekturen
 
+korrektur ist eine fehlerberichtigung, ein aufmerksam-machen der Trainees auf eine suboptimale Ausführung der Technik
+
 Korrekturen kannst du in der Gruppe durchführen oder auch individuell.
 
 **individualkorrektur**
 
 eine individuelle Korrektur findet direkt an den Trainee oder dem Trainee Pärchen statt. hier erklärst du direkt welchen Fehler der Trainee gemacht hat und wie er es richtig machen kann 
 
-dies hat den Vorteil dass der Trainee direkt angesprochen wird und sich wertgeschätzt fühlt. es hat aber auch Nachteile. der Training könnte sich schuldig fühlen, dass du ihn korrigierst andere trainees können von  der individualkorrektur nicht profitieren, weil sie es wieder hören noch sehen. ebenfalls ein großer Nachteil ist, dass durch zu massive individualkorrektur, dann trainingslos massiv gestört wird. dadurch wird ein Trainings Flow verhindert . beachte dabei beide individualkorrektur: 
+dies hat den Vorteil dass der Trainee direkt angesprochen wird und sich wertgeschätzt fühlt. es hat aber auch Nachteile. der Training könnte sich schuldig fühlen, dass du ihn korrigierst andere trainees können von  der individualkorrektur nicht profitieren, weil sie es wieder hören noch sehen. beachte daher bei der individualkorrektur: 
 
 * in Maßen
 * auf den Typ des Trainees abstimmen ( ist er schnell frustriert und fühlt sich beschuldigt? dann eher nicht)
+
+verwende individualkorrektur, wenn es für den Trainee stimmt und beachte immer, dass es eine Wertschätzung darstellt
 
 
 
