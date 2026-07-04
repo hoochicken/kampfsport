@@ -84,10 +84,26 @@ bei der individualkorrektur ist es oft sinnvoll, die Übung direkt an dem Traine
 
 **Übung durch den Trainee an sich zeigen lassen**
 
-der Training kann diese Übung auch an dir als Trainer ausführen. dabei kannst du direkt direkt seine Stellung, seine Ausführung korrigieren. kannst eine gegentechnik ausführen, die er verhindert muss und ihm zeigen wie kannst ihn in die Bewegung aktiv hineinführen insbesondere bei hautnahen Techniken bietet sich diese Vorgehensweise an, also im Bodenkampf oder Wolfgang. Beispiel: bei einem Wurf ist im Trainee die zuwerfende Richtung noch nicht bewusst. du springst selber zu diesem gedacht Punkt hin und nimmst seinen Körper mit Punkt dadurch lernt sein Körper passiv diese Bewegung und kann sie danach aktiv ausführen
+der Training kann diese Übung auch an dir als Trainer ausführen. dabei kannst du direkt 
+
+* direkt seine Stellung, seine Ausführung korrigieren. 
+* kannst eine gegentechnik ausführen, die er verhindert muss und ihm zeigen wie 
+* du kannst ihn in die Bewegung aktiv hineinführen insbesondere bei hautnahen Techniken bietet sich diese Vorgehensweise an, also im Bodenkampf oder wurfkampf. 
+
+Beispiel: bei einem Wurf ist im Trainee die zu werfende Richtung noch nicht bewusst. du sagst: " f0hke jetzt diese bewegung mit, ich führe dich." du springst selber zu diesem gedacht Punkt hin und nimmst seinen Körper mit . dadurch lernt sein Körper passiv diese Bewegung und kann sie danach aktiv ausführen
 
 ## Korrekturen
 
+Korrekturen kannst du in der Gruppe durchführen oder auch individuell.
+
+**individualkorrektur**
+
+eine individuelle Korrektur findet direkt an den Trainee oder dem Trainee Pärchen statt. hier erklärst du direkt welchen Fehler der Trainee gemacht hat und wie er es richtig machen kann 
+
+dies hat den Vorteil dass der Trainee direkt angesprochen wird und sich wertgeschätzt fühlt. es hat aber auch Nachteile. der Training könnte sich schuldig fühlen, dass du ihn korrigierst andere trainees können von  der individualkorrektur nicht profitieren, weil sie es wieder hören noch sehen. ebenfalls ein großer Nachteil ist, dass durch zu massive individualkorrektur, dann trainingslos massiv gestört wird. dadurch wird ein Trainings Flow verhindert . beachte dabei beide individualkorrektur: 
+
+* in Maßen
+* auf den Typ des Trainees abstimmen ( ist er schnell frustriert und fühlt sich beschuldigt? dann eher nicht)
 
 
 
