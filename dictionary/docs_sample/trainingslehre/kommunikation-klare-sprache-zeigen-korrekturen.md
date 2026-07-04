@@ -1,4 +1,4 @@
-# Kommunikation
+# Kommunikation und Flow
 
 wenn Du jemand anderen etwas beibringen willst, so musst du mir irgendwie vermitteln, was er machen soll. und dies funktioniert über Kommunikation Punkt das heißt über den Austausch von Informationen. diese Informationen können 
 
@@ -74,7 +74,7 @@ bei visuellen zeigen und der verbalen Erklärung ist es wichtig, dass du Sicherh
 
 "diese Technik ist schwer auszuführen. zumindest mir fällt sie manchmal schwer, besonders wenn der Gegner größer ist als ich. aber ich weiß, dass einige von euch diese Technik sehr gut werden ausführen können und auch ihren Spaß daran haben werden deshalb viel Spaß und fangt an"
 
-" bei Selbstverteidigung bin ich mir immer etwas unsicher, was ich zeigen soll. Hintergrund ist dass mir die juristische Sachlage Sorgen bereitet. ich kann euch nur empfehlen: macht euch darüber im Vorfeld Gedanken. denn hier muss jeder seine eigene Entscheidung treffen"
+"bei Selbstverteidigung bin ich mir immer etwas unsicher, was ich zeigen soll. Hintergrund ist dass mir die juristische Sachlage Sorgen bereitet. ich kann euch nur empfehlen: macht euch darüber im Vorfeld Gedanken. denn hier muss jeder seine eigene Entscheidung treffen"
 
 du siehst unsicher zu sein ist ganz einfach und auch die Unsicherheit zu formulieren. du bist ein Mensch und kein Idiot. unterstützt deine Schüler damit auch vor falscher Sicherheit . gerade in Selbstverteidigung solange, kann falsche Sicherheit sehr gefährlich sein
 
@@ -92,9 +92,13 @@ dein Training ist dadurch zielgerichtet Punkt der Fokus deiner Gruppe ist zielge
 
 ## zeigen: haptisch
 
-**Übung an Training zeigen**
+**Übung an Trainee zeigen**
 
-bei der individualkorrektur ist es oft sinnvoll, die Übung direkt an dem Trainee zu zeigen. du fürs beispielsweise ein Hüftwurf an ihm so aus wie er es macht, und weißt auf den Fehler hin Punkt dann spürt der Trainee genau diesen Fehler. anschließend zeigst Du es richtig Punkt so kann der Trainee direkt spüren welche Auswirkung die Technik haben sollte. die versetzen in die Lage, darauf zuzutrainieren
+bei der individualkorrektur ist es oft sinnvoll, die Übung direkt an dem Trainee zu zeigen. du fürs 
+
+beispiel 1: du führst ein Hüftwurf an ihm so aus wie er es macht, und weißt auf den Fehler hin . dann spürt der Trainee genau diesen Fehler. anschließend zeigst Du es richtig Punkt so kann der Trainee direkt spüren welche Auswirkung die Technik haben sollte. die versetzen in die Lage, darauf zuzutrainieren
+
+beispiel 2: du schlägst  eine Führhand zum Gesicht, genauer zur Nase, Haltepunkt ist 5 cm hinter der Nasenwurzel. so führe den schlag  wirklich dorthin, wo sie sein soll, so dass der Kopf des Trainings verdreht wird und er in Rückenlage Gerät Punkt mach das natürlich ganz ganz langsam. dann spürt der Trainee direkt welche Trefferfläche den Schaden anrichtet und wieder Schlag oder der Kick den anderen manipulieren soll. 
 
 **Übung durch den Trainee an sich zeigen lassen**
 
@@ -104,7 +108,7 @@ der Training kann diese Übung auch an dir als Trainer ausführen. dabei kannst 
 * kannst eine gegentechnik ausführen, die er verhindert muss und ihm zeigen wie 
 * du kannst ihn in die Bewegung aktiv hineinführen insbesondere bei hautnahen Techniken bietet sich diese Vorgehensweise an, also im Bodenkampf oder wurfkampf. 
 
-Beispiel: bei einem Wurf ist im Trainee die zu werfende Richtung noch nicht bewusst. du sagst: " f0hke jetzt diese bewegung mit, ich führe dich." du springst selber zu diesem gedacht Punkt hin und nimmst seinen Körper mit . dadurch lernt sein Körper passiv diese Bewegung und kann sie danach aktiv ausführen
+**Beispiel**: bei einem Wurf ist im Trainee die zu werfende Richtung noch nicht bewusst. du sagst: " f0hke jetzt diese bewegung mit, ich führe dich." du springst selber zu diesem gedacht Punkt hin und nimmst seinen Körper mit . dadurch lernt sein Körper passiv diese Bewegung und kann sie danach aktiv ausführen
 
 ## Korrekturen
 
@@ -129,7 +133,11 @@ dies hat den Vorteil dass der Trainee direkt angesprochen wird und sich wertgesc
 * in Maßen
 * auf den Typ des Trainees abstimmen ( ist er schnell frustriert und fühlt sich beschuldigt? dann eher nicht)
 
-verwende individualkorrektur, wenn es für den Trainee stimmt und beachte immer, dass es eine Wertschätzung darstellt
+verwende individualkorrektur, wenn es für den Trainee stimmt und beachte immer, dass es eine Wertschätzung darstellt .
+
+warum stellt eine Korrektur Wertschätzung da? weil der Trainee gerade Aufmerksamkeiten kommt und Zeit geschenkt bekommt Zeit die nur für ihn reserviert ist 
+
+in unserer hektischen Zeit kann es oft vorkommen dass die Menschlichkeit. mit einem netten Wort und einem Lohn, kannst du jemandes Tag oder sogar Woche retten
 
 
 
