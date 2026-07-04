@@ -78,6 +78,14 @@ dein Training ist dadurch zielgerichtet Punkt der Fokus deiner Gruppe ist zielge
 
 ## haptisch
 
+**Übung an Training zeigen**
+
+bei der individualkorrektur ist es oft sinnvoll, die Übung direkt an dem Trainee zu zeigen. du fürs beispielsweise ein Hüftwurf an ihm so aus wie er es macht, und weißt auf den Fehler hin Punkt dann spürt der Trainee genau diesen Fehler. anschließend zeigst Du es richtig Punkt so kann der Trainee direkt spüren welche Auswirkung die Technik haben sollte. die versetzen in die Lage, darauf zuzutrainieren
+
+**Übung durch den Trainee an sich zeigen lassen**
+
+der Training kann diese Übung auch an dir als Trainer ausführen. dabei kannst du direkt direkt seine Stellung, seine Ausführung korrigieren. kannst eine gegentechnik ausführen, die er verhindert muss und ihm zeigen wie kannst ihn in die Bewegung aktiv hineinführen insbesondere bei hautnahen Techniken bietet sich diese Vorgehensweise an, also im Bodenkampf oder Wolfgang. Beispiel: bei einem Wurf ist im Trainee die zuwerfende Richtung noch nicht bewusst. du springst selber zu diesem gedacht Punkt hin und nimmst seinen Körper mit Punkt dadurch lernt sein Körper passiv diese Bewegung und kann sie danach aktiv ausführen
+
 ## Korrekturen
 
 
