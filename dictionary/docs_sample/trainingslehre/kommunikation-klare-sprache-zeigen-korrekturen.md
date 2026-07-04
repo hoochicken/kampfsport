@@ -112,6 +112,14 @@ korrektur ist eine fehlerberichtigung, ein aufmerksam-machen der Trainees auf ei
 
 Korrekturen kannst du in der Gruppe durchführen oder auch individuell.
 
+**wenn gefährlich => sofort korrigieren**
+
+sollte eine gefährliche Situation im Training aufkommen, greife sofort ein. du kannst damit Leib und Leben eines anderen retten. und schwere Verletzungen von dem abhalten. 
+
+dies betrifft die Ausführung einer Technik innerhalb eines Paares, eine Situation bei einer Spiel in der Gruppe, das fehlerhafte und gefährliche zeigen einer Übung durch den Trainer. warte nicht. wenn du wartest.
+
+andersrum: stell dir mal vor du wartest ab, und es passiert tatsächlich etwas ganz Schlimmes. jemand landet im Rollstuhl. überlege ob du damit leben möchtest.
+
 **individualkorrektur**
 
 eine individuelle Korrektur findet direkt an den Trainee oder dem Trainee Pärchen statt. hier erklärst du direkt welchen Fehler der Trainee gemacht hat und wie er es richtig machen kann 
