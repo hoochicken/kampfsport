@@ -149,7 +149,7 @@ das gilt auch für den nächsten Abschnitt, da geht es um Lob.
 
 ## Lob
 
-ist das Positive zu reden nach einer erfolgreichen Handlung. es ist das wichtigste Instrument in deinem ganzen Trainer Werkzeugkasten. du kannst globalo wie: 
+ist das Positive zu reden nach einer erfolgreichen Handlung. es ist das wichtigste Instrument in deinem ganzen Trainer Werkzeugkasten. du kannst globa loben wie: 
 
 * "das hast du gut gemacht"
 * "das war schön"
