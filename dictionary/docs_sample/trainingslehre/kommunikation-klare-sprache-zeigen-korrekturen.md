@@ -149,6 +149,18 @@ das gilt auch für den nächsten Abschnitt, da geht es um Lob.
 
 ## Lob
 
+ist das Positive zu reden nach einer erfolgreichen Handlung. es ist das wichtigste Instrument in deinem ganzen Trainer Werkzeugkasten. du kannst globalo wie: 
+
+* "das hast du gut gemacht"
+* "das war schön"
+* "du strengst dich an"
+
+es gibt auch das gezielte Lob, du benennst gleichzeitig, welche Handlung genau gut funktioniert hat Punkt dadurch erreicht sie auch gleichzeitig eine Wiederholung und Bewusstmachung eines zentralen Punkt ist einer Technik. das hört sich z.B so an
+
+* "diese Führhand war sehr gut ausgeführt"
+* "du hast optimal die Trefferfläche getroffen sehr gut"
+* "der lowkick hat die optimale Wirkung entfaltet, weil du winkel und Distanz richtig bemessen hast. perfekt!"
+
 
 
 
