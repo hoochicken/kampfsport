@@ -149,7 +149,21 @@ das gilt auch für den nächsten Abschnitt, da geht es um Lob.
 
 ## Lob
 
-ist das Positive zu reden nach einer erfolgreichen Handlung. es ist das wichtigste Instrument in deinem ganzen Trainer Werkzeugkasten. du kannst globa loben wie: 
+lob ist das Positive zu reden nach einer erfolgreichen Handlung. es ist eines der wichtigsten Instrumente in deinem Trainer-Werkzeugkasten
+
+warum ist das Klo, Lob einzusetzen? auch hier spielt der Mensch als soziales Wesen eine Rolle. wir sind auf andere angewiesen. auch wenn man in der heutigen Zeit gerne solotrips fährt: im Großen und Ganzen sind wir schwer überlebensfähig wenn wir alleine sind. wir überleben, weil wir uns in Gruppen bewegen. Gruppen haben psychologische Dynamiken, die sie zusammenhalten. da gehören Geschenke und Wertschätzung dazu.
+
+(natürlich kann man eine Gruppe auch mit Gewalt Angst und Terror zusammenhalten das ist dann aber nicht so langlebig und dann warten eigentlich nur alle drauf wie sie den obersten töten können und dann selber eine Schrecken aufzubauen.) 
+
+Lob ist eines der Mittel womit wir anderen Wertschätzung geben der andere fühlt dann: "ich bin geehrt, ich werde wahrgenommen, ich werde gesehen. ich bin wertvoll." 
+
+ein Lob erzeugt also ein Gefühl in dem anderen, dass er gerne mag. dabei wird ein bisschen Dopamin ausgestoßen. und genau diesen Mechanismus kannst du zur Optimierung deines Trainings nutzen. 
+
+Lob und Fehlerkorrektur sind also zwei "Gegenspieler". Korrektur zeigst du was du nicht haben willst. durch Lob zeigst du was du haben möchtest.
+
+**direktes individuelles Lob**
+
+du kannst globl loben wie: 
 
 * "das hast du gut gemacht"
 * "das war schön"
@@ -160,6 +174,12 @@ es gibt auch das gezielte Lob, du benennst gleichzeitig, welche Handlung genau g
 * "diese Führhand war sehr gut ausgeführt"
 * "du hast optimal die Trefferfläche getroffen sehr gut"
 * "der lowkick hat die optimale Wirkung entfaltet, weil du winkel und Distanz richtig bemessen hast. perfekt!"
+
+**gruppenlob**
+
+natürlich kannst du auch die ganze Gruppe loben. Abschnitten an direkt nachdem alle eine bestimmte Übung geübt haben, oder global am Ende.
+
+** vorweggenommenes lob**
 
 
 
