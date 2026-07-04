@@ -18,6 +18,10 @@ dieses zeigen kann in dreierlei weise ausgeführt werden
 * korrekt mit ganz bewusster übertreibung wichtiger details
 * fehlerhaft, mit bewusstem und pbertriebenem aufzeigen üblicher fehler
 
+zeige eine Technik **immer auf einer Seite**. so können sich die Trainees leichter die Abfolge links und rechts merken. zeigst du eine Technik mal links und mal rechts, wird es für jeden schwer diese Abfolge zu folgen. weil das Gehirn ständig umrechnen muss.
+
+richte die Gruppe so aus, dass sie die Technik optimal sehen können. also drehst du dich mit deinem Partner entsprechend oder lässt die Gruppe auf eine Seite laufen.
+
 **karrikative fehlerübertreibung** es gibt die allgemeine Meinung, dass man Techniken niemals fehlerhaft zeigen soll. ich bin definitiv anderer Meinung. es ist so wichtig, dass man Trainees auch eine typische fehlerhafte Ausführung zeigt und genau darauf hinweist. 
 
 **in der individualkorrektur** ist dies sogar extrem nützlich. denn hier kann man den Fehler. es ist **wie eine Videoaufnahme**. dadurch mit dem Training über deutlich, welchen Fehler er macht und auch wie er ihn dann beheben kann <= denn nach dem Aufzeigen des Fehlers des Trainings erfolgt natürlich das korrekte zeigen, wenn dies notwendig ist
@@ -34,6 +38,15 @@ wenn du als Trainer vollkommen verkrampft und ängstlich da stehst, wird sich di
 ## technik-varianten vs. fokus
 
 ## klare Sprache, Zeigen
+
+Sprache unterstützt das visuelle zeigen. mit Worten kann man auf wichtige Aspekte bei der Ausführung einer Technik hinweisen. für eine klare Sprache sind folgende Aspekte sehr wichtig
+
+* konkret die Seite wenn also z.B "die rechte Hand", "der linke Fuß"
+* vermeide Allgemeinheiten wie "hier und da und jetzt da und dann so"
+* fasse jede technikabfolge einem mega kurzen Satz zusammen. z.B. kann das Einsteigen in den schulterhebel am Boden am rechten Arm des Gegners wie folgt formuliert werden
+    * "Schulter hoch, Hand zum Gesicht, Schritt an Schulter, armstreckhebel"
+    * "rechts, links, Schritt, Zug"
+    * diese Mini Zusammenfassungen bleiben im Kopf des Trainees bestehen und Sie können Sie während  der Ausübung der Technik vor sich her sagen und gleich und so beachten Sie gleichzeitig die vier wichtigsten Details gezeigten Technik
 
 fahre zuversichtlich und selbstbewusste gebraten, nicht so weit weg führen, fokussiert bleiben
 
