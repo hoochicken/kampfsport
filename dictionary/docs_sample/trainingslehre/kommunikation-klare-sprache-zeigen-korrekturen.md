@@ -187,9 +187,12 @@ deine Jugendgruppe hat männliche Jugendliche im Alter von 15 Jahren. matratzent
 
 "ich bin froh und stolz, dass ihr eine so vernünftige Gruppe seid ihr passt beim Pratzentraining immer aufeinander auf und fangt immer langsam an zu schlagen ich finde das großartig."
 
-damit schreibst du ihn bereits an Attribut zu, dass sie eigentlich gar nicht hätten in ihrem Kopf aber baut sich baut sich das so zusammen, dass sie die Attribute von langsam, vernünftig bereits besitzen . denn sie wurden ja dafür gerade gelobt. 
+damit schreibst du ihn bereits  qualitäten zu, das sie in wahrheit (noch) nicht haben. in ihrem Kopf aber baut sich baut sich das so zusammen, dass sie die Attribute von langsam, vernünftig bereits besitzen . denn sie wurden ja dafür gerade gelobt. 
 
-natürlich gibt es auch Chaoten, bei denen das nicht funktioniert. im allgemeinen landet ihr damit aber ein Volltreffer
+natürlich gibt es auch Chaoten, bei denen das nicht funktioniert. im allgemeinen landet ihr damit aber ein Volltreffer.
+
+
+
 
 
 
