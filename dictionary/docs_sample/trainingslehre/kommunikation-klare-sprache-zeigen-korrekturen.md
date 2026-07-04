@@ -181,6 +181,9 @@ natürlich kannst du auch die ganze Gruppe loben. Abschnitten an direkt nachdem 
 
 ** vorweggenommenes lob**
 
+ist genau genommen eine Manipulation du lobst die Gruppe dafür, schon bevor sie etwas gemacht hat anhand eines Beispielsl
+
+
 
 
 
