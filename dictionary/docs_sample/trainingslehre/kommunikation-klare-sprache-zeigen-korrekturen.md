@@ -155,7 +155,7 @@ das gilt auch für den nächsten Abschnitt, da geht es um Lob.
 
 lob ist das Positive zu reden nach einer erfolgreichen Handlung. es ist eines der wichtigsten Instrumente in deinem Trainer-Werkzeugkasten
 
-warum ist das Klo, Lob einzusetzen? auch hier spielt der Mensch als soziales Wesen eine Rolle. wir sind auf andere angewiesen. auch wenn man in der heutigen Zeit gerne solotrips fährt: im Großen und Ganzen sind wir schwer überlebensfähig wenn wir alleine sind. wir überleben, weil wir uns in Gruppen bewegen. Gruppen haben psychologische Dynamiken, die sie zusammenhalten. da gehören Geschenke und Wertschätzung dazu.
+warum ist das Klug, Lob einzusetzen? auch hier spielt der Mensch als soziales Wesen eine Rolle. wir sind auf andere angewiesen. auch wenn man in der heutigen Zeit gerne solotrips fährt: im Großen und Ganzen sind wir schwer überlebensfähig wenn wir alleine sind. wir überleben, weil wir uns in Gruppen bewegen. Gruppen haben psychologische Dynamiken, die sie zusammenhalten. da gehören Geschenke und Wertschätzung dazu.
 
 (natürlich kann man eine Gruppe auch mit Gewalt Angst und Terror zusammenhalten das ist dann aber nicht so langlebig und dann warten eigentlich nur alle drauf wie sie den obersten töten können und dann selber eine Schrecken aufzubauen.) 
 
