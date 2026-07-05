@@ -36,7 +36,9 @@ zeige eine Technik **immer auf einer Seite**. so können sich die Trainees leich
 
 richte die Gruppe so aus, dass sie die Technik optimal sehen können. also drehst du dich mit deinem Partner entsprechend oder lässt die Gruppe auf eine Seite laufen.
 
-**karrikative fehlerübertreibung** es gibt die allgemeine Meinung, dass man Techniken niemals fehlerhaft zeigen soll. ich bin definitiv anderer Meinung. es ist so wichtig, dass man Trainees auch eine typische fehlerhafte Ausführung zeigt und genau darauf hinweist. die Trainee sind ja nicht dumm Punkt die sind intelligent und wollen was lernen: und da gehört Verarbeitung von typischen Fehlern dazu!
+**karrikative fehlerübertreibung** es gibt die allgemeine Meinung, dass man Techniken niemals fehlerhaft zeigen soll. ich bin definitiv anderer Meinung. es ist so wichtig, dass man Trainees auch eine typische fehlerhafte Ausführung zeigt und genau darauf hinweist. die Trainee sind ja nicht dumm . die sind intelligent und wollen was lernen: und da gehört Verarbeitung von typischen Fehlern dazu!
+
+im kindertraining würde ich mir überlegen Komma ob ich den Fehler direkt zeige . denn ich könnte mir vorstellen Komma das Kinder dies anders im Kopf verarbeiten.
 
 **in der individualkorrektur** ist dies sogar extrem nützlich. denn hier kann man den Fehler. es ist **wie eine Videoaufnahme**. dadurch mit dem Training über deutlich, welchen Fehler er macht und auch wie er ihn dann beheben kann <= denn nach dem Aufzeigen des Fehlers des Trainings erfolgt natürlich das korrekte zeigen, wenn dies notwendig ist
 
@@ -84,13 +86,15 @@ fahre zuversichtlich und selbstbewusste gebraten, nicht so weit weg führen, fok
 
 gerade als Trainer steht man unter einem gewissen Druck. man denkt, dass die trainies von einem erwarten, dass man alles perfekt kann und perfekt zeigen kann Punkt das führt dann dazu, dass man sein Wissen besonders gerne verbreiten mag Punkt und das wiederum führt dazu, dass man viele viele Dinge erzählt. das kann manchmal sinnvoll sein. oft ist es aber auch so dass man die Trainings damit verwirrt und von der eigentlichen Technik ablenkt. 
 
-Beispiel: du zeigst deinen Schulterwurf, erklärst die Funktionsweise, dass der hüfthof etwas so ähnlich ist dass die keine Verteidigungstechniken sind, das Verteidigung darin besteht dass man versucht dabei zu eskalieren und dass man erst dann in den Angriff übergeht das ist nicht zu verwechseln mit einer wettkampfvariante da verwendet man aber keine Waffen. 
+Beispiel: du zeigst deinen Schulterwurf, erklärst die Funktionsweise, dass der hüftwurf etwa so ähnlich ist dass die keine Verteidigungstechniken sind, das Verteidigung darin besteht dass man versucht dabei zu deeskalieren und dass man erst dann in den Angriff übergeht das ist nicht zu verwechseln mit einer wettkampfvariante da verwendet man aber keine Waffen. 
 
 so ein Rant kann dann über mehrere Minuten gehen, du verhaspelst  Dich immer mehr kommst von hundertsten ins Tausendste. das kann **mal** okay sein . halte aber ansonsten dein Fokus konzentriert . damit hältst du den Fokus deiner traineys konzentriert . und dann können sie gut arbeiten
 
-dein Training ist dadurch zielgerichtet Punkt der Fokus deiner Gruppe ist zielgerichtet Punkt dann hast du ein effektives Training
+dein Training ist dadurch zielgerichtet . der Fokus deiner Gruppe ist zielgerichtet Punkt dann hast du ein effektives Training
 
 ## zeigen: haptisch
+
+haptisch meint, indem du den Trainee direkt anfasst den Trainee direkt anfasst, sei es am Arm oder am Rücken, so dass ihr körperlich in irgendeiner Weise miteinander interagiert.
 
 **Übung an Trainee zeigen**
 
