@@ -1,4 +1,4 @@
-# Feedback-Runde
+ist in kommun7katipn # Feedback-Runde
 
 eine Feedbackrunde besteht darin, dass ich nach dem Training alle im Kreis zusammensetzen. dann können Fragen zu dem Training erläutert werden. passende Fragen sind z.B
 
