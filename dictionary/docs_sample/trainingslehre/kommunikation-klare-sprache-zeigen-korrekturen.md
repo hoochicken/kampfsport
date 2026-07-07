@@ -72,7 +72,9 @@ Sprache unterstützt das visuelle zeigen. mit Worten kann man auf wichtige Aspek
 
 ## zuversicht und Sicherheit
 
-bei visuellen zeigen und der verbalen Erklärung ist es wichtig, dass du Sicherheit ausstrahlst. die Sicherheit bezieht sich dabei auf die Ausführung der Technik. dies ist wichtig, damit die trainee's dich und die Technik ernst nehmen. vielleicht wird er das manchmal schwer fallen, weil das eine schwere Technik ist weil du klein bist und der Partner an dem du das zeigst groß, weil du einfach einen schlechten Tag hast. was willst du dann machen, wenn du so unsicher bist Punkt lässt du diese Unsicherheit auf die Gruppe durchscheinen, werden trainies selbst unsicher. hier ist ein einfacher Weg, wie du Sicherheit ausstrahlst sei sicher in der Unsicherheit. was ich zunächst einmal komisch anhört ist unglaublich wichtig sowohl für das Training und mehr noch für dein alltägliches Leben. es ist gar nicht möglich in allem sicher zu sein. überall gibt es Fallstricke, man kann sich in irgendwas irren, denn man ist einfach menschlich Punkt und dies darfst du genau auf so formulieren. z.B helfen dir folgende Fragen 
+bei visuellen zeigen und der verbalen Erklärung ist es wichtig, dass du Sicherheit ausstrahlst. die Sicherheit bezieht sich dabei auf die Ausführung der Technik. dies ist wichtig, damit die trainee's dich und die Technik ernst nehmen. vielleicht wird er das manchmal schwer fallen, weil das eine schwere Technik ist weil du klein bist und der Partner an dem du das zeigst groß, weil du einfach einen schlechten Tag hast. was willst du dann machen, wenn du so unsicher bist? 
+
+lässt du diese Unsicherheit auf die Gruppe durchscheinen, werden trainies selbst unsicher. hier ist ein einfacher Weg, wie du Sicherheit ausstrahlst sei sicher in der Unsicherheit. was ich zunächst einmal komisch anhört ist unglaublich wichtig sowohl für das Training und mehr noch für dein alltägliches Leben. es ist gar nicht möglich in allem sicher zu sein. überall gibt es Fallstricke, man kann sich in irgendwas irren, denn man ist einfach menschlich Punkt und dies darfst du genau auf so formulieren. z.B helfen dir folgende Fragen 
 
 "diese Technik ist schwer auszuführen. zumindest mir fällt sie manchmal schwer, besonders wenn der Gegner größer ist als ich. aber ich weiß, dass einige von euch diese Technik sehr gut werden ausführen können und auch ihren Spaß daran haben werden deshalb viel Spaß und fangt an"
 
@@ -80,7 +82,7 @@ bei visuellen zeigen und der verbalen Erklärung ist es wichtig, dass du Sicherh
 
 du siehst unsicher zu sein ist ganz einfach und auch die Unsicherheit zu formulieren. du bist ein Mensch und kein Idiot. unterstützt deine Schüler damit auch vor falscher Sicherheit . gerade in Selbstverteidigung solange, kann falsche Sicherheit sehr gefährlich sein
 
-fahre zuversichtlich und selbstbewusste gebraten, nicht so weit weg führen, fokussiert bleiben
+führe zuversichtlich und selbstbewusst, labere nicht so weit weg, bleibe fokussiert
 
 ## technik-varianten vs. fokus
 
@@ -88,7 +90,7 @@ gerade als Trainer steht man unter einem gewissen Druck. man denkt, dass die tra
 
 Beispiel: du zeigst deinen Schulterwurf, erklärst die Funktionsweise, dass der hüftwurf etwa so ähnlich ist dass die keine Verteidigungstechniken sind, das Verteidigung darin besteht dass man versucht dabei zu deeskalieren und dass man erst dann in den Angriff übergeht das ist nicht zu verwechseln mit einer wettkampfvariante da verwendet man aber keine Waffen. 
 
-so ein Rant kann dann über mehrere Minuten gehen, du verhaspelst  Dich immer mehr kommst von hundertsten ins Tausendste. das kann **mal** okay sein . halte aber ansonsten dein Fokus konzentriert . damit hältst du den Fokus deiner traineys konzentriert . und dann können sie gut arbeiten
+dieses gelaber kann dann über mehrere Minuten gehen, du verhaspelst  Dich immer mehr kommst von hundertsten ins Tausendste. das kann **mal** okay sein . halte aber ansonsten dein Fokus konzentriert . damit hältst du den Fokus deiner traineys konzentriert . und dann können sie gut arbeiten
 
 dein Training ist dadurch zielgerichtet . der Fokus deiner Gruppe ist zielgerichtet Punkt dann hast du ein effektives Training
 
@@ -157,7 +159,9 @@ Motivation und Wertschätzung sind dein Werkzeug und den Trainee zu Spaß zu ver
 
 **auf das trainingslevel abgestimmt**
 
+Anfänger machen viele Fehler. das fängt schon beim stand an Punkt allein über die Fußstellung kann man ein zwei monatiges Trainingsseminar geben. nun erhält sich die Frage: was korrigierst du wie zuerst und in welchem Maße. gehen wir mal kurz von der Korrektur weg und betrachten die Trainingssituation. der Training ist doch unerfahren, und hat den Sport vielleicht angefangen und weiß noch gar nicht richtig, ob der passt er ist vollkommen verloren unter Tausenden von Ratschlägen. lobe ihn dafür. dadurch kann der Trainee an einem Detail arbeiten oder an einer Grundlage arbeiten, ohne dass er überfordert wird. er freut sich dann wenn er darin Fortschritte macht. es gibt einen Fallstrick bei Anfängern. du als Trainer siehst so viele Fehler, dass du geneigt bist alles zu korrigieren. unterscheide, welches Bedürfnis du als Trainer hast (100%ige Korrektur auf die feinform, und welches Bedürfnis der Trainee hat: sicher sein Fortschritten freuen. beides wirst du nicht miteinander zusammenbringen
 
+XXXXX erinnern, an denen ich korrigiert wurde immer und immer wieder immer etwas Neues. das schlimmste war, wenn man sich auf eine Sache kontrolliert hat und richtig stolz war, dass das geklappt hat, wurden sofort vier andere Dinge genannt die gerade so richtig scheiße war. auch heute kenne ich noch Trainer, die durch Überkorrektur eine riesen Frustration bei ihrem Training hervorrufen. und und das Komma obwohl sie eigentlich etwas ganz schönes wollen kommen Sie wollen Wertschätzung zeigen und zeigen die ist durch Aufmerksamkeit diese Aufmerksamkeit immer mit einem negativen Gefühl verbunden ist. das ist ja falsch gemacht werden. dadurch verwandelt sich der Training gewesen.
 
 **individualkorrektur**
 
