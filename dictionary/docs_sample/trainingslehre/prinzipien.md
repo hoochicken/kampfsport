@@ -54,7 +54,7 @@ als Trainer befindet man sich entsprechend in einer Zwickmühle. zumindest, was 
 
 die Waage zu finden zwischen sinnvoller Korrektur und Überforderung. vorab: korrigiere immer nur eine Sache, auch wenn der 15 einfallen Punkt dies hält den Trainee motiviert und stabilisiert ihn für spätere weitere Korrekturen. 
 
-wie du Korrekturen und Lob sinnvoll miteinander verknüpft, findest du in Kapitel zu Kommunikation geschrieben.
+wie du **Korrekturen und Lob** sinnvoll miteinander verknüpft, findest du in **Kapitel zu Kommunikation** geschrieben.
 
 
 
