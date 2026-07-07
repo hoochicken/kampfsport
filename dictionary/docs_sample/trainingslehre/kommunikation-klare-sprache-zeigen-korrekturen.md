@@ -118,7 +118,7 @@ der Training kann diese Übung auch an dir als Trainer ausführen. dabei kannst 
 
 korrektur ist eine fehlerberichtigung, ein aufmerksam-machen der Trainees auf eine suboptimale Ausführung der Technik
 
-Korrekturen kannst du in der Gruppe durchführen oder auch individuell.
+Korrekturen kannst du in der Gruppe durchführen oder auch individuell. du kannst eine Korrektur direkt bei Auftreten eines Fehlers durchführen, oder zeitlich versetzt im Nachgang.
 
 **wenn gefährlich => sofort korrigieren**
 
@@ -128,9 +128,36 @@ dies betrifft die Ausführung einer Technik innerhalb eines Paares, eine Situati
 
 andersrum: stell dir mal vor du wartest ab, und es passiert tatsächlich etwas ganz Schlimmes. jemand landet im Rollstuhl. überlege ob du damit leben möchtest.
 
+besteht kein Notstand, sondern es geht nur um die Schönheit der Technik, kann die Korrektur auch im Nachgang erfolgen Punkt das heißt nach Vollendung der Technik oder später in der gruppenkorrektur oder sogar am Ende des Trainings oder im Nachhinein wir WhatsApp. 
+
+beachte: je größer der zeitlicher Abstand ist, desto schwerer ist es diese Korrektur umzusetzen. je näher die Korrektur zeitlich erfolgt, dass du einfacher wird der Trainee diese auch setzen können. 
+
+**fokussierung der korrektur**
+
+um eine Korrektur umsetzen zu können, das heißt eine Technik ohne einen bestimmten Fehler ausführen zu können, braucht es Fokus. diese reichst du durch die zeitliche Nähe und durch  Kürze Korrektur. daher empfehle ich dir dringend, nur eine einzige Korrektur anzubringen, ein kleines Detail, was diese Technik anbelangt. 
+
+gerade Anfänger machen oft so viele Fehler, dass einem die Auswahl was man gerade korrigieren sollte, schwer fällt. mäßige dich trotzdem Punkt sei mit der mäßige dich trotzdem Punkt sei mit der Grundform zufrieden. das heißt: wenn der Training den Fußball setzt die falsche Trefferfläche hat instabil da steht ständig die Deckung fallen lässt und falsch atmet, so korrigiere das, was ihn am weitesten bringt. auf der anderen Seite hast du ein Mensch, von dem du nicht weißt, wie geil oder wie beschissen sein Tag war. gehe stets liebevoll mit dem anderen um, gib ihm Wertschätzung und Zeit.
+
+hier zwei verdeutlichen die Beispiele
+
+korrektur a la so nicht: oh Mann das habe ich dir doch jetzt schon zehnmal gesagt du musst den rechten Fuß nach vorne setzen wegen der Gewichtsverteilung und dann schau mal hier lang hier etwas beherzt dazu, dann kannst du mehr Druck aufüben das ganze passiert übrigens ohne Kraft aber wenn man natürlich die Hüfte nicht so gut eindreht dann kann das nichts werden weil du so leicht ist musst du auf deine Hüfte achten schau hier jetzt hast du wieder den Schritt vergessen behalte dabei den Gegner im Auge wenn du immer rumguckst verfliegt dein Fokus schon wieder alles falsch
+
+motivierende Korrektur, genau so (oder so ähnlich): das sieht schon super aus. setze den linken Fuß nach vorne während des Schlages . genau gleichzeitig. ja genauso. dann hast du viel mehr Kraft. super gemacht. genauso weiter
+
+wenn ihr aufgepasst habt, dann ist das ein **Shit-Sandwich**. das heißt: ein Lob dann die Korrektur, dann wieder Lob.
+
+alle Korrektur so ausnehmen wichtig ist, was diese Aufzählung noch mal das wichtigste für dich zusammen:
+
+* gefährliche Situation sofort korrigieren 
+* Focus das Trainings nutzen, daher zeitnah 
+* nur eine Korrektur 
+* immer motivierend
+
+Motivation und Wertschätzung sind dein Werkzeug und den Trainee zu Spaß zu verhelfen und ihn zu Leistungen anzuspannen.
+
 **individualkorrektur**
 
-eine individuelle Korrektur findet direkt an den Trainee oder dem Trainee Pärchen statt. hier erklärst du direkt welchen Fehler der Trainee gemacht hat und wie er es richtig machen kann 
+eine individuelle Korrektur findet direkt an den Trainee oder dem Trainee Pärchen statt. hier erklärst du direkt welchen Fehler der Trainee gemacht hat und wie er es richtig machen kann.
 
 dies hat den Vorteil dass der Trainee direkt angesprochen wird und sich wertgeschätzt fühlt. es hat aber auch Nachteile. der Training könnte sich schuldig fühlen, dass du ihn korrigierst andere trainees können von  der individualkorrektur nicht profitieren, weil sie es wieder hören noch sehen. beachte daher bei der individualkorrektur: 
 
@@ -194,6 +221,28 @@ deine Jugendgruppe hat männliche Jugendliche im Alter von 15 Jahren. matratzent
 damit schreibst du ihn bereits  qualitäten zu, das sie in wahrheit (noch) nicht haben. in ihrem Kopf aber baut sich baut sich das so zusammen, dass sie die Attribute von langsam, vernünftig bereits besitzen . denn sie wurden ja dafür gerade gelobt. 
 
 natürlich gibt es auch Chaoten, bei denen das nicht funktioniert. im allgemeinen landet ihr damit aber ein Volltreffer.
+
+## kritik und veerärgerung
+
+du stehst auf der Matte als Trainer, erzählt jahrelang dasselbe, und die traineys hören nicht auf Dich Punkt immer wieder die gleichen Fehler oder du hast ein Problem Trainee, denn nicht auf dich hört, du siehst dein Leben den Bach runtergehen obwohl er ein Supertalent ist und eigentlich ein dies kann bei dir zu Frust und Verärgerung führen Punkt und das ist okay. wir sind Menschen Punkt solltest du an so einem Punkt angelangt sein gibt es zwei Möglichkeiten
+
+den Gefühlen freien Lauf lassen: Frustration und Ärger ungebremst an dem Training auslassen. ihm einfach mal ganz deutlich die Meinung sagen. dies ist menschlich, birgt aber die Gefahr, dass du den Trainee endlos vergraust. 
+
+der Trainee könnte dann eventuell seinen Weg wiederfinden. das kommt auf die Beziehung zwischen dir, dem Trainer, und dem Trainee an.
+
+grundsätzlich könnte auch folgendes passieren: der trainee wird dann vielleicht die Gruppe verlassen und damit ist auch nichts gewonnen. was dir ja vorstrebt, ist ein umlenken des Trainings. so dass er sein Weg wiederfindet.
+
+sollte dir eine verbale Entgleisung passiert sein, so geht es im Nachgang darum damit ordentlich umzugehen. wenn ich eine verbale Entgleisung habe, vielleicht auch weil ich übermüdet bin und einfach gerade nicht den Blick für die andere Person habe, so entschuldige ich mich bei der anderen Person. dann hilft so etwas wie: 
+
+"letztens hatten wir eine Situation. und ich glaube ich habe nicht souverän reagiert. ich habe sogar sehr schlecht reagiert. ich habe dich angeschrieben und wahrscheinlich habe ich dich verletzt das tut mir leid ich mag dich sehr, und ich wusste in diesem Moment einfach nicht weiter nächstes Mal werde ich dich direkt darauf ansprechen. und das ganze wie ein Erwachsener lösen. jetzt habe ich noch eine Frage: wie ist es denn dir damit ergangen?"
+
+**erklären, wie man sich fühlt( ich Aussage)**: bei der ich-nachricht fängst du vorher ab, dass du vielleicht verärgert oder verzweifelt bist oder dass du dir einfach Sorgen machst. du kannst deine Gefühle nun aufgreifen oder nicht und danach entsprechend auf das Problem mit dem Trainee eingehen , z.B
+
+"du hast du mal eine Minute Zeit, ich würde mit dir gerne über dein Verhalten reden Punkt ich bin in letzter Zeit frustriert, weil ich nicht weiß wie ich mein Training auf Dich anpassen kann. ich sehe dass du gerne weggehst abends, und dass du mit roten Augen zum Training kommst und ich mache mir einfach sorgen. kannst du mir ein bisschen erzählen wie es dir geht?" ... " hast Du Ideen wie wir mit dieser Situation umgehen können? ..."
+
+hier ist natürlich darauf hinzuweisen, dass diese Strategie nicht bei allen Menschen funktioniert. dieses meine Lösungsstrategie, oder ich hoffe dass du sie nie brauchen wirst weil du diese Probleme nicht hast.
+
+
 
 ## Feedback-Runde
 
