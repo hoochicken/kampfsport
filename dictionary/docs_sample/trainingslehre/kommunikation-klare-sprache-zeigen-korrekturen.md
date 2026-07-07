@@ -155,6 +155,10 @@ alle Korrektur so ausnehmen wichtig ist, was diese Aufzählung noch mal das wich
 
 Motivation und Wertschätzung sind dein Werkzeug und den Trainee zu Spaß zu verhelfen und ihn zu Leistungen anzuspornen.
 
+**auf das trainingslevel abgestimmt**
+
+
+
 **individualkorrektur**
 
 eine individuelle Korrektur findet direkt an den Trainee oder dem Trainee Pärchen statt. hier erklärst du direkt welchen Fehler der Trainee gemacht hat und wie er es richtig machen kann.
