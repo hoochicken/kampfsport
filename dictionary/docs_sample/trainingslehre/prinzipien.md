@@ -19,6 +19,9 @@ Anfänger bewegen sich immer zwischen grob und feinformen. das Grube Bewegungsmu
 * "heißt nicht können" bzw 
 * "die Übung macht den Meister"
 
+als Trainer befindet man sich entsprechend in einer Zwickmühle. zumindest, was das Training bei Anfängern betrifft. soll man einen Anfänger so trainieren lassen, wer möchte. dass er wirklich alle Fehler, die er macht (alle 338 Stück, die dir spontan aufgefallen sind) in zig Wiederholungen üben? denn im Hinterkopf hat man: was man an Fehlern übt, lässt sich schwer wegtrainieren.
+
+
 
 
 
