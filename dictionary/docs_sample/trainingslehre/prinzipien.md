@@ -19,7 +19,12 @@ Anfänger bewegen sich immer zwischen grob und feinformen. das Grube Bewegungsmu
 * "heißt nicht können" bzw 
 * "die Übung macht den Meister"
 
-als Trainer befindet man sich entsprechend in einer Zwickmühle. zumindest, was das Training bei Anfängern betrifft. soll man einen Anfänger so trainieren lassen, wer möchte. dass er wirklich alle Fehler, die er macht (alle 338 Stück, die dir spontan aufgefallen sind) in zig Wiederholungen üben? denn im Hinterkopf hat man: was man an Fehlern übt, lässt sich schwer wegtrainieren.
+als Trainer befindet man sich entsprechend in einer Zwickmühle. zumindest, was das Training bei Anfängern betrifft: wie soll man einen Anfänger so trainieren lassen? darf oder soll er wirklich alle Fehler, die er macht (alle 338 Stück, die dir spontan aufgefallen sind) in zig Wiederholungen üben?denn im Hinterkopf hat man: was man an Fehlern übt, lässt sich schwer wegtrainieren.
+
+die Waage zu finden zwischen sinnvoller Korrektur und Überforderung. vorab: korrigiere immer nur eine Sache, auch wenn der 15 einfallen Punkt dies hält den Trainee motiviert und stabilisiert ihn für spätere weitere Korrekturen. 
+
+wie du Korrekturen und Lob sinnvoll miteinander verknüpft, findest du in Kapitel zu Kommunikation geschrieben.
+
 
 
 
