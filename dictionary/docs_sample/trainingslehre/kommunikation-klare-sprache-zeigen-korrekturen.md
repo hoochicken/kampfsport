@@ -130,7 +130,7 @@ andersrum: stell dir mal vor du wartest ab, und es passiert tatsächlich etwas g
 
 besteht kein Notstand, sondern es geht nur um die Schönheit der Technik, kann die Korrektur auch im Nachgang erfolgen Punkt das heißt nach Vollendung der Technik oder später in der gruppenkorrektur oder sogar am Ende des Trainings oder im Nachhinein wir WhatsApp. 
 
-beachte: je größer der zeitlicher Abstand ist, desto schwerer ist es diese Korrektur umzusetzen. je näher die Korrektur zeitlich erfolgt, dass du einfacher wird der Trainee diese auch setzen können. 
+beachte: je größer der zeitliche Abstand ist, desto schwerer ist es diese Korrektur umzusetzen. je näher die Korrektur zeitlich erfolgt, dass du einfacher wird der Trainee diese auch setzen können. 
 
 **fokussierung der korrektur**
 
@@ -153,7 +153,7 @@ alle Korrektur so ausnehmen wichtig ist, was diese Aufzählung noch mal das wich
 * nur eine Korrektur 
 * immer motivierend
 
-Motivation und Wertschätzung sind dein Werkzeug und den Trainee zu Spaß zu verhelfen und ihn zu Leistungen anzuspannen.
+Motivation und Wertschätzung sind dein Werkzeug und den Trainee zu Spaß zu verhelfen und ihn zu Leistungen anzuspornen.
 
 **individualkorrektur**
 
@@ -241,8 +241,6 @@ sollte dir eine verbale Entgleisung passiert sein, so geht es im Nachgang darum 
 "du hast du mal eine Minute Zeit, ich würde mit dir gerne über dein Verhalten reden Punkt ich bin in letzter Zeit frustriert, weil ich nicht weiß wie ich mein Training auf Dich anpassen kann. ich sehe dass du gerne weggehst abends, und dass du mit roten Augen zum Training kommst und ich mache mir einfach sorgen. kannst du mir ein bisschen erzählen wie es dir geht?" ... " hast Du Ideen wie wir mit dieser Situation umgehen können? ..."
 
 hier ist natürlich darauf hinzuweisen, dass diese Strategie nicht bei allen Menschen funktioniert. dieses meine Lösungsstrategie, oder ich hoffe dass du sie nie brauchen wirst weil du diese Probleme nicht hast.
-
-
 
 ## Feedback-Runde
 
