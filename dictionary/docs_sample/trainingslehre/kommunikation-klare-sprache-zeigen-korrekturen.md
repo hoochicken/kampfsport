@@ -6,7 +6,7 @@ wenn Du jemand anderen etwas beibringen willst, so musst du mir irgendwie vermit
 * auditiv sein wenn du dabei sprichst
 * haptisch wenn der Trainee dabei berührt wird
 
-um möglichst fehlerfreie Kommunikation zu gewährleisten heißt das auch, dass du das Ergebnis des Trainings nachher überprüfst und Korrekturen anbringst. auch diese können dann visuell oder auditories oder haptisch erfolgen. das Vorzeichen der Übungen und die Korrekturen sollten dabei den trainingsflow begünstigen Punkt trainingsflow?
+um möglichst fehlerfreie Kommunikation zu gewährleisten heißt das auch, dass du das Ergebnis des Trainings nachher überprüfst und Korrekturen und Lob anbringst. auch diese können dann visuell oder auditorisch oder haptisch erfolgen. das Vorzeichen der Übungen und die Korrekturen sollten dabei den trainingsflow begünstigen Punkt trainingsflow?
 
 ## trainingsflow
 
@@ -76,9 +76,11 @@ bei visuellen zeigen und der verbalen Erklärung ist es wichtig, dass du Sicherh
 
 lässt du diese Unsicherheit auf die Gruppe durchscheinen, werden trainies selbst unsicher. hier ist ein einfacher Weg, wie du Sicherheit ausstrahlst sei sicher in der Unsicherheit. was ich zunächst einmal komisch anhört ist unglaublich wichtig sowohl für das Training und mehr noch für dein alltägliches Leben. es ist gar nicht möglich in allem sicher zu sein. überall gibt es Fallstricke, man kann sich in irgendwas irren, denn man ist einfach menschlich Punkt und dies darfst du genau auf so formulieren. z.B helfen dir folgende Fragen 
 
-"diese Technik ist schwer auszuführen. zumindest mir fällt sie manchmal schwer, besonders wenn der Gegner größer ist als ich. aber ich weiß, dass einige von euch diese Technik sehr gut werden ausführen können und auch ihren Spaß daran haben werden deshalb viel Spaß und fangt an"
+**schwer auszuführende technik**: "diese Technik ist schwer auszuführen. zumindest mir fällt sie manchmal schwer, besonders wenn der Gegner größer ist als ich. aber ich weiß, dass einige von euch diese Technik sehr gut werden ausführen können und auch ihren Spaß daran haben werden deshalb viel Spaß und fangt an"
 
-"bei Selbstverteidigung bin ich mir immer etwas unsicher, was ich zeigen soll. Hintergrund ist dass mir die juristische Sachlage Sorgen bereitet. ich kann euch nur empfehlen: macht euch darüber im Vorfeld Gedanken. denn hier muss jeder seine eigene Entscheidung treffen"
+**frage, auf die du keine sntwort weisst**: "du hast eine gute Frage gestellt. die hat mich auch schon öfter beschäftigt, ich mache mir darüber Gedanken, sprich mich bitte darauf an"
+
+**Sachverhalte die jeder selbst überdenken muss**: "bei Selbstverteidigung bin ich mir immer etwas unsicher, was ich zeigen soll. Hintergrund ist dass mir die juristische Sachlage Sorgen bereitet. ich kann euch nur empfehlen: macht euch darüber im Vorfeld Gedanken. denn hier muss jeder seine eigene Entscheidung treffen"
 
 du siehst unsicher zu sein ist ganz einfach und auch die Unsicherheit zu formulieren. du bist ein Mensch und kein Idiot. unterstützt deine Schüler damit auch vor falscher Sicherheit . gerade in Selbstverteidigung solange, kann falsche Sicherheit sehr gefährlich sein
 
@@ -159,9 +161,15 @@ Motivation und Wertschätzung sind dein Werkzeug und den Trainee zu Spaß zu ver
 
 **auf das trainingslevel abgestimmt**
 
-Anfänger machen viele Fehler. das fängt schon beim stand an Punkt allein über die Fußstellung kann man ein zwei monatiges Trainingsseminar geben. nun erhält sich die Frage: was korrigierst du wie zuerst und in welchem Maße. gehen wir mal kurz von der Korrektur weg und betrachten die Trainingssituation. der Training ist doch unerfahren, und hat den Sport vielleicht angefangen und weiß noch gar nicht richtig, ob der passt er ist vollkommen verloren unter Tausenden von Ratschlägen. lobe ihn dafür. dadurch kann der Trainee an einem Detail arbeiten oder an einer Grundlage arbeiten, ohne dass er überfordert wird. er freut sich dann wenn er darin Fortschritte macht. es gibt einen Fallstrick bei Anfängern. du als Trainer siehst so viele Fehler, dass du geneigt bist alles zu korrigieren. unterscheide, welches Bedürfnis du als Trainer hast (100%ige Korrektur auf die feinform, und welches Bedürfnis der Trainee hat: sicher sein Fortschritten freuen. beides wirst du nicht miteinander zusammenbringen
+Anfänger machen viele Fehler. das fängt schon beim stand an Punkt allein über die Fußstellung kann man ein zwei monatiges Trainingsseminar geben. nun erhält sich die Frage: was korrigierst du wie zuerst und in welchem Maße. 
 
-was passiert, wenn ein trainer einen Anfänger auf die 100-prozentige feinform trimmen möchtest: der Anfänger wird überladen mit Korrektur. der Fuß wird korrigiert die Trefferfläche wird korrigiert die Haltung des Armes die Körperhaltung, die Gewichtsverteilung . jedes Mal wenn der Trainer . ich mache einen neuen Fehler super super : er bringt den begeisterungspunkten in den Augen the strangers zum Sterben. die Lippen werden immer verkniffener, die Haltung unentspannter es macht sich eine Art Angst in Kombination mit genervt halt breit der Trainer schafft es so erfolgreich, den Trainee hundertprozentig zu frustrieren. daher mein ganz heißer Tipp: lass es gut sein hat die Technik oft wiederholt, und hat dabei ein bis zwei Korrekturen umsetzen können. das ist super. das reicht vollkommen aus, um Stück für Stück besser zu werden 
+gehen wir mal kurz von der Korrektur weg und betrachten die Trainingssituation. der Training ist doch unerfahren, und hat den Sport vielleicht angefangen und weiß noch gar nicht richtig, ob der passt er ist vollkommen verloren unter Tausenden von Ratschlägen. lobe ihn dafür. dadurch kann der Trainee an einem Detail arbeiten oder an einer Grundlage arbeiten, ohne dass er überfordert wird. er freut sich dann wenn er darin Fortschritte macht. 
+
+es gibt einen Fallstrick bei Anfängern. du als Trainer siehst so viele Fehler, dass du geneigt bist alles zu korrigieren. unterscheide, welches Bedürfnis du als Trainer hast (100%ige Korrektur auf die feinform, und welches Bedürfnis der Trainee hat: sicher sein Fortschritten freuen. beides wirst du nicht miteinander zusammenbringen
+
+was passiert, wenn ein trainer einen Anfänger auf die 100-prozentige feinform trimmen möchtest: der Anfänger wird überladen mit Korrektur. der Fuß wird korrigiert die Trefferfläche wird korrigiert die Haltung des Armes die Körperhaltung, die Gewichtsverteilung . 
+
+der Trainer korrigiert die Gewichtsverteilung , und der Trainee ist stolz, dass er das geschafft hat. kaum hat er das gemacht erklärt der Jenner dass die Haltung des Handgelenks schlecht ist Punkt also korrigiert er das der Training ist dann ganz glücklich dass er die beiden Sachen beherzigt hat, und wird beim nächsten Mal mit fünf anderen Fehlern konfrontiert. er er hört niemals: das war gut Punkt du hast dich weiterentwickelt. Mal wenn der Trainer korrigiert, denkt der  Trainee. ich mache einen neuen Fehler super super : er bringt den begeisterungspunkten in den Augen the strangers zum Sterben. die Lippen werden immer verkniffener, die Haltung unentspannter es macht sich eine Art Angst in Kombination mit genervt halt breit der Trainer schafft es so erfolgreich, den Trainee hundertprozentig zu frustrieren. daher mein ganz heißer Tipp: lass es gut sein hat die Technik oft wiederholt, und hat dabei ein bis zwei Korrekturen umsetzen können. das ist super. das reicht vollkommen aus, um Stück für Stück besser zu werden 
 
 okay, du hast den Training gefragt und er hat gesagt, ja er möchte korrigiert werden. ein Trainee bitte nicht auf den Kopf Zusagen: ich bin gerade sowas von frustriert, weil du tausend Sachen an mir kritisierst, ich kann nicht mehr
 
