@@ -94,7 +94,7 @@ im Falle der beispielhaften Jutsu Einheit bedeutet dies:
 
 ## technik 2: praxisnah
 
-gleiche Aufbau wie bei Technik 1
+gleicher Aufbau wie bei Technik 1
 
 im Falle der beispielhaften Jutsu Einheit bedeutet dies:
 
@@ -107,6 +107,16 @@ im Falle der beispielhaften Jutsu Einheit bedeutet dies:
 die gegentechnik ermächtigt zum einen den Trainee, dass er Selbstvertrauen aufbaut und weiß, wie er reagieren könnte. zum anderen ist es für den Trainee ebenso eine Möglichkeit, selbst den Wurf noch einmal zu trainieren. da immer beide Partner eine Technik und der andere dann eine gegentechnik trainiert, werden beide Partner gefordert. beide trainieren aktiv gemeinsam
 
 ## technik 3: praxisnah
+
+gleicher Aufbau wie bei Technik 1 und 2
+
+* blosse Technik: große Außensichel Punkt nach der außen Sichel geht der noch stehende Partner in die topMount plus Focus Technik
+* mit Eingang: frontkick, Jab Punch hook, dabei nach außen ausweichen, große außen sicher, dann Top Mount plus fokustechnik
+* gegentechnik: 
+    * entweder Feder gegen Frontkick, selbst große Außensichel, dann topmount plus focustechnik
+    * oder gegen die große außen Sichel, Absenken des Körperschwerpunkt zum tiefen Bein stellen. dann topmount plus Focus Technik
+
+
 
 ## randori
 
