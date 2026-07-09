@@ -116,9 +116,11 @@ gleicher Aufbau wie bei Technik 1 und 2
     * entweder Feder gegen Frontkick, selbst große Außensichel, dann topmount plus focustechnik
     * oder gegen die große außen Sichel, Absenken des Körperschwerpunkt zum tiefen Bein stellen. dann topmount plus Focus Technik
 
-
+**Hinweis**: wie du siehst, wird in jedem Abschnitt die fokustechnik trainiert. dadurch erhält der Trainee Sicherheit, dass dieses Verhalten aus mehreren Situationen möglich ist. gleichzeitig erhält auch die Sicherheit, dass er sich aus so einer Lage befreien kann. und das zigmal innerhalb eines Trainings. ist selbst für ein Anfänger dieses Programm machbar
 
 ## randori
+
+
 
 ## reflektion und mini-meditation
 
