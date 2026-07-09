@@ -120,7 +120,20 @@ gleicher Aufbau wie bei Technik 1 und 2
 
 ## randori
 
+als letzter Abschnitt erfolgt das Randori oder Sparring. ergibt es eigentlich immer Sinn, mit bedingtem Sparring anzufangen. das heißt: es wird nicht freigekämpft, sondern es gibt bestimmte technikvorgaben. genaueres hierzu kannst du ihm entsprechenden Kapitel nachlesen. 
 
+randeri bzw Sparring dürfen nur Trainees ausführen, die einen Zahnschutz haben Punkt für alle anderen ist es er empfohlen, weiterhin Drills zu trainieren.
+
+im falle der beispielhaften Ju-Jutsu Einheit könnte dies z.B wie folgt aussehen 
+
+* alle Runden gehen über 1:30
+* runde 1: der vordere Fuß der Kontrahenten muss innerhalb einer bestimmten Matte bleiben nur jab und Punch ist erlaubt gerade Angriffe, 
+* Runde zwei: vorderer Fuß verbleibt auf der Matte: bewegt euch bitte mehr 
+* Runde drei: Jab Punch und Hook erlaubt, Würfe sind auch erlaubt. 
+* Runde vier: bewegen über die ganze Fläche ist erlaubt, Schläge alles, auch alle Würfe 
+* Runde fünf: freier Kampf
+
+das randori ist der Höhepunkt eines jeden Trainings, dass jeder Trainee dabei sind. zumindest die Trainees in meiner Gruppe. alle sind gespannt darauf, wie sie nun ihre Technik und ihre Kraft Abpumpen können.
 
 ## reflektion und mini-meditation
 
