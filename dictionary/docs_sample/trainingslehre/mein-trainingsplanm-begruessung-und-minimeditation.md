@@ -48,3 +48,17 @@ dieser Trainingsplan hat folgende fokustechnik: **triangle-Choke aus der Top-Mou
 ## Begrüssung und Minimeditation
 
 
+
+## fokustechnik
+
+## traditionelle technik
+
+## praxisnahe technik 1
+
+## praxisnahe technik 2
+
+## randori
+
+## reflektion und mini-meditation
+
+
