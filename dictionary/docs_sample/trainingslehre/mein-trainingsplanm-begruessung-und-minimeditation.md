@@ -146,9 +146,14 @@ die Aufgabe des Trainers ist es, diese Frage im Fokus zu behalten und gegebenenf
 
 Hinweis: Dieser Feedbackrunde ist nicht Bestandteil der anderthalb Stunden. solltest du aus dem Raum müssen, weil die nächste Gruppe ansteht, so lohnt es sich eine verkürzte Feedbackrunde zu machen. so kann man noch mal alle runterholen und bewusst werden lassen was sie in dieser Trainingseinheit alles gelernt haben
 
-**schlusswort**
+## schlusswort
 
 diesen Vorschlag zur Trainingsgestaltung bildet mein momentanes Training ab über den Aufbau habe ich mich wirklich lange Gedanken gemacht, bis ich diese Form gefunden habe zum Vorbereiten ist es meistens nervig Arbeit. die Techniken wollen gut recherchiert sein, die gegentechniken auch ausprobiert sein. 
 
 und natürlich: die technikrecherche gelingt nicht immer, die Zeitplanung gelingt auch nicht immer. aber das muss es nicht. wichtig ist, dass die Jamies am Ende eine hohle hohe Wiederholungszahl haben und Selbstvertrauen aufbauen könnten und ganz ganz viel Spaß hatten!
+
+natürlich gibt es auch manchmal ganz andere Trainingseinheiten: die z.B auf Kraftausdauer fokussiert ist oder selbstverteidigungseinheiten oder waffeneinheiten, in besonders Messer einhalten.
+
+es kann sein, dass ich diese Art Training zu geben irgendwann einmal verwerfe. weil sie aus viel Gründen nicht passend ist oder nicht mehr passend ist. oder weil die Gruppe anders gestaltet ist. das heißt: das ist kein fester Ablauf, sondern es wird entsprechend angepasst. 
+
 
