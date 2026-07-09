@@ -8,7 +8,7 @@ die erste Herausforderung liegt darin, dass Jutsu eine spezielle Kampfsportart i
 
 die zweite Herausforderung besteht darin Komma die Hitze als eine funktionale Kampfsportart zu unterrichten. ist in der Tradition gewachsen , beinhaltet viele traditionelle Techniken aus kampfkünsten . der traditionelle Unterricht besteht darin, dass eine in der Regel sehr umfangreiche Kombination gezeigt wird die dann nachgemacht wird, während der Partner eher wenig Gegenwehr ausübt. dieses ist nicht sehr praxisnah . 
 
-daher entschied ich mich, den traditionellen ttaininfs-Weg zu verlassen, und die Technik Anwendungen für die spontane Anwendung passende zu machen. 
+daher entschied ich mich, den traditionellen trainings-Weg zu verlassen, und die Technik Anwendungen für die spontane Anwendung passende zu machen. 
 
 das Hauptaugenmerk gehen also zu anwendbaren Techniken hin. diese sollen auch im faustkampf einsetzbar sein und im randori anwendbar . alles in allem rutschte damit Ju-Jutsu er in Richtung MMA, unter gleichzeitig auf beachtung einige ausgesuchte traditioneller Techniken.
 
@@ -40,8 +40,6 @@ entsprechend ist die Reihenfolge der Konzeption der einzelnen Bestandteile wie f
 5. passende Randori-Varianten überlegen
 
 im Folgenden findest du eine komplette Übungseinheit dargestellt. werden durch ein praktisches Beispiel abgerundet. ich hoffe, du findest etwas passendes, was Du vielleicht in deinem Training integrieren kannst.
-
-## trainingsplan-umsetzung
 
 eine Einheit von 1,5 Stunden besteht aus sechs mal 15 Minuten Blöcken. nach der Aufwärmphase erfolgt immer die fokustechnik.
 
