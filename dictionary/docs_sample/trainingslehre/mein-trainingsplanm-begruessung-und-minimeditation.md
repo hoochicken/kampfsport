@@ -97,6 +97,10 @@ im Falle der beispielhaften Jutsu Einheit bedeutet dies:
 
 ## technik 2: praxisnah
 
+gleiche Aufbau wie bei Technik 1
+
+Beispiel: Technik
+
 ## technik 3: praxisnah
 
 ## randori
