@@ -10,7 +10,20 @@ die zweite Herausforderung besteht darin Komma die Hitze als eine funktionale Ka
 
 daher entschied ich mich, den traditionellen ttaininfs-Weg zu verlassen, und die Technik Anwendungen für die spontane Anwendung passende zu machen. 
 
-das Hauptaugenmerk gehen also zu anwendbaren Techniken nachhin nächste Station diese sollen auch im hauskampf einsetzbar sein und im randori anwendbar . alles in allem rutschte damit Ju-Jutsu er in Richtung MMA, unter gleichzeitig auf beachtung einige ausgesuchte traditioneller Techniken.
+das Hauptaugenmerk gehen also zu anwendbaren Techniken hin. diese sollen auch im faustkampf einsetzbar sein und im randori anwendbar . alles in allem rutschte damit Ju-Jutsu er in Richtung MMA, unter gleichzeitig auf beachtung einige ausgesuchte traditioneller Techniken.
+
+insgesamt sind folgende Merkmale meine Leitlinien beim Aufbau einer übungseinheit:
+ 
+* Konzentration auf wenige Techniken 
+* große wiederholungszahl
+* Qualität statt Quantität
+* für alle trainies nachvollziehbar 
+* zu jeder Technik gibt es eine gegentechnik 
+* randori als anwendungserfahrung
+
+## Konzeptionen dieser trainingseinheit
+
+
 
 ## Fokus-technik
 
