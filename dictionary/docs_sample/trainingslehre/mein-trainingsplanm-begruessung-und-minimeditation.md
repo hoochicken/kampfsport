@@ -89,9 +89,8 @@ diesem Abschnitt besteht aus drei Unterabschnitten :
 
 im Falle der beispielhaften Jutsu Einheit bedeutet dies:
 
-* blosse technik: Angriff mit punch-  Verteidigung mit Weiterleitung mit KippHandhebel
+* blosse technik: Angriff mit punch-  Verteidigung mit Weiterleitung mit KippHandhebel, zu Boden bringen Komma in die Mount übergehen die fokustechnik trainieren
 * gegentechnik: weiterleiten der Kraft und selbst den die paar Tablet ansetzen, mit verweis auf henka waza 
-
 
 ## technik 2: praxisnah
 
@@ -99,11 +98,13 @@ gleiche Aufbau wie bei Technik 1
 
 im Falle der beispielhaften Jutsu Einheit bedeutet dies:
 
-* blosse technik: reisballenwurf, so ausgeführt, dass man in der Topmount landet, dann triangel, dann gegentechnik
-* eingang: Jab Punch  kneekick und dann reisballenwurf, triangel etc.
+* blosse technik: reisballenwurf, so ausgeführt, dass man in der Topmount landet, dann fokzstechnik  triangel, dann gegentechnik
+* eingang: Jab Punch  kneekick und dann reisballenwurf + fokustechnik (triangel etc.)
 * gegentechnik
-    * entweder gegen Depp oder punch, dann selbst kneekick und selbst den reisballenwurf
+    * entweder gegen jab oder punch, dann selbst kneekick und selbst den reisballenwurf
     * oder gegen den reisballenwurf ein abtaucher
+
+die gegentechnik ermächtigt zum einen den Trainee, dass er Selbstvertrauen aufbaut und weiß, wie er reagieren könnte. zum anderen ist es für den Trainee ebenso eine Möglichkeit, selbst den Wurf noch einmal zu trainieren. da immer beide Partner eine Technik und der andere dann eine gegentechnik trainiert, werden beide Partner gefordert. beide trainieren aktiv gemeinsam
 
 ## technik 3: praxisnah
 
