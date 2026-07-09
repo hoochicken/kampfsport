@@ -63,6 +63,22 @@ in einer kurzen stockeinheit wird die Schläge 1-6 geübt für Anfänger und ent
 
 ## fokustechnik
 
+der Abschnitt der fokustechnik unterteilt sich in drei Phasen: 
+
+* **technik**: zeigen der Technik und Nachmachen durch die Trainees
+* **gegentechnik**: zeigen der die gegentechnik und Nachmachen durch die Trainees 
+* gegebenenfalls noch Technik Varianten
+
+die Technik wird umfangreich und mit klaren Worten dargestellt. die gegentechnik betrachte ich als extrem wichtiger Bestandteil dieses Abschnitts. warum? weil jede Technik nur so gut ist wie ihre gegentechnik. und es gibt für jede Technik eine gegentechnik. 
+
+die **gegentechnik** ist immens wichtig zum aufbau des **Selbstvertrauens**. der Trainee bekommt nicht nur Sicherheit dadurch, dass er Macht über jemand anderer hat, sondern auch dadurch, dass er sich der Macht eines anderen entziehen kann. er wird damit vom wehrlosen Opfer zum bewussten Gegenspieler. 
+
+hierbei ist Augenmerk darauf zu legen, dass sie mit einem Partner trainieren. die trainees geben sich gegenseitig Tipps und Rückmeldung zu der Technik oder gegentechnik die Sie gerade lernen. daher ist die Ansage, Null Gegenwehr zu leisten.das sich-wehren ist während der Übungsphase schädlich und frustrierend.
+
+ziel ist es die Grobform zu lernen, nicht gegen Probleme zu kämpfen. die Gegenwehr wird langsam in den kommenden trainingsabschnitten gesteigert Punkt und im Randori ist sie dann auf 50 bis 100%. 
+
+im falle der **triangle-Choke aus der Top-Mount** bzw. san-kaku-jime aus der Reiterstellung oben zeige ich die Technik erst in Rohform. wir beginnen direkt in Reiterstellung auf den Partner wird druck ausgeübt und dann die Triangel von oben gezogen. dabei achte ich auf klare Sprache und deutliches vorzeigen. dasselbe gilt für die gegentechnik
+
 ## traditionelle technik
 
 ## praxisnahe technik 1
