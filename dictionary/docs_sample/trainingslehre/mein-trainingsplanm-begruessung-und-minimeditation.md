@@ -138,13 +138,15 @@ das randori ist der Höhepunkt eines jeden Trainings, dass jeder Trainee dabei s
 
 ## reflektion und mini-meditation (15min)
 
-nach dem Rande randeri erfolgt eine Feedbackrunde oder reflektionsrunde alle setzen sich in den Kreis und wir machen eine Art Talkshow. die Grundfrage ist: 
+nach dem randori erfolgt eine Feedbackrunde oder reflektionsrunde alle setzen sich in den Kreis und wir machen eine Art Talkshow. die Grundfrage ist: 
 
-was ist dein greatest learning, das wichtigste was du heute gelernt hast?
+"was ist dein greatest learning, das wichtigste was du heute gelernt hast?"
 
 die Aufgabe des Trainers ist es, diese Frage im Fokus zu behalten und gegebenenfalls nachfragen, wenn etwas unklar ist an der Aussage des Trainees.
 
 Hinweis: Dieser Feedbackrunde ist nicht Bestandteil der anderthalb Stunden. solltest du aus dem Raum müssen, weil die nächste Gruppe ansteht, so lohnt es sich eine verkürzte Feedbackrunde zu machen. so kann man noch mal alle runterholen und bewusst werden lassen was sie in dieser Trainingseinheit alles gelernt haben
+
+die Mini Meditation schließt dann den gesamten Abend ab. atme einhalten und ausatmen, ein letztes Mal Einatmen halten und den ganzen Tag ausatmen. mokusu yame. ich wünsche euch eine wunderbare Woche
 
 ## schlusswort
 
