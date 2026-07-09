@@ -89,17 +89,21 @@ diesem Abschnitt besteht aus drei Unterabschnitten :
 
 im Falle der beispielhaften Jutsu Einheit bedeutet dies:
 
-* blosse technik: reisballenwurf, so ausgeführt, dass man in der Topmount landet, dann triangel, dann gegentechnik
-* eingang: Jab Punch  kneekick und dann reisballenwurf, triangel etc.
-* gegentechnik
-    * entweder gegen Depp oder punch, dann selbst kneekick und selbst den reisballenwurf
-    * oder gegen den reisballenwurf ein abtaucher
+* blosse technik: Angriff mit punch-  Verteidigung mit Weiterleitung mit KippHandhebel
+* gegentechnik: weiterleiten der Kraft und selbst den die paar Tablet ansetzen, mit verweis auf henka waza 
+
 
 ## technik 2: praxisnah
 
 gleiche Aufbau wie bei Technik 1
 
-Beispiel: Technik
+im Falle der beispielhaften Jutsu Einheit bedeutet dies:
+
+* blosse technik: reisballenwurf, so ausgeführt, dass man in der Topmount landet, dann triangel, dann gegentechnik
+* eingang: Jab Punch  kneekick und dann reisballenwurf, triangel etc.
+* gegentechnik
+    * entweder gegen Depp oder punch, dann selbst kneekick und selbst den reisballenwurf
+    * oder gegen den reisballenwurf ein abtaucher
 
 ## technik 3: praxisnah
 
