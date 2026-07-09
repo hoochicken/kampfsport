@@ -23,7 +23,7 @@ insgesamt sind folgende Merkmale meine Leitlinien beim Aufbau einer übungseinhe
 
 ## Konzeptionen dieser trainingseinheit
 
-heute gehe ich wesentlich anders an die Konzeption einer Trainingseinheit heran, als ich dies früher als Neuling tat
+heute gehe ich wesentlich anders an die Konzeption einer Trainingseinheit heran, als ich dies früher als Neuling tat. wenn man halt noch so grün hinter den Ohren ist, dass man nicht mal weiß dass man nichts weiß, dann übersieht man einfach auch grundlegend Dinge Punkt erst später findet man heraus, dass manche Aktionen tief greifen
 
 früher habe ich bei der Konstruktion einer Trainingseinheit einfach nur Kombinationen ausgedacht. dieser habe ich den trainees vorgestellt. sie durften sie nachmachen.
 
