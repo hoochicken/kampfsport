@@ -29,7 +29,19 @@ früher habe ich bei der Konstruktion einer Trainingseinheit einfach nur Kombina
 
 die Konzeption beginnt bei dem zentralen Element der Einheit: der sogenannten **fokustechnik**. dies ist die Technik von der ich möchte, dass sie am Ende der Trainingseinheit beherrscht wird. es ist in der Regel ein Bewegungsablauf . dieser findet sich in jedem part der Trainingseinheit wieder. die Technik (und deren gegentechnik dazu) wird durch diese Mechanik in großer Wiederholungszahl geübt .
 
-## Fokus-technik
+bei uns laufen die Einheiten über 1,5 Stunden. der Einfachheit halber umfasst ein Trainingsabschnitt 15 Minuten. (es kommt übrigens öfter vor, dass ich dann doch eine Übung rausschmeißen muss, weil es mit der Zeit nicht hinhaut :-D) 
+
+entsprechend ist die Reihenfolge der Konzeption der einzelnen Bestandteile wie folgt:
+
+1. die fokustechnik wird als erstes entschieden
+2. eine passende traditionelle Technik finden, welche die fokustechnik aufgreift
+3. zwei Technik Abfolgen finden, die diese fokustechnik beinhaltet
+4. aufwärm-übungen bestimmen, die den Körper auf die fokustechnik vorbereiten
+5. passende Randori-Varianten überlegen
+
+im Folgenden findest du eine komplette Übungseinheit dargestellt. werden durch ein praktisches Beispiel abgerundet. ich hoffe, du findest etwas passendes, was Du vielleicht in deinem Training integrieren kannst.
+
+## trainingsplan-umsetzung
 
 
 
