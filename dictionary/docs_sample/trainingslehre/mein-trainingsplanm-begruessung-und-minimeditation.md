@@ -79,9 +79,21 @@ ziel ist es die Grobform zu lernen, nicht gegen Probleme zu kämpfen. die Gegenw
 
 im falle der **triangle-Choke aus der Top-Mount** bzw. san-kaku-jime aus der Reiterstellung oben zeige ich die Technik erst in Rohform. wir beginnen direkt in Reiterstellung auf den Partner wird druck ausgeübt und dann die Triangel von oben gezogen. dabei achte ich auf klare Sprache und deutliches vorzeigen. dasselbe gilt für die gegentechnik
 
-## technik 1: traditionelle
+## technik 1: traditionell
 
+diesem Abschnitt besteht aus drei Unterabschnitten : 
 
+* blosse technik: zeigen einer technik oder technikkombination gezeigt. diese machen die trainees nach. es ist die bloße Technik ohne ein Schnickschnack drumrum. 
+* eingang in technik: anschließend wird ein Eingang in diese Technik gezeigt. 
+* gegentechnik: diese gegentechnik kann sich gegen den Eingang in die Technik oder die Technik selbst
+
+im Falle der beispielhaften Jutsu Einheit bedeutet dies:
+
+* blosse technik: reisballenwurf, so ausgeführt, dass man in der Topmount landet, dann triangel, dann gegentechnik
+* eingang: Jab Punch  kneekick und dann reisballenwurf, triangel etc.
+* gegentechnik
+    * entweder gegen Depp oder punch, dann selbst kneekick und selbst den reisballenwurf
+    * oder gegen den reisballenwurf ein abtaucher
 
 ## technik 2: praxisnah
 
