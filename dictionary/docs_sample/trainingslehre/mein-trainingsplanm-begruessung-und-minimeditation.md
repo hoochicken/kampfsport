@@ -158,4 +158,17 @@ natürlich gibt es auch manchmal ganz andere Trainingseinheiten: die z.B auf Kra
 
 es kann sein, dass ich diese Art Training zu geben irgendwann einmal verwerfe. weil sie aus viel Gründen nicht passend ist oder nicht mehr passend ist. oder weil die Gruppe anders gestaltet ist. das heißt: das ist kein fester Ablauf, sondern es wird entsprechend angepasst. 
 
+und nun bist du dran mit arbeiten. stelle dir z.B folgende Fragen: 
+
+* welchen Aufbau hat mein Training?
+* wie ist meine Gruppe gestaltet?
+* umsetzen? welcher Training hat Probleme und warum?
+* durch welche Maßnahmen kann ich mein Training effektiver gestalten?
+* wie schaffe ich es, dass Trainee XYZ eine bessere schlagoordination hat? 
+* was hilft Trainee ABC dabei, die Deckung korrekt zu halten?
+* ...
+
+bisweilen kann es unangenehm sein, sich diesen Fragen zu stellen. denn dass sie sie ja, dass man kein perfektes Training für alle macht. schiebe dieses Unbehagen beiseite und arbeite aktiv an deiner neuen Trainingseinheit. du wirst Erfolgserlebnisse haben und vielleicht auch Rückschläge. und aus beiden kannst du lernen und deinen Trainees unterstützen. viel Spaß!
+
+
 
