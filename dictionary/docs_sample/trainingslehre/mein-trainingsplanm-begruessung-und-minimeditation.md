@@ -79,11 +79,13 @@ ziel ist es die Grobform zu lernen, nicht gegen Probleme zu kämpfen. die Gegenw
 
 im falle der **triangle-Choke aus der Top-Mount** bzw. san-kaku-jime aus der Reiterstellung oben zeige ich die Technik erst in Rohform. wir beginnen direkt in Reiterstellung auf den Partner wird druck ausgeübt und dann die Triangel von oben gezogen. dabei achte ich auf klare Sprache und deutliches vorzeigen. dasselbe gilt für die gegentechnik
 
-## traditionelle technik
+## technik 1: traditionelle
 
-## praxisnahe technik 1
 
-## praxisnahe technik 2
+
+## technik 2: praxisnah
+
+## technik 3: praxisnah
 
 ## randori
 
