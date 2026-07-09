@@ -63,11 +63,10 @@ in einer kurzen stockeinheit wird die Schläge 1-6 geübt für Anfänger und ent
 
 ## fokustechnik
 
-der Abschnitt der fokustechnik unterteilt sich in drei Phasen: 
+der Abschnitt der fokustechnik unterteilt sich in zwei Phasen: 
 
 * **technik**: zeigen der Technik und Nachmachen durch die Trainees
 * **gegentechnik**: zeigen der die gegentechnik und Nachmachen durch die Trainees 
-* gegebenenfalls noch Technik Varianten
 
 die Technik wird umfangreich und mit klaren Worten dargestellt. die gegentechnik betrachte ich als extrem wichtiger Bestandteil dieses Abschnitts. warum? weil jede Technik nur so gut ist wie ihre gegentechnik. und es gibt für jede Technik eine gegentechnik. 
 
@@ -91,6 +90,8 @@ im Falle der beispielhaften Jutsu Einheit bedeutet dies:
 
 * blosse technik: Angriff mit punch-  Verteidigung mit Weiterleitung mit KippHandhebel, zu Boden bringen Komma in die Mount übergehen die fokustechnik trainieren
 * gegentechnik: weiterleiten der Kraft und selbst den die paar Tablet ansetzen, mit verweis auf henka waza 
+
+ab diesem Abschnitt lasse ich auch ganz häufig einen Partnerwechsel machen dieser möglicht den Trainee eine bessere memorisierung (siehe Kapitel memorisierung)
 
 ## technik 2: praxisnah
 
@@ -145,4 +146,9 @@ die Aufgabe des Trainers ist es, diese Frage im Fokus zu behalten und gegebenenf
 
 Hinweis: Dieser Feedbackrunde ist nicht Bestandteil der anderthalb Stunden. solltest du aus dem Raum müssen, weil die nächste Gruppe ansteht, so lohnt es sich eine verkürzte Feedbackrunde zu machen. so kann man noch mal alle runterholen und bewusst werden lassen was sie in dieser Trainingseinheit alles gelernt haben
 
+**schlusswort**
+
+diesen Vorschlag zur Trainingsgestaltung bildet mein momentanes Training ab über den Aufbau habe ich mich wirklich lange Gedanken gemacht, bis ich diese Form gefunden habe zum Vorbereiten ist es meistens nervig Arbeit. die Techniken wollen gut recherchiert sein, die gegentechniken auch ausprobiert sein. 
+
+und natürlich: die technikrecherche gelingt nicht immer, die Zeitplanung gelingt auch nicht immer. aber das muss es nicht. wichtig ist, dass die Jamies am Ende eine hohle hohe Wiederholungszahl haben und Selbstvertrauen aufbauen könnten und ganz ganz viel Spaß hatten!
 
