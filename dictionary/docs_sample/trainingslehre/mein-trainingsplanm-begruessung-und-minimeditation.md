@@ -43,7 +43,9 @@ im Folgenden findest du eine komplette Übungseinheit dargestellt. werden durch 
 
 ## trainingsplan-umsetzung
 
+eine Einheit von 1,5 Stunden besteht aus sechs mal 15 Minuten Blöcken. nach der Aufwärmphase erfolgt immer die fokustechnik.
 
+dieser Trainingsplan hat folgende fokustechnik: **triangle-Choke aus der Top-Mount** bzw.  . die gesamte Einheit ist und diese zentrale Technik herumgebaut. nach dieser Einheit sollen alle Trainings diese Technik in Grobform beherrschen können.
 
 ## Begrüssung und Minimeditation
 
