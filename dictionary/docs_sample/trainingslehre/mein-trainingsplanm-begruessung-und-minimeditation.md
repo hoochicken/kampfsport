@@ -1,4 +1,4 @@
-# "Mein" Trainingsplan 
+# Trainingsplan - Praxisbeispiel
 
 in diesem kapitel geht es darum, wie man eine technikeinheit gestalten kann. dies bedingt dass ich ein wenig weiter aushole und die erkläre , welchen Herausforderungen sich ein ju zu Trainer entgegen sieht
 
@@ -45,9 +45,21 @@ eine Einheit von 1,5 Stunden besteht aus sechs mal 15 Minuten Blöcken. nach der
 
 dieser Trainingsplan hat folgende fokustechnik: **triangle-Choke aus der Top-Mount** bzw.  . die gesamte Einheit ist und diese zentrale Technik herumgebaut. nach dieser Einheit sollen alle Trainings diese Technik in Grobform beherrschen können.
 
-## Begrüssung und Minimeditation
+## Begrüssung und aufwärmen (15min)
 
+Trainingseinheit beginnt mit der **Begrüßung** und einer kleinen Meditation. 
 
+die mit japanischen Begriffen eingeleitete **Meditation** und fast nur das Augen schließen und ein kurzes bewusstwertes Atem. sie wird begleitet von den Sätzen atme einhalten und nun atme den ganzen Tag aus du bist hier und du bist jetzt Augen öffnen"
+
+diese Meditation dient dazu Komma den Trainees ist bewusst zu machen , dass der Ärger und dr stressdes Tages dass sie nun Freude am Training haben .
+
+dann beginnt die **Aufwärmphase**. in den allermeisten Fällen reicht dann allgemeines aufwärmen. z.B
+
+* Bewegungsformen am Boden Känguru Frosch Krokodil shrimp Bär) 
+* im Kreis laufen mit verschiedenen Bewegungs befehlen, zum Boden greifen Arme schwingen Anfersen
+* einfache atemi-komination am Partner, Beispiel Jab-punch-Lowkick auf das brustbein
+
+in einer kurzen stockeinheit wird die Schläge 1-6 geübt für Anfänger und entwaffnungstechniken für die Fortgeschrittenen. auf die stockeinheit dient noch zum Aufwärmen. so wird in jeder Einheit ein bisschen Stock geübt und man wird vertrauter mit dieser Waffe
 
 ## fokustechnik
 
