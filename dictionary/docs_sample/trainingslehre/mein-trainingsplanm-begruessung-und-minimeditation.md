@@ -23,7 +23,11 @@ insgesamt sind folgende Merkmale meine Leitlinien beim Aufbau einer übungseinhe
 
 ## Konzeptionen dieser trainingseinheit
 
+heute gehe ich wesentlich anders an die Konzeption einer Trainingseinheit heran, als ich dies früher als Neuling tat
 
+früher habe ich bei der Konstruktion einer Trainingseinheit einfach nur Kombinationen ausgedacht. dieser habe ich den trainees vorgestellt. sie durften sie nachtanzen.
+
+die Konzeption beginnt bei dem zentralen Element der Einheit: der sogenannten fokustechnik. dies ist die Technik von der ich möchte, dass sie am Ende der Trainingseinheit beherrscht wird. es ist in der Regel ein Bewegungsablauf Punkt dieser findet sich in jedem part der Trainingseinheit wieder. die Technik (und deren gegentechnik dazu) wird geübt 
 
 ## Fokus-technik
 
