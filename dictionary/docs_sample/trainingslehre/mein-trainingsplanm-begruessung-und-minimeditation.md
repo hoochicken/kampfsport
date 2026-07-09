@@ -61,7 +61,7 @@ dann beginnt die **Aufwärmphase**. in den allermeisten Fällen reicht dann allg
 
 in einer kurzen stockeinheit wird die Schläge 1-6 geübt für Anfänger und entwaffnungstechniken für die Fortgeschrittenen. auf die stockeinheit dient noch zum Aufwärmen. so wird in jeder Einheit ein bisschen Stock geübt und man wird vertrauter mit dieser Waffe
 
-## fokustechnik
+## fokustechnik (15min)
 
 der Abschnitt der fokustechnik unterteilt sich in zwei Phasen: 
 
@@ -78,7 +78,7 @@ ziel ist es die Grobform zu lernen, nicht gegen Probleme zu kämpfen. die Gegenw
 
 im falle der **triangle-Choke aus der Top-Mount** bzw. san-kaku-jime aus der Reiterstellung oben zeige ich die Technik erst in Rohform. wir beginnen direkt in Reiterstellung auf den Partner wird druck ausgeübt und dann die Triangel von oben gezogen. dabei achte ich auf klare Sprache und deutliches vorzeigen. dasselbe gilt für die gegentechnik
 
-## technik 1: traditionell
+## technik 1: traditionell (15min)
 
 diesem Abschnitt besteht aus drei Unterabschnitten : 
 
@@ -93,7 +93,7 @@ im Falle der beispielhaften Jutsu Einheit bedeutet dies:
 
 ab diesem Abschnitt lasse ich auch ganz häufig einen Partnerwechsel machen dieser möglicht den Trainee eine bessere memorisierung (siehe Kapitel memorisierung)
 
-## technik 2: praxisnah
+## technik 2: praxisnah (15min)
 
 gleicher Aufbau wie bei Technik 1
 
@@ -107,7 +107,7 @@ im Falle der beispielhaften Jutsu Einheit bedeutet dies:
 
 die gegentechnik ermächtigt zum einen den Trainee, dass er Selbstvertrauen aufbaut und weiß, wie er reagieren könnte. zum anderen ist es für den Trainee ebenso eine Möglichkeit, selbst den Wurf noch einmal zu trainieren. da immer beide Partner eine Technik und der andere dann eine gegentechnik trainiert, werden beide Partner gefordert. beide trainieren aktiv gemeinsam
 
-## technik 3: praxisnah
+## technik 3: praxisnah (15min)
 
 gleicher Aufbau wie bei Technik 1 und 2
 
@@ -119,7 +119,7 @@ gleicher Aufbau wie bei Technik 1 und 2
 
 **Hinweis**: wie du siehst, wird in jedem Abschnitt die fokustechnik trainiert. dadurch erhält der Trainee Sicherheit, dass dieses Verhalten aus mehreren Situationen möglich ist. gleichzeitig erhält auch die Sicherheit, dass er sich aus so einer Lage befreien kann. und das zigmal innerhalb eines Trainings. ist selbst für ein Anfänger dieses Programm machbar
 
-## randori
+## randori(15min)
 
 als letzter Abschnitt erfolgt das Randori oder Sparring. ergibt es eigentlich immer Sinn, mit bedingtem Sparring anzufangen. das heißt: es wird nicht freigekämpft, sondern es gibt bestimmte technikvorgaben. genaueres hierzu kannst du ihm entsprechenden Kapitel nachlesen. 
 
@@ -136,7 +136,7 @@ im falle der beispielhaften Ju-Jutsu Einheit könnte dies z.B wie folgt aussehen
 
 das randori ist der Höhepunkt eines jeden Trainings, dass jeder Trainee dabei sind. zumindest die Trainees in meiner Gruppe. alle sind gespannt darauf, wie sie nun ihre Technik und ihre Kraft Abpumpen können.
 
-## reflektion und mini-meditation
+## reflektion und mini-meditation (15min)
 
 nach dem Rande randeri erfolgt eine Feedbackrunde oder reflektionsrunde alle setzen sich in den Kreis und wir machen eine Art Talkshow. die Grundfrage ist: 
 
