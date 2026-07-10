@@ -69,15 +69,15 @@ die Kombination besteht aus folgenden Einzeltechniken:
 
 ** doppelter Faustschlag wie Hüftdrehung**
 
-* Anheben des vorderen Beins Rückgang in die erste Stellung(große drachenstellung, senkutsche das) Blickrichtung und Oberkörper Richtung Backbord doppelter Faustschlag, 
+* Anheben des vorderen Beins Rückgang in die erste Stellung(große drachenstellung, zen kutsu dachi) Blickrichtung und Oberkörper Richtung Backbord doppelter Faustschlag, 
     * linke Hand nach Backbord von unten führen, Schlag unters kinn 
     * rechte Hand nach hinten Steuerbord führen Schlag in den Schritt oder Magengrube
-* vordere Hand mit unterarmblock
 
-**gleichzeitig Frontkick links und rechter Faustschlag**
+**vordere Hand mit unterarmblock und frontkick**
 
-* frontkick mit linken Fuß nach vorne (backbord)
-* gleichzeitig gerade fauststoss mit rechts (Backbord)
+* vordere Hand mit unterarmblock, die linke Faust wird von unten kreisförmig über die Körpermitte erst nach innen und dann nach außen auf Schulterhöhe geführt damit könnte man einen Schlag zur Brust abwehren)
+* Reifen der eigenen Faust
+* frontkick mit recht Fuß nach vorne (backbord), dabei zurückziehen der rechten Hand (die weiterhin die linke Faust und was) zur rechten Hüfte
 * einnehmen der der großen pferdestellung, linker Fuß nach vorne, nach Backbord, dabei gleichzeitiger nach vorne und hinten
 
 das ist also die erste Technik von dieser Kombination wieder. nur dass sie diesmal mit Links beginnt
@@ -90,8 +90,9 @@ die zweite Kombination ist identisch mit der ersten Kombination wird aber spiege
 
 * Ausgangsstellung ist sehr gut zu deutsch, linker Fuß vorne Doppelschlag führHand nach Backbord Schlaghand nach hinten steuerbord
 * ellenbogenschlag mit rechts in kiba-dachi ( große pferdestellung)
-* doppelter Hammerschlag, Schlaghand nach vorne unters kinn, für Hand nach hinten, vordere Hand mit Unterarm Block
-* frontkick mit hinteren Beinen nach Backbord, gleichzeitig diagonaler Vorschlag 
+* doppelter Hammerschlag, Schlaghand nach vorne unters kinn, für Hand nach hinten
+* vordere Hand mit Unterarm Block
+* greifen der eigenen Faust mit der rechten Hand von Kik mit links
 * Rückkehr in Ausgangsstellung mit rechts vorne
 
 ## 3. wende 
@@ -124,7 +125,8 @@ identisch ausgeführt wie die Kombination 1. das heißt wieder auf rechts ausgef
 die kata ist einfach aufgebaut . lerne zunächst einmal den groben Ablauf dieser kata . dann mache dir darüber Gedanken:
 
 * wie du diese oder jede Technik Technik  ausführen möchtest
-* wo werden die Techniken den Gegner treffen wie willst du das Bongo ausführen, nimm zwei Waffen in die Hand (z.B zwei bleistifte) , wie verändert sich die Kata mit der Waffe in der Hand?
+* wo werden die Techniken den Gegner treffen wie willst du das Bingo ausführen
+* nimm zwei Waffen in die Hand (z.B zwei bleistifte, zwei kurzstöcke) , wie verändert sich die Kata mit der Waffe in der Hand? 
 * die Techniken haben kaum Abwehrtechniken. es gibt keine Deckung, wie wandelst du das ab, dass es passt?
 * welche Stärken hat diese Kata? welche Schwächen? 
 * was gefällt Dir überhaupt nicht? und warum
