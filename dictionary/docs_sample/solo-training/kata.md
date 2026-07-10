@@ -36,7 +36,11 @@ die Kata besteht aus einer Begrüßung und einem Abschlusspunkt dazwischen wird 
 
 ## 1. init
 
-Füße stehen nebeneinander, leicht in die Knie gehen und den Oberkörper nach Steuerbord drehen. die rechte Hand wird zur Faust an die rechte Rippe gezogen die linke Faust Blick wer darüber. der Körper ist so verdrungen, das Spannung aufgebaut wird
+* Füße stehen nebeneinander
+* Verbeugung
+* kreisförmige Bewegung der Arme nach rechts, rechte Faust ausgestreckt nach Backbord
+* leicht in die Knie gehen 
+* den Oberkörper nach Steuerbord drehen. die rechte Hand wird zur Faust an die rechte Rippe gezogen die linke Faust Blick wer darüber. der Körper ist so verdrungen, das Spannung aufgebaut wird
 
 diese Spannung entlädt sich in einem schnellen Schritt mit rechts nach Steuerbord. dabei wird ein Doppelschlag ausgeführt. dieser Doppelschlag gehört bereits zu der Kombination, die sich nun vier Mal wiederholen wird 
 
@@ -109,8 +113,18 @@ identisch ausgeführt wie die Kombination 1. das heißt wieder auf rechts ausgef
 
 ## 5. abschluss
 
+* Anziehen des hinteren Beines zum vorderen Bein
+* Ausrichtung der Fußspitzen und der Blickrichtung nach bugs 
+* führen der Arme im Kreis nach links, linke Faust ausgestreckt nach links, Rechte vor der Brust,
+* anschließende verbeugung mit den Händen vor der Brust
 
+## Reflexion 
 
+die kata ist einfach aufgebaut . lerne zunächst einmal den groben Ablauf dieser kata . dann mache dir darüber Gedanken:
+
+* wie du diese oder jede Technik Technik  ausführen möchtest
+* wo werden die Techniken den Gegner treffen wie willst du das Bongo ausführen, nimm zwei Waffen in die Hand (z.B zwei bleistifte) , wie verändert sich die Kata mit der Waffe in der Hand?
+* die Techniken haben kaum Abwehrtechniken. es gibt keine Deckung, wie wandelst du das ab, dass es passt?
 
 
 
