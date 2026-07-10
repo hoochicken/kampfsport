@@ -38,6 +38,14 @@ das heißt du gehst jeden Tag zur gleichen Zeit ins Bett und stehst du jeden Tag
 
 **Geschichte**: ich persönlich habe quasi Aufbau von meinem Körper Betrieben, täglich nur vier Stunden geschlafen und mich was zu Tode gearbeitet. das ging dann ein paar Jahre lang gut. bis mein Körper vollkommen am Ende war . das Ergebnis war eine Krebserkrankung . das wirst Du glaube ich nicht so eine Krebserkrankung sorgt auch für ein ordentlichestrainingsdefizit:-D) auf dich acht!
 
+## warten
+
+in deinem Leben musst du wahrscheinlich viel warten Punkt an der Ampel, auf dem Amt, an der Kasse solltest du zu den Menschen gehören, die diese Situation nervt die diese Situation nervt, die sie als anstrengend empfinden, den Kopf anfangen zu schimpfen auf Gott und die Welt und die Ungerechtigkeit des Lebens bitte hier weiter Punkt bist du bereits ein entspannter water, kannst du demnächsten Abschnitt überspringen.
+
+Daten ist ein Geschenk der Zeit. in der Regel kannst du nicht beeinflussen wie lange du wartest aber wie. entspanne Dich durch eine Atemübung, z.B(4 Sekunden Einatmen, 7 Sekunden halten, 8 Sekunden ausatmen). schließe die Augen, oder halte sie offen, beobachte neugierig interessiert die Menschen.
+
+du hast normalerweise alle Zeit der Welt. wenn du an einer Ampel stehst, auch wenn es dir lange vorkommt, zumeist sind es noch ein paar ein bis zwei Minuten. wegen dieser ein bis zwei Minuten lohnt es sich nicht ein Unfall zu riskieren oder sich aufzuregen. nimm bewusst den Zeitstress heraus und nehmen diese Zeitspanne als ein Geschenk an, dass der Tag nur für dich bereitgestellt hat.
+
 ## übertraining / burn-out
 
 Übertraining (Übertrainingssyndrom) ist eine chronische Überlastung des Körpers . Es entsteht durch zu viel Training und zu wenig Erholung . Die sportliche Leistung sinkt trotz harten Trainings . Betroffene fühlen sich extrem erschöpft, schlafen schlecht und sind oft gereizt wikipedia
@@ -111,14 +119,6 @@ nimm alltägliche Routinen zur Aufforderung, diese in sinnvolle kampfsportübung
 simon sinek der sich vor allem mit Wirtschaft und Kommunikation auseinandersetzt , hat  den Begriff "The infinte game" geprägt. er meint damit, dass es im Leben viele Fehlschläge gibt. aber ein Fehlschlag kann ich auch weiterbringen, und die nächste Herausforderung wartet noch. im Deutschen gibt es das martialische Wendung: die Schlacht ist verloren aber der Krieg ist noch dabei.
 
 habe gesehen von dem etwas kriegerischen Bild das hier verwendet wird stehe ich aber voll dahinter. es ist ein endloses Spiel, das immer weitergeht. als Kampfsportler lebst du in einem Prozess beständiger Verbesserung und Reflektion . eben das Unendliche Spiel
-
-## warten
-
-in deinem Leben musst du wahrscheinlich viel warten Punkt an der Ampel, auf dem Amt, an der Kasse solltest du zu den Menschen gehören, die diese Situation nervt die diese Situation nervt, die sie als anstrengend empfinden, den Kopf anfangen zu schimpfen auf Gott und die Welt und die Ungerechtigkeit des Lebens bitte hier weiter Punkt bist du bereits ein entspannter water, kannst du demnächsten Abschnitt überspringen.
-
-Daten ist ein Geschenk der Zeit. in der Regel kannst du nicht beeinflussen wie lange du wartest aber wie. entspanne Dich durch eine Atemübung, z.B(4 Sekunden Einatmen, 7 Sekunden halten, 8 Sekunden ausatmen). schließe die Augen, oder halte sie offen, beobachte neugierig interessiert die Menschen.
-
-du hast normalerweise alle Zeit der Welt. wenn du an einer Ampel stehst, auch wenn es dir lange vorkommt, zumeist sind es noch ein paar ein bis zwei Minuten. wegen dieser ein bis zwei Minuten lohnt es sich nicht ein Unfall zu riskieren oder sich aufzuregen. nimm bewusst den Zeitstress heraus und nehmen diese Zeitspanne als ein Geschenk an, dass der Tag nur für dich bereitgestellt hat.
 
 ## respekt & dankeschön
 
