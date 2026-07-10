@@ -131,7 +131,7 @@ die kata ist einfach aufgebaut . lerne zunächst einmal den groben Ablauf dieser
 * welche Stärken hat diese Kata? welche Schwächen? 
 * was gefällt Dir überhaupt nicht? und warum
 
-dies ist nur eine kleine Auswahl an Fragen, die Du Dir zu dieser katast stellen kannst und deren Antworten den niemand geben wird, außer du selbst . es ist ein treuer Begleiter auf Jahrzehnte.eine kata heißt lebenslanges Lernen. es
+dies ist nur eine kleine Auswahl an Fragen, die Du Dir zu dieser katast stellen kannst und deren Antworten den niemand geben wird, außer du selbst . es ist ein treuer Begleiter auf Jahrzehnte.eine kata heißt lebenslanges Lernen. 
 
 
 
