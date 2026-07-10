@@ -22,7 +22,19 @@ durch dieses absolute Richtung System ist gewährleistet, dass man sich transpar
 
 ## ablauf der kata
 
-**init** 
+die Kata besteht aus einer Begrüßung und einem Abschlusspunkt dazwischen wird dieselbe Kombination viermal ausgeführt.
+
+1. init
+2. laufen nach backbord
+    * abschnitt 1: kombi auf recht
+    * abschnitt 2: auf links
+3. wende
+4. laufend nach Steuerbord
+    * abschnitt 3: kombi auf links
+    * abschnitt 4: kombi auf rechts
+5. abschluss
+
+## 1. init
 
 Füße stehen nebeneinander, leicht in die Knie gehen und den Oberkörper nach Steuerbord drehen. die rechte Hand wird zur Faust an die rechte Rippe gezogen die linke Faust Blick wer darüber. der Körper ist so verdrungen, das Spannung aufgebaut wird
 
@@ -32,7 +44,9 @@ eine Stellung ist besonders hervorzuheben: die große-Pferde-Stellung (zen kutsu
 
 diese Stellung ist die hauptstellung in dieser kata. man steht in großer drachensteller oder sind gut zu deutsch und hat den Doppelschlag nach vorne hinten ausgeführt die Arme werden stehen gelassen.(weil das in Kung Fu einfach mal so ist. )
 
-## kombination 1
+## 2. laufen nach Backbord 
+
+### abschnitt 1: kombination auf rechts
 
 die Kombination besteht aus folgenden Einzeltechniken: 
 
@@ -65,7 +79,7 @@ das ist also die erste Technik von dieser Kombination wieder. nur dass sie diesm
 
 <= über diese Kombination immer und immer wieder Punkt wenn du darin sicher bist, gehe dazu über sie auch gespiegelt zu trainieren. denn das brauchst du
 
-## kombination 2
+### abschnitt 2: kombination auf links
 
 die zweite Kombination ist identisch mit der ersten Kombination wird aber spiegelverkehrt ausgeübt. das heißt
 
@@ -75,23 +89,25 @@ die zweite Kombination ist identisch mit der ersten Kombination wird aber spiege
 * von Kik mit hinteren Beinen nach Backbord, gleichzeitig diagonaler Vorschlag 
 * Rückkehr in Ausgangsstellung mit rechts vorne
 
-## Richtungswechsel
+## 3. wende 
 
-* du befindest dich in ausgangsstellung 
+* du befindest dich in ausgangsstellung , rechts bein vorne nach backbord
 * hinteres Bein anziehen, Füße nebeneinander abstellen
 * Fußspitzen und Blick zeigen nach Bugs
 * Oberkörper eindrehen nach Steuerbord
 * Schritt in die Ausgangsstellung mit links nach vorne, und Doppelschlag, dies ist wiederum die erste Technik der folgenden Kombination
 
-## kombination 3
+## 4. laufen nach Steuerbord
+
+### abschnitt 3: kombination auf linke
 
 identisch ausgeführt wie die Kombination 2. das heißt wieder auf links ausgeführt. du läufst dabei konsequent nach Steuerbord
 
-## kombination 4
+### abschnitt 4: kombination auf rechts
 
 identisch ausgeführt wie die Kombination 1. das heißt wieder auf rechts ausgeführt. du läufst dabei konsequent nach Steuerbord
 
-## abschluss
+## 5. abschluss
 
 
 
