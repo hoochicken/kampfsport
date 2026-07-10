@@ -20,7 +20,81 @@ diese Karte eignet sich wunderbar zum trainieren, weil
 
 durch dieses absolute Richtung System ist gewährleistet, dass man sich transparent über die eingeschlagene Richtung im klaren ist.
 
-**ablauf der kata**
+## ablauf der kata
+
+**init** 
+
+Füße stehen nebeneinander, leicht in die Knie gehen und den Oberkörper nach Steuerbord drehen. die rechte Hand wird zur Faust an die rechte Rippe gezogen die linke Faust Blick wer darüber. der Körper ist so verdrungen, das Spannung aufgebaut wird
+
+diese Spannung entlädt sich in einem schnellen Schritt mit rechts nach Steuerbord. dabei wird ein Doppelschlag ausgeführt. dieser Doppelschlag gehört bereits zu der Kombination, die sich nun vier Mal wiederholen wird 
+
+eine Stellung ist besonders hervorzuheben: die große-Pferde-Stellung (zen kutsu dachi). gleichzeitig wird ein Doppelschlag ausgeführt, wie viel hat nach vorne, die Schlagehand nach hinten
+
+diese Stellung ist die hauptstellung in dieser kata. man steht in großer drachensteller oder sind gut zu deutsch und hat den Doppelschlag nach vorne hinten ausgeführt die Arme werden stehen gelassen.(weil das in Kung Fu einfach mal so ist. )
+
+## kombination 1
+
+die Kombination besteht aus folgenden Einzeltechniken: 
+
+**Doppelschlag nach vorne und hinten, rechts vorne**: 
+
+* Schrittstellung (grosse drachenstellung, zen kutsu dachi) mit rechtem Fuß nach vorne 
+* Oberkörper verbleibt aufrecht, 
+* die Blickrichtung geht ebenso nach Steuerbord
+* gleichzeitiger Schlag nach vorne und hinten, aus deiner Sicht. genauer gesagt: die rechte Hand schlägt nach vorne , nach Steuerbord die linke Hand nach hinten = nach Backbord 
+
+**ellenbogenschlag führhand**
+
+* Anheben des vorderen rechten Beins, umsetzen zur großen pferdestellung ( kibadatsch)
+* Blickrichtung verbleibt nach Backbord
+* Ellenbogenschlag wird mit rechts nach backwood ausgefüllt
+
+** doppelter Faustschlag wie Hüftdrehung**
+
+* Anheben des vorderen Beins Rückgang in die erste Stellung(große drachenstellung, senkutsche das) Blickrichtung und Oberkörper Richtung Backbord doppelter Faustschlag, 
+    * linke Hand nach Backbord von unten führen, Schlag unters kinn 
+    * rechte Hand nach hinten Steuerbord führen Schlag in den Schritt oder Magengrube
+
+**gleichzeitig Frontkick links und rechter Faustschlag**
+
+* frontkick mit linken Fuß nach vorne (backbord)
+* gleichzeitig gerade fauststoss mit rechts (Backbord)
+* einnehmen der der großen pferdestellung, linker Fuß nach vorne, nach Backbord, dabei gleichzeitiger nach vorne und hinten
+
+das ist also die erste Technik von dieser Kombination wieder. nur dass sie diesmal mit Links beginnt
+
+<= über diese Kombination immer und immer wieder Punkt wenn du darin sicher bist, gehe dazu über sie auch gespiegelt zu trainieren. denn das brauchst du
+
+## kombination 2
+
+die zweite Kombination ist identisch mit der ersten Kombination wird aber spiegelverkehrt ausgeübt. das heißt
+
+* Ausgangsstellung ist sehr gut zu deutsch, linker Fuß vorne Doppelschlag führHand nach Backbord Schlaghand nach hinten steuerbord
+* ellenbogenschlag mit rechts in kiba-dachi ( große pferdestellung)
+* doppelter Hammerschlag, Schlaghand nach vorne unters kinn, für Hand nach hinten
+* von Kik mit hinteren Beinen nach Backbord, gleichzeitig diagonaler Vorschlag 
+* Rückkehr in Ausgangsstellung mit rechts vorne
+
+## Richtungswechsel
+
+* du befindest dich in ausgangsstellung 
+* hinteres Bein anziehen, Füße nebeneinander abstellen
+* Fußspitzen und Blick zeigen nach Bugs
+* Oberkörper eindrehen nach Steuerbord
+* Schritt in die Ausgangsstellung mit links nach vorne, und Doppelschlag, dies ist wiederum die erste Technik der folgenden Kombination
+
+## kombination 3
+
+identisch ausgeführt wie die Kombination 2. das heißt wieder auf links ausgeführt. du läufst dabei konsequent nach Steuerbord
+
+## kombination 4
+
+identisch ausgeführt wie die Kombination 1. das heißt wieder auf rechts ausgeführt. du läufst dabei konsequent nach Steuerbord
+
+## abschluss
+
+
+
 
 
 
