@@ -72,6 +72,7 @@ die Kombination besteht aus folgenden Einzeltechniken:
 * Anheben des vorderen Beins Rückgang in die erste Stellung(große drachenstellung, senkutsche das) Blickrichtung und Oberkörper Richtung Backbord doppelter Faustschlag, 
     * linke Hand nach Backbord von unten führen, Schlag unters kinn 
     * rechte Hand nach hinten Steuerbord führen Schlag in den Schritt oder Magengrube
+* vordere Hand mit unterarmblock
 
 **gleichzeitig Frontkick links und rechter Faustschlag**
 
@@ -89,8 +90,8 @@ die zweite Kombination ist identisch mit der ersten Kombination wird aber spiege
 
 * Ausgangsstellung ist sehr gut zu deutsch, linker Fuß vorne Doppelschlag führHand nach Backbord Schlaghand nach hinten steuerbord
 * ellenbogenschlag mit rechts in kiba-dachi ( große pferdestellung)
-* doppelter Hammerschlag, Schlaghand nach vorne unters kinn, für Hand nach hinten
-* von Kik mit hinteren Beinen nach Backbord, gleichzeitig diagonaler Vorschlag 
+* doppelter Hammerschlag, Schlaghand nach vorne unters kinn, für Hand nach hinten, vordere Hand mit Unterarm Block
+* frontkick mit hinteren Beinen nach Backbord, gleichzeitig diagonaler Vorschlag 
 * Rückkehr in Ausgangsstellung mit rechts vorne
 
 ## 3. wende 
@@ -125,6 +126,10 @@ die kata ist einfach aufgebaut . lerne zunächst einmal den groben Ablauf dieser
 * wie du diese oder jede Technik Technik  ausführen möchtest
 * wo werden die Techniken den Gegner treffen wie willst du das Bongo ausführen, nimm zwei Waffen in die Hand (z.B zwei bleistifte) , wie verändert sich die Kata mit der Waffe in der Hand?
 * die Techniken haben kaum Abwehrtechniken. es gibt keine Deckung, wie wandelst du das ab, dass es passt?
+* welche Stärken hat diese Kata? welche Schwächen? 
+* was gefällt Dir überhaupt nicht? und warum
+
+dies ist nur eine kleine Auswahl an Fragen, die Du Dir zu dieser katast stellen kannst und deren Antworten den niemand geben wird, außer du selbst . es ist ein treuer Begleiter auf Jahrzehnte.eine kata heißt lebenslanges Lernen. es
 
 
 
