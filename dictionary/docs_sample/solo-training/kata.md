@@ -11,6 +11,15 @@ diese Karte eignet sich wunderbar zum trainieren, weil
 * Schläge und dritte gleichermaßen berücksichtigt 
 * auch mit Waffen gelaufen werden kann
 
+**richtungs-beschreibungen** während einer Katha bewegt man sich in alle möglichen Richtungen. hier kann man kaum mit vorne und hinten arbeiten, weil man sich beständig dreht. da bietet sich ein absolutes richtungssystem an, wie es auf dem Schiff vorherrscht Punkt daher werden hier schlichtweg die folgenden Begriffe Ende: 
+
+* Bug vorne aus Sicht der Anfangsstellung 
+* Heck hintenausichter Anfangsstellung 
+* Backbord links Aussicht der Anfangsstellung 
+* Steuerbord rechts aus Sicht der Anfangsstellung
+
+durch dieses absolute Richtung System ist gewährleistet, dass man sich transparent über die eingeschlagene Richtung im klaren ist.
+
 **ablauf der kata**
 
 
