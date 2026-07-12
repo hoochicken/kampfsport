@@ -26,11 +26,15 @@ der Gürtel sagt also nicht zwingend etwas über das "Level" des trainees aus, d
 
 dieses Phänomen gibt es natürlich auch umgekehrt: es niederer Gurt kann wesentlich besser sein, als was sein Gurt aussagt. gerade bei Quereinsteigern, die aus einer anderen (Kampf)Sportart kommen, sieht man deutlich die bestehende sportliche Erfahrung.
 
-**schwarzer gürtel = parnass der kampfkunst**
+## schwarzer gürtel = parnass der kampfkunst**
 
 im Allgemeinen wird davon ausgegangen dass ein Schwarzgurt der höchste Gurt wäre, den man erlangen kann. mit dem Schwarzgurt wäre die Ausbildung eines kampfsportlers abgeschlossen.
 
-das ist insofern nicht korrekt weil der erste Schwarzgurt einfach nur ein Schwarzgurt markiert. wenn du selbst in den Gürtelfarben bereits aufgestiegen bist, wirst du vielleicht feststellen, dass ich auf einer gewissen Farbe?????
+das ist insofern nicht korrekt weil der erste Schwarzgurt einfach nur ein Schwarzgurt markiert. wenn du selbst in den Gürtelfarben bereits aufgestiegen bist, wirst du möglicherweise irgendwann feststellen, dass du nicht unbedingt mit deiner Leistung zufriedener bist als früher wenn du auch nur ein bisschen selbstkritisch bist wirst du wahrscheinlich unzufriedener sein. denn je länger du die Sportart betreibst, desto größer wird dein Wissen Punkt und mit diesem Anwachsen des Wissens wird ja auch immer mehr bewusst.
+
+## gürtel übersprungen
+
+
 
 
 
