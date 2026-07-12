@@ -8,17 +8,29 @@ entweder der Gürtel wird dir einfach so vom Trainer verliehen. das ist z.b.j de
 
 oder ein Gürtel wird durch eine Wissens und könnensprobe erlangt. und diese nennt man dann: bitte Prüfung. bei einer Gürtelprüfung zeigt der Trainee bestimmte Techniken die in einer Prüfungsordnung festgelegtist.
 
-**relative und absolute Gürtelfarben**: Gürtel können absolut und relativ betrachtet werden. der absolute Betrachtung wäre folgende: der Training hat einen bestimmten Umfang an Techniken zu zeigen. sobald er diese zeigen kann, legt er die Gürtelprüfung ab dies ist das absolute Verständnis. daneben gibt es noch das relative Verständnis. Träger der gleichen Gürtelfarbe können sehr wohl unterschiedliches Niveau haben Punkt sicherlich wirst du schon einmal mit jemanden trainiert haben, bei denen du dich wunderst warum er diese Gürtelfarbe trägt. (sei es weil er so gut für die für die Farbe ist oder eher unbeholfen wird für diese Farbe) bei der relativen Betrachtung muss das "Talent" , die psychischen und körperlichen Voraussetzungen des  Trainees mit betrachtet werden. es gibt Personen die körperlich eingeschränkt sind. auch wenn sie mit einem Anführungszeichen gesunden " blau gut nicht mitkommen, so können sie durchaus auch selbst in blau verlangen. denn für ihre körperlichen Voraussetzungen haben sie den blau rot verdient
+**relative und absolute Gürtelfarben**
 
+Gürtel können absolut und relativ betrachtet werden. 
 
+**absolute Betrachtung**: der Training hat einen bestimmten Umfang an Techniken zu zeigen. sobald er diese zeigen kann, legt er die Gürtelprüfung ab dies ist das absolute Verständnis. daneben gibt es noch das relative Verständnis
 
-der Gürtel sagt etwas über den Stand eines trainies in der Kampfsportart aus. ein blauwurz z.B gehört in der Regel zur Oberstufe. der blaue zeigt an, dass der Training schon lange trainiert. und meistens ist da auch besser als ein Weißgold der gerade angefangen hat dies muss aber nicht unbedingt der Fall sein. es gibt durchaus die Möglichkeit, dass ein niederer Gurt wesentlich besser ist als ein höherer Gott.
+Träger der gleichen Gürtelfarbe können sehr wohl unterschiedliches Niveau haben . sicherlich wirst du schon einmal mit jemanden trainiert haben, bei denen du dich wunderst warum er diese Gürtelfarbe trägt. (sei es weil er so gut für die für die Farbe ist oder eher unbeholfen wird für diese Farbe) 
 
-**höherer gürtel heisst nicht besser**: Gürtel sind allgemein sichtbar und markieren das Level des Tragenden. zumindest scheinbar. ein gelbgürtler ist nicht unbedingt schlechter als ein Blaugürtler. warum? weil 
+**relative Betrachtung**: diese bezieht das "Talent" mit ein, also die psychischen und körperlichen Voraussetzungen des  Trainees. 
 
-**schwarzer gürtel = parnass der kampfkunst**: im Allgemeinen wird davon ausgegangen dass ein Schwarzgurt der höchste Gurt wäre, den man erlangen kann. mit dem Schwarzgurt wäre die Ausbildung eines kampfsportlers abgeschlossen.
+du magst Leuten begegnen, die z.B einen braunen Gürtel tragen, die aber deiner Meinung nach diesen Gürtel nicht verdient haben. 
 
-das ist insofern nicht korrekt weil der erste Schwarzgurt einfach nur ein Schwarzgurt markiert. wenn du selbst in den Gürtelfarben bereits angestiegen wirst, wirst du vielleicht feststellen, dass ich auf einer gewissen Farbe
+hier ist zu bedenken: du weißt nicht, auf welchem Stand diese Menschen den Kampfsport angefangen haben und unter Berücksichtigung dieses anfangs Standpunkt können sie ihren Gürtel durchaus verdient haben. mit anderen Worten: sieh den Menschen hinter dem Gürtel! es geht nicht nur um die saubere Ausführung einer Technik, sondern die Entwicklung des Menschen.
+
+der Gürtel sagt also nicht zwingend etwas über das "Level" des trainees aus, der diesen Gürtel trägt. unter Umständen kann auch einfach die Länge anzeigen, die der Trainee diese Kampfsportart ausübt.
+
+dieses Phänomen gibt es natürlich auch umgekehrt: es niederer Gurt kann wesentlich besser sein, als was sein Gurt aussagt. gerade bei Quereinsteigern, die aus einer anderen (Kampf)Sportart kommen, sieht man deutlich die bestehende sportliche Erfahrung.
+
+**schwarzer gürtel = parnass der kampfkunst**
+
+im Allgemeinen wird davon ausgegangen dass ein Schwarzgurt der höchste Gurt wäre, den man erlangen kann. mit dem Schwarzgurt wäre die Ausbildung eines kampfsportlers abgeschlossen.
+
+das ist insofern nicht korrekt weil der erste Schwarzgurt einfach nur ein Schwarzgurt markiert. wenn du selbst in den Gürtelfarben bereits aufgestiegen bist, wirst du vielleicht feststellen, dass ich auf einer gewissen Farbe?????
 
 
 
