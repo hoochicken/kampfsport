@@ -45,6 +45,23 @@ der **verband** hat die Sicherheit, dass die Prüfungsordnung des Verbands gewag
 
 nicht zuletzt wird durch die Abnahme von Gürtelprüfungen sichergestellt dass dieser Kampfsport sich eine gewisse **Tradition** bewahrt. die Prüfungsordnung ist eine Zusammenstellung von verschiedenen Techniken, die sehr typisch für die spezifische Kampfsportart sind. die Kampfsportart wird so in ihrer Form erhalten.
 
+## Herausforderung und Weiterentwicklung
+
+eine Prüfung ist nicht nur eine Wissensabfrage und fähigkeitsbeweis. es ist auch eine Herausforderung. die Herausforderung, den sich ein Prüflinge gegensteht, sind mannigfaltig:
+
+* lernen der Fachbegriffe 
+* Ausführung der Techniken 
+* lernen auch in der Freizeit 
+* Timen des Lernens mit den alltäglichen Belastungen (Arbeit, Familie etc
+* umgang mit der stressigen Prüfungssituation
+
+für erwachsene Schüler ist das schülersein auch sehr ungewöhnlich. vielleicht war man das letzte Mal eine Prüfung ausgesetzt, als man die Abschlussprüfung in der Schule gemacht hat und nun sitzt man wieder da mit einer ähnlichen herausfordernden Situation
+
+
+## Ausnahmesituation!
+
+eine Prüfung ist eine Ausnahmesituation. sei dir dessen bewusst, wenn du Trainer bist und eine Prüfung abnimmst
+
 ## gültigkeitsbereich eines gürtels
 
 eine erworbene Griff habe gilt in der Regel nur innerhalb der Kampfsportart, innerhalb deren er erworben wurde. ein Kickbox Schwarzgurt der hat den Schwarzgurt also nur in Kickboxen, nicht in Judo Aikido oder Thaiboxen. 
@@ -103,7 +120,6 @@ die schönste Zeit ist die Zeit in der Unterstufe, es Gelbgurt als orangegurt al
 
 **geschichte**: zu dieser Zeit war ich persönlich am glücklichsten . meine beste Prüfung war die braungutprüfung bei Claus, auf die ich noch heute stolz bin. alle anderen Prüfung danach waren eingedrückt. denn ich sage ich Fehler, die ich mache. diese Fehler habe ich früher auch gemacht, aber ich habe sie schlichtweg nicht gesehen. oh glücklich ist die Zeit der Unwissenheit
 
-## zweck der Prüfung
 
 
 
