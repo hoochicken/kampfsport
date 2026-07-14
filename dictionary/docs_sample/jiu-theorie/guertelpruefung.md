@@ -45,6 +45,16 @@ der **verband** hat die Sicherheit, dass die Prüfungsordnung des Verbands gewag
 
 nicht zuletzt wird durch die Abnahme von Gürtelprüfungen sichergestellt dass dieser Kampfsport sich eine gewisse **Tradition** bewahrt. die Prüfungsordnung ist eine Zusammenstellung von verschiedenen Techniken, die sehr typisch für die spezifische Kampfsportart sind. die Kampfsportart wird so in ihrer Form erhalten.
 
+## prüfungs-technik-schere
+
+Prüfungsordnungen Fragen zur Festigung einer Kampfsportart bei. sie tragen zur Stabilität und Tradition bei. aber sie sind auch eine Falle, denn sie schreiben technikenfest, die zum Zeitpunkt der Prüfungsordnung als sehr effektiv gehalten. inzwischen hat sich die Welt weiter bewegt und es gibt wesentlich neue neuere Einflüsse, durch MMA , BJJ und Krav Maga.
+
+gerade in diesen drei Kampfsportarten finden sich sehr effektive Techniken und Strategien, wie man mit herausfordernden Situationen umgeht.
+
+dies kann für den Trainer unter Umständen sehr herausfordernd sein. denn einerseits möchte man effektive Techniken im Unterricht beibringen Punkt andererseits werden später traditionelle Techniken abgefragt. hier entsteht eine ungute Schere zwischen Prüfungsordnung und realer Welt. jedem Trainer, verbandsinhaber etc kann ich nur ans Herz legen, sich rechtzeitig mit der Anpassung der Prüfungsordnung auseinanderzusetzen und sie auf aktuelle Gegebenheiten anzupassen.
+
+**beispiel**: als wir zu Trainer habe ich tatsächlich das Problem, dass ich guten Gewissens nicht mehr traditionelle Techniken unterrichten kann. es ist Kampfkunst. in der Praxis fällt es zumindest mir selbst sehr schwer die Techniken angemessen umzusetzen. für meine Schüler möchte ich, dass sie wirkungsvolle Techniken haben, die sie flexibel und spontan einsetzen können. so stehen wir zwischen praktisch und können und traditionellen Forderungen in der Prüfung.
+
 ## Herausforderung und Weiterentwicklung
 
 eine Prüfung ist nicht nur eine Wissensabfrage und fähigkeitsbeweis. es ist auch eine Herausforderung. die Herausforderung, den sich ein Prüflinge gegensteht, sind mannigfaltig:
@@ -61,7 +71,7 @@ eine Prüfung ist nicht nur eine Wissensabfrage, sondern auch eine Möglichkeit,
 
 in der sicheren Umgebung einer Prüfung kannst du lernen, mit dieser stressigen Situation umzugehen und das technischer Sicht wirst du sicherlich das ein oder andere ebenfalls dazu lernen.
 
-**geschichte**: bei jeder Prüfung von Klaus hatte etwas Ungewöhnliches gemacht im Vorhinein der Prüfung habe ich jeden Gegenstand den ich irgendwie in die Hand genommen habe versucht als Waffe zu verwenden. warum: weil Klaus einem gerne Dinge in die Hand drückt mit denen man sich verteidigen soll. ich habe Zeitschriften Gabeln Messer Bücher Skateboards, alle Gegenstände auf ihre selbstverteidigungsmöglichkeiten hin getestet. bei dieser Prüfung in Schloss ich Claus, etwas ganz Neues zu machen. er hatte einen Stock und wir mussten eigentlich nur über diesen Stock springen oder uns stocken. wir hatten nachher blaue Schienbeine, und wieder was gelernt: Claus schafft es jeden mal ein zu überraschen und Dinge abzufragen! 
+**geschichte**: bei jeder Prüfung von Claus hatte etwas Ungewöhnliches gemacht im Vorhinein der Prüfung habe ich jeden Gegenstand den ich irgendwie in die Hand genommen habe versucht als Waffe zu verwenden. warum: weil Claus einem gerne Dinge in die Hand drückt mit denen man sich verteidigen soll. ich habe Zeitschriften Gabeln Messer Bücher Skateboards, alle Gegenstände auf ihre selbstverteidigungsmöglichkeiten hin getestet. bei dieser Prüfung in Schloss ich Claus, etwas ganz Neues zu machen. er hatte einen Stock und wir mussten eigentlich nur über diesen Stock springen oder uns stocken. wir hatten nachher blaue Schienbeine, und wieder was gelernt: Claus schafft es jeden mal ein zu überraschen und Dinge abzufragen! 
 
 ## Ausnahmesituation!
 
