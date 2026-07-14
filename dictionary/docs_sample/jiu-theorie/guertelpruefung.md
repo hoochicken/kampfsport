@@ -47,7 +47,11 @@ ich persönlich stehe dazu wie folgt: hat der Trainee den Gürtel rechtmäßig i
 
 in unserer Gruppe darf der Trainee sein Gürtelfarbe natürlich behalten. eine andere Handlung fände ich respektlos gegenüber dem Trainee, der jahrelang trainiert hat, und dessen Trainer, der diesen jahrelang begleitet. beispielsweise bleibt der grüne Gurt grün. der Trainee würde nächsten Prüfung zugelassen, wenn er das Niveau für den blaugurt hat. hat er einen guten Stand, so wird es schnell sein. ist der stand nicht so gut, so wird es einfach etwas länger dauern.
 
-manche Kampfsportarten sind näher aneinander, sodass ich dann eine Anerkennungsprüfung anbietet.
+manche Kampfsportarten sind näher aneinander, sodass ich dann eine Anerkennungsprüfung anbietet. wenn wir uns zuvor jedoch den Zweck einer Gürtelprüfung zu
+
+## zweck der gürtelprüfung
+
+
 
 ## anerkennungsprüfung 
 
@@ -71,11 +75,27 @@ solltest du als Trainer jemals vor der Wahl stehen, ob du einem Trainee einen h�
 
 er hat eine Abkürzung genommen aber die war nicht unbedingt gut für ihn. abgesehen davon dass dazu auch eine gehörige kriminelle Energie gehört. denn in diesem Moment begeht man einen Betrug.  kriminelle Energie? ist das nicht übertrieben? es ist ein Anzeichen dafür, dass der traine ein bisschen auf den falschen Fuß steht. der Trainee von dem ich spreche ist übrigens inzwischen im Gefängnis, denn die Kriminalität hörte nicht bei der erschleichung des schwarzen Gürtels auf.
 
-## schwarzer gürtel = parnass der kampfkunst**
+## schwarzer gürtel = parnass der kampfkunst
 
 im Allgemeinen wird davon ausgegangen dass ein Schwarzgurt der höchste Gurt wäre, den man erlangen kann. mit dem Schwarzgurt wäre die Ausbildung eines kampfsportlers abgeschlossen.
 
-das ist insofern nicht korrekt weil der erste Schwarzgurt einfach nur ein Schwarzgurt markiert. wenn du selbst in den Gürtelfarben bereits aufgestiegen bist, wirst du möglicherweise irgendwann feststellen, dass du nicht unbedingt mit deiner Leistung zufriedener bist als früher wenn du auch nur ein bisschen selbstkritisch bist wirst du wahrscheinlich unzufriedener sein. denn je länger du die Sportart betreibst, desto größer wird dein Wissen Punkt und mit diesem Anwachsen des Wissens wird ja auch immer mehr bewusst.
+das ist insofern korrekt, als der schwarze Gürtel nicht mehr schwer zu werden kann. es ändert sich nur noch die streifenanzahl, und vielleicht wird irgendwann ein Absperrband daraus, oder wie auch immer die farbliche Kennzeichnung in der Kampfsportart aussieht.
+
+es ist insofern nicht korrekt als der Schwarzgurt einfach nur der erste Schwarzgurt ist. einen Schwarzgurt erreichen braucht etwa  fünf bis sieben Jahren in einer Kampfsportart (sage ich jetzt einfach mal so). der Weg, den du als Kampfsportler gehst, ist möglicherweise länger als nur diese sieben Jahre 
+
+wenn du dich mal im Verein umschaust, so wirst du darin Dinosaurier sehen, die die Kampfsportart vielleicht sogar 30 oder 40 Jahre ausüben. und auf diese Personen diese Vorbilder, machen weiterhin Prüfungen.
+
+es gibt bei den schwarzgurten weitere Unterteilungen. diese heißen bei japanischen Kampfsportarten beispielsweise "Dan". nach den farbkotten gibt es noch 10 weitere Gurte zu erringen . realistischerweise kommt man bis zum 4. oder 5. Dan, nur in Ausnahmefällen wird ein höherer Gürtel verliehen. 
+
+## die glücklichste Zeit
+
+es gibt ein doofes Phänomen, was göttelfarben betrifft. je mehr du trainierst, je höher du in den Gürtel Farben steigst desto mehr weißt du über die Kampfsportart und desto mehr eigene Fehler wirst du wahrnehmen.
+
+die schönste Zeit ist die Zeit in der Unterstufe, es Gelbgurt als orangegurt als Grüngurt. es werden kaum Ansprüche an eingestellt. die Lernkurve ist noch so hoch und steil, dass in jedem Training neues Wissen erworben wird. 
+
+**geschichte**: zu dieser Zeit war ich persönlich am glücklichsten . meine beste Prüfung war die braungutprüfung bei Claus, auf die ich noch heute stolz bin. alle anderen Prüfung danach waren eingedrückt. denn ich sage ich Fehler, die ich mache. diese Fehler habe ich früher auch gemacht, aber ich habe sie schlichtweg nicht gesehen. oh glücklich ist die Zeit der Unwissenheit
+
+## zweck der Prüfung
 
 
 
