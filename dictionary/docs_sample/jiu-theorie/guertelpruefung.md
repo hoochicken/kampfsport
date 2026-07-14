@@ -69,7 +69,9 @@ für erwachsene Schüler ist das schülersein auch sehr ungewöhnlich. vielleich
 
 eine Prüfung ist nicht nur eine Wissensabfrage, sondern auch eine Möglichkeit, sich als Schüler weiterzuentwickeln.
 
-in der sicheren Umgebung einer Prüfung kannst du lernen, mit dieser stressigen Situation umzugehen und das technischer Sicht wirst du sicherlich das ein oder andere ebenfalls dazu lernen.
+in der sicheren Umgebung einer Prüfung kannst du **als schüler** lernen, mit dieser stressigen Situation umzugehen und das technischer Sicht wirst du sicherlich das ein oder andere ebenfalls dazu lernen.
+
+du als Trainer könntest die Prüfung dazu als Gelegenheit nutzen, dem Prüfling etwas Unerwartetes abzuverlangen. wähle die Aufgabe so, dass der Prüfling sie bewältigen kann. so kann der Prüfling im Nachhinein sehr stolz auf sich sein.
 
 **geschichte**: bei jeder Prüfung von Claus hatte etwas Ungewöhnliches gemacht im Vorhinein der Prüfung habe ich jeden Gegenstand den ich irgendwie in die Hand genommen habe versucht als Waffe zu verwenden. warum: weil Claus einem gerne Dinge in die Hand drückt mit denen man sich verteidigen soll. ich habe Zeitschriften Gabeln Messer Bücher Skateboards, alle Gegenstände auf ihre selbstverteidigungsmöglichkeiten hin getestet. bei dieser Prüfung in Schloss ich Claus, etwas ganz Neues zu machen. er hatte einen Stock und wir mussten eigentlich nur über diesen Stock springen oder uns stocken. wir hatten nachher blaue Schienbeine, und wieder was gelernt: Claus schafft es jeden mal ein zu überraschen und Dinge abzufragen! 
 
@@ -142,6 +144,19 @@ es gibt ein doofes Phänomen, was göttelfarben betrifft. je mehr du trainierst,
 die schönste Zeit ist die Zeit in der Unterstufe, es Gelbgurt als orangegurt als Grüngurt. es werden kaum Ansprüche an eingestellt. die Lernkurve ist noch so hoch und steil, dass in jedem Training neues Wissen erworben wird. 
 
 **geschichte**: zu dieser Zeit war ich persönlich am glücklichsten . meine beste Prüfung war die braungutprüfung bei Claus, auf die ich noch heute stolz bin. alle anderen Prüfung danach waren eingedrückt. denn ich sage ich Fehler, die ich mache. diese Fehler habe ich früher auch gemacht, aber ich habe sie schlichtweg nicht gesehen. oh glücklich ist die Zeit der Unwissenheit
+
+## Prüfungsabschluss
+
+am Ende einer Prüfung erfolgt die Verleihung einer Urkunde und gegebenenfalls des Gürtels. 
+
+für dich als Trainer ist es jetzt Zeit, die Prüflinge zu loben und einzelne Aktionen der Prüflinge hervorzuheben. dies bedingt eventuell, dass du noch weißt was die Prüflinge gemacht haben. gerne mache dir Notizen deine Prüfungsunterlagen.
+
+so kannst du jeden Prüfling noch einmal in Erinnerung rufen, was er an einer bestimmten Stelle geleistet hat
+
+auch Kritik und Anregungen kannst du hier anbringen. hier kannst du den Fokus darauf legen, welche Bereiche des Kampfsports der Prüfling noch ein bisschen vertiefen sollte.
+
+übergang zum nächsten kapitel?
+
 
 
 
