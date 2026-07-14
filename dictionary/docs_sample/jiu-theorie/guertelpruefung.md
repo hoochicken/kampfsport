@@ -33,6 +33,18 @@ der Gürtel sagt also nicht zwingend etwas über das "Level" des trainees aus, d
 
 dieses Phänomen gibt es natürlich auch umgekehrt: es niederer Gurt kann wesentlich besser sein, als was sein Gurt aussagt. gerade bei Quereinsteigern, die aus einer anderen (Kampf)Sportart kommen, sieht man deutlich die bestehende sportliche Erfahrung.
 
+## zweck der gürtelprüfung
+
+jeder beteiligte Part einer Gürtelprüfung verfolgt einen bestimmten Zweck 
+
+der **Schüler** erhält die Gelegenheit, zu zeigen, was er gelernt hat. er kann seine schönsten Techniken präsentieren. danach erhält er als sichtbares Zeichen eine neue gurtfarbe.
+
+der **Trainer** oder meister kann begutachten, welche Fortschritte der Schüler gemacht hat in welchen Techniken er sich verbessert hat, wie die Bewegungsschule sicher wird. dies ist auch eine gute Rückmeldung darüber, wie effektiv sein Training war. und natürlich kann er stolz auf dem Prüfling sein
+
+der **verband** hat die Sicherheit, dass die Prüfungsordnung des Verbands gewagt bleibt und dass der Verband auch fort besteht, denn jeder Gürtel ist auch Kundenbindung.(dasselbe geht natürlich für den Meister.)
+
+nicht zuletzt wird durch die Abnahme von Gürtelprüfungen sichergestellt dass dieser Kampfsport sich eine gewisse **Tradition** bewahrt. die Prüfungsordnung ist eine Zusammenstellung von verschiedenen Techniken, die sehr typisch für die spezifische Kampfsportart sind. die Kampfsportart wird so in ihrer Form erhalten.
+
 ## gültigkeitsbereich eines gürtels
 
 eine erworbene Griff habe gilt in der Regel nur innerhalb der Kampfsportart, innerhalb deren er erworben wurde. ein Kickbox Schwarzgurt der hat den Schwarzgurt also nur in Kickboxen, nicht in Judo Aikido oder Thaiboxen. 
@@ -47,11 +59,7 @@ ich persönlich stehe dazu wie folgt: hat der Trainee den Gürtel rechtmäßig i
 
 in unserer Gruppe darf der Trainee sein Gürtelfarbe natürlich behalten. eine andere Handlung fände ich respektlos gegenüber dem Trainee, der jahrelang trainiert hat, und dessen Trainer, der diesen jahrelang begleitet. beispielsweise bleibt der grüne Gurt grün. der Trainee würde nächsten Prüfung zugelassen, wenn er das Niveau für den blaugurt hat. hat er einen guten Stand, so wird es schnell sein. ist der stand nicht so gut, so wird es einfach etwas länger dauern.
 
-manche Kampfsportarten sind näher aneinander, sodass ich dann eine Anerkennungsprüfung anbietet. wenn wir uns zuvor jedoch den Zweck einer Gürtelprüfung zu
-
-## zweck der gürtelprüfung
-
-
+manche Kampfsportarten sind näher aneinander, sodass ich dann eine Anerkennungsprüfung anbietet. 
 
 ## anerkennungsprüfung 
 
