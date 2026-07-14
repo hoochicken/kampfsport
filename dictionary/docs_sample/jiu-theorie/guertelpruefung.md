@@ -33,6 +33,22 @@ der Gürtel sagt also nicht zwingend etwas über das "Level" des trainees aus, d
 
 dieses Phänomen gibt es natürlich auch umgekehrt: es niederer Gurt kann wesentlich besser sein, als was sein Gurt aussagt. gerade bei Quereinsteigern, die aus einer anderen (Kampf)Sportart kommen, sieht man deutlich die bestehende sportliche Erfahrung.
 
+## gültigkeitsbereich eines gürtels
+
+eine erworbene Griff habe gilt in der Regel nur innerhalb der Kampfsportart, innerhalb deren er erworben wurde. ein Kickbox Schwarzgurt der hat den Schwarzgurt also nur in Kickboxen, nicht in Judo Aikido oder Thaiboxen. 
+
+neben den unterschiedlichen Kampfsportarten kann es auch sein dass der Verband ebenfalls ein Unterschied macht. so kann es sein, dass man zwar ein jiu-jitsu-Schwarzgurt hat, aber in einem anderen verein/verband dazu genötigt wird, ein Weißgurt zu tragen.
+
+**beispiel**: ein Freund von mir ging in Großbritannien trainieren. er hat seit Jahren in Schwarzgurt in Jujitsu . als er auf der Matte stand wurde in klargemacht, dass er gefälligst einen weißen Gurt zu tragen hat
+
+es bleibt dir überlassen, wie du mit der Gürtelfarbe eines anderen Trainee umgehst. 
+
+ich persönlich stehe dazu wie folgt: hat der Trainee den Gürtel rechtmäßig in einer Prüfung erworben (wovon ich ausgehe), dann hat er irgendwann mal eine Urkunde bekommen . und auf dieser Urkunde steht: "der Prüfling hat das Recht und die Pflicht, den xyz-Gürtel zu tragen."
+
+in unserer Gruppe darf der Trainee sein Gürtelfarbe natürlich behalten. eine andere Handlung fände ich respektlos gegenüber dem Trainee, der jahrelang trainiert hat, und dessen Trainer, der diesen jahrelang begleitet. beispielsweise bleibt der grüne Gurt grün. der Trainee würde nächsten Prüfung zugelassen, wenn er das Niveau für den blaugurt hat. hat er einen guten Stand, so wird es schnell sein. ist der stand nicht so gut, so wird es einfach etwas länger dauern.
+
+manche Kampfsportarten sind näher aneinander, sodass ich dann eine Anerkennungsprüfung anbietet.
+
 ## anerkennungsprüfung 
 
 bisweilen kann es sinnvoll sein , eine Gürtel Farbe zu überspringen . wenn ein Training schon eine sehr gute Vorkenntnisse in einer anderen Kampfsportart hat bietet es sich manchmal an komme eine gürtelfarbe zum überspringen . 
@@ -41,7 +57,19 @@ besonders bei einem vereins- oder verbandswechsel bietet sich dies an . manchmal
 
 **Beispiel** : ich hatte bei einem Trainer bereits den braunen Gürtel erreicht . eine offizielle Auszeichnung in einem Verband hatte ich nicht . als ich dann in einen Verband eintrat habe ich eine sogenannte anerkennungsprüfung gemacht . das heißt der Verband hat mich auf braun nachgeprüft . in dieser **anerkennungsprüfung** wurden grob auch alle Techniken abgefragt die von gelb bis blau abzulegen sind und dann kam eben noch braun drauf . so konnte der Verband sicherstellen Komma dass ich auch wirklich das Niveau habe , was für braun gut verlangt ist.
 
-## 
+## gürtel überspringen
+
+ein Gürtel zu überspringen bedeutet, dass der Trainee eine Gürtelfarbe einfach so erhält. z.B weil der Trainer der Meinung ist, dass the training das Level erreicht hat oder aus irgendeinem anderen Grund. 
+
+ich persönlich bin kein Freund von Gürtel überspringen. ich habe dieses Phänomen kennengelernt in einem korrupten Verein. ein Schwarzgurt in Kung Fu hat aus dem Stand den braungurt in Karate bekommen. dies hat auch zu Unmut innerhalb des Vereins geführt. 
+
+in einem Verein, der mit diesem befreundet war, gab es Schwarzegurte, von denen keine aber eine Vater könnte. da die Schwarzgurte weiblich waren, gab es natürlich auch Anlass zu diversen Spekulationen.
+
+solltest du als Trainer jemals vor der Wahl stehen, ob du einem Trainee einen höheren Gürtel verleihst, so wäre doch bitte eine anerkennungsprüfung.
+
+**längere geschichte mit moral**: ein bekannte war schon bei mehreren Verein herausgeflogen . er hat es trotzdem geschafft sich zur schwarzgurtprüfung anzumelden. er hat einfach behauptet dass er den braungurt hätte. und aus irgendeinem Grund ist der Verband eingegangen. die schwarzgurtprüfung hat er bestanden. (und da er ein Talent war und fleißig, wahrscheinlich auch sehr gut.) es ist müßig sich zu überlegen ob er diesen Gürtel wirklich verdient hat. ich gebe hier folgendes zu bedenken. er hat nur zwei drei Jahre trainiert bist du der schwarzgurtprüfung. und aus absoluter Sicht hat er die Prüfung überstanden. aus relativer Sicht hat er den Schwarzgurt meines Erachtens nicht verdient. denn um  einem Schwarzgurt zu erreichen gehört auch ein Weg dazu. und der ist in der Regel über fünf bis sieben Jahre lang. stell dir vor, was für eine Prüfung abgelegt hätte, wenn er diesen Weg tatsächlich gegangen wäre! er wäre in vielen Bereichen doppelt so gut gewesen, hätte viel mehr Wissen aufgebaut! 
+
+er hat eine Abkürzung genommen aber die war nicht unbedingt gut für ihn. abgesehen davon dass dazu auch eine gehörige kriminelle Energie gehört. denn in diesem Moment begeht man einen Betrug.  kriminelle Energie? ist das nicht übertrieben? es ist ein Anzeichen dafür, dass der traine ein bisschen auf den falschen Fuß steht. der Trainee von dem ich spreche ist übrigens inzwischen im Gefängnis, denn die Kriminalität hörte nicht bei der erschleichung des schwarzen Gürtels auf.
 
 ## schwarzer gürtel = parnass der kampfkunst**
 
