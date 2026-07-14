@@ -57,10 +57,23 @@ eine Prüfung ist nicht nur eine Wissensabfrage und fähigkeitsbeweis. es ist au
 
 für erwachsene Schüler ist das schülersein auch sehr ungewöhnlich. vielleicht war man das letzte Mal eine Prüfung ausgesetzt, als man die Abschlussprüfung in der Schule gemacht hat und nun sitzt man wieder da mit einer ähnlichen herausfordernden Situation
 
+eine Prüfung ist nicht nur eine Wissensabfrage, sondern auch eine Möglichkeit, sich als Schüler weiterzuentwickeln.
+
+in der sicheren Umgebung einer Prüfung kannst du lernen, mit dieser stressigen Situation umzugehen und das technischer Sicht wirst du sicherlich das ein oder andere ebenfalls dazu lernen.
+
+**geschichte**: bei jeder Prüfung von Klaus hatte etwas Ungewöhnliches gemacht im Vorhinein der Prüfung habe ich jeden Gegenstand den ich irgendwie in die Hand genommen habe versucht als Waffe zu verwenden. warum: weil Klaus einem gerne Dinge in die Hand drückt mit denen man sich verteidigen soll. ich habe Zeitschriften Gabeln Messer Bücher Skateboards, alle Gegenstände auf ihre selbstverteidigungsmöglichkeiten hin getestet. bei dieser Prüfung in Schloss ich Claus, etwas ganz Neues zu machen. er hatte einen Stock und wir mussten eigentlich nur über diesen Stock springen oder uns stocken. wir hatten nachher blaue Schienbeine, und wieder was gelernt: Claus schafft es jeden mal ein zu überraschen und Dinge abzufragen! 
 
 ## Ausnahmesituation!
 
-eine Prüfung ist eine Ausnahmesituation. sei dir dessen bewusst, wenn du Trainer bist und eine Prüfung abnimmst
+eine Prüfung ist eine Ausnahmesituation. sei dir dessen bewusst, wenn du Trainer bist und eine Prüfung abnimmst. daher hier einige Hilfen
+
+* bei Beginn der Prüfung haben alle bestanden . (ein Versagen muss man sich mit vielen Fehlern erarbeiten;-) 
+* sei freundlich zu den Prüflingen
+* beruhige nervöse Prüflinge
+
+halte dir vor Augen, dass manche Prüflinge eine sehr schlechte Nacht hinter sich haben. sie sind nervös und angespannt.
+
+**geschichte**: auf dem Weg zur braunwirtprüfung traf ich eine Vereinskameradin, nennen wir sie Johanna. für sie stand die gelbgutprüfung an. also ein "kleiner" Gurt. ich fragte nur sonst blaue rein: "und, wie hasch gschlafen?" johanna antwortete: " ganz furchtbar, ich habe kein Auge zutan!" daraufhin traute ich mich zu sagen: bei mir war es genauso schlimm . ich konnte überhaupt nicht schlafen vielleicht zwei Stunden. wir haben die Prüfung trotzdem bestanden.
 
 ## gültigkeitsbereich eines gürtels
 
