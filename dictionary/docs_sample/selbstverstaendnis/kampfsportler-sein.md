@@ -2,7 +2,11 @@
 
 Als Kampfsportler trainierst du, weil du Freude daran hast und dich weiterentwickeln möchte. Lied verfolgst du ein Ziel: deine es, Techniken zu verbessern, den eigenen Körper kennenzulernen und mit jedem Training ein kleines Stück besser zu werden. (Wettkämpfe köööönnen da dazugehören, sind aber keine Voraussetzung.)
 
-Kampfsporttraining geht über eine rein körperliche Ebene hinaus. viele Aspekte werden durch Sport allgemein berührt. die folgende Auflistung ist nicht das abschließend zu verstehen noch trifft jeder Punkt auf jeden zu. vielmehr hat jeder sein eigenes Histogramm, dass seine Motivation betrifft.
+Kampfsporttraining geht über eine rein körperliche Ebene hinaus. viele Aspekte werden durch Sport allgemein berührt. die folgende Auflistung ist nicht das abschließend zu verstehen noch trifft jeder Punkt auf jeden zu. vielmehr hat jeder sein eigenes Histogramm.
+
+**psychologisch**: im Kampfsporttraining ist man ständig neuen psychologischen Herausforderungen entgegen gestellt. dies beginnt schon bei der Partnersuche wenn man noch keinen kennt. die anfängliche Unsicherheit verwandelt sich in der Regel schnell zu Sicherheit und Mut und Vertrauen
+
+ anfangshürde, dass man überhaupt den Mut aufbringt,
 
 **körperlich** betrachtet stellt jeder Sport eine Herausforderung für den Körper . (da das gilt selbst für das Schachspiel.) 
 
