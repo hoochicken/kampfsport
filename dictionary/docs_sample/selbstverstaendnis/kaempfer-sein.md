@@ -22,3 +22,7 @@ Sieg und Niederlage
 Verantwortung gegenüber dem Team
 Ein Kämpfer trainiert nicht mehr nur für sich, sondern für einen konkreten Termin.
 
+
+es gibt verschiedene philosophien
+
+Ein Wettkampf ist keine Schlägerei. Beide Kämpfer haben sich freiwillig darauf vorbereitet, akzeptieren dieselben Regeln und teilen dieselbe Leidenschaft. Nach dem Kampf bleibt der Respekt.
