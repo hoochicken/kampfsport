@@ -104,6 +104,17 @@ manchmal ist der Anlass klar erkennbar, das ist der Bündnis hervorgerufen hat (
 
 erwächst daraus eine sehr unglückliche Dynamik. für den Trainee bedeutet dies oft, dass ein groß seines Freundes teils plötzlich nicht mehr seine Freunde sind jemand, mit dem man gestern noch geschert hat, ist plötzlich unerreichbar. er schlägt sich (aus respektgründen zum Meister?) auf die Seite des Vereins. oft vereinsamen Menschen, die eine Trainingsgruppe verlassen mussten . das ist sehr schmerzhaft.
 
+betroffen: solltest du jemals von einem Rausschmiss einen verlassen müssen betroffen sein, für bleibe aufrecht. wenn sich diese "Freunde" abwenden, so ist es oft aus Unkenntnis der Situation und falsch verstanden Respekt. wenn möglich sie zu, dass du außerhalb des Trainings Freunde und Bekannte hast deswegen geht weiter Punkt es gibt viele nette Vereine.
+
+Hinweis: ein Rauswurf könnte auch manchmal berechtigt sein. ziehe auch diese Möglichkeit in Erwägung
+
+Zeuge solltest du Zeuge von so einer Aktion sein, so bedenke immer, dass es hier zwei Seiten gibt. halte die Kommunikation aufrecht.
+
+wenn du selbst auf den weggehenden etwas sauer sein solltest, so warte einfach ein zwei Jahre, das kann vergehen. und vielleicht seid ihr in drei Jahren wieder dick befreundet. oft ist es nur ein vorübergehender Konflikt.
+
+Fazit: am Ende des Tages sind wir alle Menschen. wir leben wir sind jung, werden älter, und dann ganz alt. welche gürtelfrage bitte trägst, welche Rolle du auch einnimmst, verhalte Dich zu respektvoll du bist Punkt wir Gegner anderen mit Freundlichkeit Verständnis, und Respekt. 
+
+du bist und bleibst immer ein Mensch.
 
 
 
