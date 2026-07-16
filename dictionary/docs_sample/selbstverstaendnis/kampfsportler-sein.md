@@ -10,7 +10,11 @@ dennoch verlässt die Unsicherheit ein nie(habe ich die Technik gut gemacht, hab
 
 viele Techniken verlangen es, dass man auf einen Körperkontakt geht. dies ist gerade für Frauen).
 
-in jeder Sportart kann man sich verletzen. dies gilt besonders für Kampfsportarten Punkt denn hier hat man das bizarre Vorgabe dass man den anderen Schwerverletzen könnte, aber niemals verletzen darf. das ist natürlich eine obskure Situation.
+in jeder Sportart kann man sich verletzen. dies gilt besonders für Kampfsportarten . denn hier hat man das bizarre Vorgabe dass man den anderen Schwerverletzen könnte, aber niemals verletzen darf. das ist natürlich eine obskure Situation.
+
+manche Techniken - vor allem in den traditionellen Kampfsportarten - sind sogar für den ausführenden sehr gefährlich. man denke hier an selbstfalltechniken (die z. t. von einer Höhe von 2 m durchgeführt werden) auf der Schulter des Partners sitzend oder diverse tae kwon do kicks in drei Metern Höhe.
+
+solche Techniken sind nicht nur eine psychologische Herausforderung die Mut erfordern , sondern sind auch in folgenden Belangen anstrengend:
 
 **körperlich** betrachtet stellt jeder Sport eine Herausforderung für den Körper . (da das gilt selbst für das Schachspiel.) 
 
@@ -38,9 +42,6 @@ ja, im Kampfsport achtet man aufeinander. denn man hat folgendes:
 
 jede Sportgruppe bietet einen geschütztenrahmen: mit bekannten Gesichtern und Bekannten Ritualen , Vor dem Trainingspartner, dem Trainer, dem Gegner und dir selbst
 
-XXXXXMut: Sich neuen Herausforderungen stellen, auch wenn sie Angst machen.
-Fairness: Gewinnen und verlieren können, ohne den Respekt voreinander zu verlieren.
-
 Mit der Zeit wirst du merken, dass diese Eigenschaften nicht nur auf der Matte wachsen. Sie begleiten dich in Schule, Beruf, Familie und allen anderen Bereichen des Lebens.
 Ein Kampfsportler trainiert deshalb nicht nur seinen Körper, sondern entwickelt auch seine Persönlichkeit. entwickelt Kraft, Beweglichkeit und Ausdauer, verbessert seine Koordination und wächst auch als Mensch. 
 
@@ -48,6 +49,4 @@ Das Training endet nicht nach einer Saison. Kampfsport ist ein langfristiger Weg
 Erfolg misst sich nicht an Medaillen, sondern daran, dass man heute besser ist als gestern.
 Merkspruch:
 Der Kampfsportler trainiert, um besser zu werden.
-
-
 
