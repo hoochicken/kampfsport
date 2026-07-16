@@ -6,7 +6,11 @@ Kampfsporttraining geht über eine rein körperliche Ebene hinaus. viele Aspekte
 
 **psychologisch**: im Kampfsporttraining ist man ständig neuen psychologischen Herausforderungen entgegen gestellt. dies beginnt schon bei der Partnersuche wenn man noch keinen kennt. die anfängliche Unsicherheit verwandelt sich in der Regel schnell zu Sicherheit und Mut und Vertrauen
 
- anfangshürde, dass man überhaupt den Mut aufbringt,
+dennoch verlässt die Unsicherheit ein nie(habe ich die Technik gut gemacht, habe ich mich nicht lächerlich gemacht etc also und dennoch kommt man zurück und stellt sich jedes Mal diese Herausforderung.
+
+viele Techniken verlangen es, dass man auf einen Körperkontakt geht. dies ist gerade für Frauen).
+
+in jeder Sportart kann man sich verletzen. dies gilt besonders für Kampfsportarten Punkt denn hier hat man das bizarre Vorgabe dass man den anderen Schwerverletzen könnte, aber niemals verletzen darf. das ist natürlich eine obskure Situation.
 
 **körperlich** betrachtet stellt jeder Sport eine Herausforderung für den Körper . (da das gilt selbst für das Schachspiel.) 
 
