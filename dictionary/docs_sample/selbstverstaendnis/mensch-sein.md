@@ -92,6 +92,18 @@ Denn am Ende trainieren wir nicht nur Techniken.
 
 Wir trainieren auch den Umgang miteinander.
 
-## Merkspruch
+## nicht mehr in der gruppe - problematik
 
-„Auf der Matte stehen keine Helden. Auf der Matte stehen Menschen.“
+dieser Abschnitt ist ein trauriger abschnitt. denn es geht um Abschied nehmen Punkt Abschied nehmen ist immer hart. es gibt zwei Arten Komma wie du einen Verein verlassen kannst. in jedem Fall ist es eine traurige Angelegenheit, wenn dieser Schritt von Nöten sein sollte. 
+
+im guten verlassen: deine Lebensumstände haben sich geändert, ein Umzug. oder dieser Kampfsport oder die Gruppe ist einfach nicht mehr das Richtige für dich. das ist ein einfacher Fall: einfach zum Trainer gehen bzw der Gruppe bescheid sagen. auch nach deinem Wecker werden die Freunde erhalten bleiben. sie sind nicht in einem Gewissenskonflikt.
+
+im Bösen verlassen müssen das ist eine ganz andere Nummer. hier spielen verschiedene Parameter mit rein. wurde dem Training gekündigt, hat er selbst gekündigt. welche Gründe liegen für das verlassen vor? welche Auseinandersetzung hat dazu geführt? 
+
+manchmal ist der Anlass klar erkennbar, das ist der Bündnis hervorgerufen hat (Unzufriedenheit mit dem Training, respektloses Verhalten , sexuelle Belästigung etc.). manchmal liegt der Anlass im Verborgenen, wird totgeschwiegen
+
+erwächst daraus eine sehr unglückliche Dynamik. für den Trainee bedeutet dies oft, dass ein groß seines Freundes teils plötzlich nicht mehr seine Freunde sind jemand, mit dem man gestern noch geschert hat, ist plötzlich unerreichbar. er schlägt sich (aus respektgründen zum Meister?) auf die Seite des Vereins. oft vereinsamen Menschen, die eine Trainingsgruppe verlassen mussten . das ist sehr schmerzhaft.
+
+
+
+
