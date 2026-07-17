@@ -50,8 +50,8 @@ aich bei **langsamen** Üben MUSS eine Wirkung ersichtlich sein. Hierzu:
     * Schag in Bauch => Partner knickt ein, als wäre er schwer getroffen
     * Blenden => Partner wartet geduldig auf weitere Aktionen
 
-## schlag und stoss
+## schlag / kick und stoss
 
 eine atemitechnik kann als Schlag, als Wirkungstreffer ausgeführt werden. dabei wird die Trefferfläche möglichst klein gehalten Ziel ist es, bei dem Gegner Schmerz und scharf zu erzeugen 
 
-alternativ kann eine atemidechnik als Stoß ausgeführt werden. dann wird eine möglichst große Trefferfläche gewählt, die die Kraft gut verteilt. so kann man den Gegner von sich wegstoßen, oder sich vom Gegner abstoßen
+alternativ kann eine atemi-technik als Stoß ausgeführt werden. dann wird eine möglichst große Trefferfläche gewählt, die die Kraft gut verteilt. so kann man den Gegner von sich wegstoßen, oder sich vom Gegner abstoßen
