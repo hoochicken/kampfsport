@@ -83,6 +83,13 @@ welches Ziel sich genau für dich anbietet ist massiv von der Größendifferenz 
 
 **kneekicks**
 
+bei niekeks, Kniestößen arbeiten nicht nur die Beine . der gesamte Körper ist an der Ausführung dieser Techniken beteiligt. insbesondere ist der Zug der Arme und die angespannten Bauchmuskeln zu erwähnen. mit denen zwingst du den Gegner in deinen niedrig hinein  . dadurch entfaltet der kneekick größere Wirkung. 
+
+folgende Kniestöße bieten sich an: 
+
+* kreisförmig, also Mawashi hoza Geri 
+* gerade nach vorne
+
 
 
 ## distanzierung
