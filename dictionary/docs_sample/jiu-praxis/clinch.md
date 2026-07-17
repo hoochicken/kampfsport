@@ -149,6 +149,10 @@ der Partner ist auf enger Distanz. dadurch bieten sich folgende Ziele an:
 * Oberschenkel Seite auf den Muskelansatz 
 * Kopf (nur weil wir gesprungener Variante, oder wenn du den Gegner entsprechend nach unten gezogen hast)
 
+**verteidigung**: wie oben ausgeführt ist ein Block mit den Armen schwer machbar. in der Regel werden die Arme kontrolliert. die Verteidigung basiert daher auf **Bewegungsformen**. insbesondere dann wenn er gerade zu einem kneekick ansetzt. durch eine Bewegung wie **Drehung**, **Schub** oder **Zug** erreichst du zwei Dinge: (1) du bewegst dich aus dem Fokus des Angreifers heraus: (2) du versetzt den Angreifer und verhinderst damit den optimalen Angriff. 
+
+**Bein greifen**: wenn du zur Seite oder mit einer Drehung ausweist, und greife das Bein des Partners von außen . so hast du eine größere Kontrolle über ihn. du kannst dann einen Wurf ausführen (grosse innensichel), oder das Bein an dir vorbeiführen. beides gereicht dir bei einer Fortführung zum Vorteil. wenn du das Bein weiterführst, ergeben sich neue anderen angriffswinkel für atemi-techniken
+
 **übung**
 
 * 50-50: Partner passiv, der andere Partner trainiert verschiedene kniestoss-Varianten
