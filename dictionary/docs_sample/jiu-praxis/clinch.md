@@ -45,7 +45,9 @@ sobaldo eine Hand auf der Innenbahn hast mit Griff im Nacken kannst du den ander
 dabei helfen folgende Bestandteile:
 
 * übersetzSchritt zurück: schritt mit dem vorderen Bein zurück, dabei Zug mit der Hand am Nacken; dadurch dadurch bewegt man den Partner auf sich zu
-* Drehung: Drehung auf dem vorderen Bein, hinteres Bein schwingt um 90 Grad nach hinten 
+* Drehung: Drehung auf dem hinteren  Bein, vorderes Bein schwingt um 90 Grad nach hinten 
+
+davon gibt es unzählige Varianten Punkt wichtig ist dass du den Partner bewegst, denn:
 
 ergebnus: durch die Fremden Manipulation des Gegners , wird dieserdesorientiert. er muss ein ausgleichsschritt machen. er ist also mit nicht hinfallen beschäftigt. dies eröffnet dir Angriffsmöglichkeiten
 
@@ -59,6 +61,29 @@ oben angekündigt sind die zu verwendenden die Techniken Techniken der kurzen Di
 * kneekick
 
 welche Techniken du anwenden kannst ist von der Stellung abhängig
+
+**ellenbogen**
+
+grundsätzlich hast Du unter anderem folgende ellenbogentechniken zur Verfügung
+
+* kreisförmig, wollte mawashi-empi also wie ein Haken nur mit dem Ellenbogen
+* von unten nach oben 
+* von oben nach unten 
+* seitlich
+
+und den Ellenbogenschlag auszuführen, lässt du den Griff für eine kurze Zeit los. dann bewegst du den Ellenbogen schnellstmöglich ins Ziel danach kehrst du wieder zu deinem Griff zurück Punkt als Ziele eignen sich
+
+* Kinnlade 
+* Kinn von unten 
+* Brustbein 
+* Solarplexus 
+* kurze Rippe
+
+welches Ziel sich genau für dich anbietet ist massiv von der Größendifferenz der Partner abhängig. ein kleinerer Partner wird er Bauch und Brustbereich des größeren Partners angreifen. dagegen wird der größere Partner eher den Kopfbereich angreifen.
+
+**kneekicks**
+
+
 
 ## distanzierung
 
