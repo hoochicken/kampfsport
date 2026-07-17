@@ -43,9 +43,11 @@ sobaldo eine Hand auf der Innenbahn hast mit Griff im Nacken kannst du den ander
 dabei helfen folgende Bestandteile:
 
 * übersetzSchritt zurück: schritt mit dem vorderen Bein zurück, dabei Zug mit der Hand am Nacken; dadurch dadurch bewegt man den Partner auf sich zu
-* Drehung: Drehung auf dem vorderen Bein, hinteres Bein schwingt um 90 Grad nach hinten Strich. der Gegner wird desorientiert, er muss ein ausgleichsschritt machen, er ist also mit nicht hinfallen beschäftigt. dies eröffnet dir Angriffsmöglichkeiten
+* Drehung: Drehung auf dem vorderen Bein, hinteres Bein schwingt um 90 Grad nach hinten 
 
-anders als bei der "normalen" Bewegungslehre im Stand mit artemitechniken sind hier übersetzt Schritte an der Tagesordnung. denn dadurch arbeitest du mit der Kraft deines Körpergewichts
+ergebnus: durch die Fremden Manipulation des Gegners , wird dieserdesorientiert. er muss ein ausgleichsschritt machen. er ist also mit nicht hinfallen beschäftigt. dies eröffnet dir Angriffsmöglichkeiten
+
+info: anders als bei der "normalen" Bewegungslehre im Stand mit atemi-techniken sind hier übersetzt Schritte an der Tagesordnung. denn dadurch arbeitest du mit der Kraft deines Körpergewichts
 
 ## atemi-techniken 
 
