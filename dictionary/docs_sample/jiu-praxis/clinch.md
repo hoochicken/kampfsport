@@ -34,6 +34,8 @@ gepi mal Daumenregel: man greift wo das Bein vorne ist, bzw die greifende Hand u
 * den anderen hin und her bewegen und dessen stand manipulieren
 * atemi-techniken effektiver ausführen
 
+wenn ein Partner auf der Innenbahn ist, so befindet sich der andere Partner zwangsläufig auf der **Außenbahn**. das ist eine unvorteilhaftere Stellung. aber auch mit dieser lässt sich umgehen
+
 Mini Detail: solltest Du ohne Handschuhe trainieren, achte unbedingt darauf dass der Daumen an die Hand angelegt ist. andernfalls droht Verletzungsgefahr des eigenen Auges durch den eigenen Daumen
 
 ## Bewegungsformen 
@@ -51,7 +53,12 @@ info: anders als bei der "normalen" Bewegungslehre im Stand mit atemi-techniken 
 
 ## atemi-techniken 
 
-XXXXX
+oben angekündigt sind die zu verwendenden die Techniken Techniken der kurzen Distanz also:
+
+* ellenbogen
+* kneekick
+
+welche Techniken du anwenden kannst ist von der Stellung abhängig
 
 ## distanzierung
 
