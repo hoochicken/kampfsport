@@ -6,6 +6,12 @@ zeichnet man eine hautenge Auseinandersetzung im Stand. diese ist verbunden mit 
 
 XXXXX
 
+## Kampfstellungen
+
+
+
+50-50
+
 ## Bewegungsformen 
 
 XXXXX
