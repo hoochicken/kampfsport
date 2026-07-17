@@ -1,4 +1,4 @@
-## Drinnen sein - draussen sein
+# Drinnen sein - draussen sein
 
 ## nicht mehr in der gruppe - eine tiefe problematik
 
