@@ -6,9 +6,9 @@ die unten ausgeführten Techniken stammen aus dem Thaiboxen. dort trägt man gro
 
 ## distanzüberwindung 
 
-XXXXX
+wo man den Gegner heranzukommen, gilt es erst einmal die Distanz zu überwinden Punkt in der Regel steht man im Stand ja in einer Entfernung, in der man sich nicht treffen kann. und die Distanz zu überwinden eignet sich eine artemikomination, die auf einer nahen Distanz endet wie Jab-Punch-Lowkick oder eine darauf zugeschnittene Finte.
 
-## Kampfstellungen
+## Griffe und Kampfstellungen
 
 
 
