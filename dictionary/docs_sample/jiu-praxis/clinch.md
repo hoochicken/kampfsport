@@ -25,6 +25,8 @@ die Standard Position ist die 50-50 Position, die wie folgt aussieht
 
 da beide Partner sich in gleicher Weise kontrollieren und damit ein macht und kraftausgleich herrscht, bezeichnet man diese Stellung als fifty fifty denn die Kraftverteilung liegt jeweils zu 50% bei einem der Partner . es herrscht Gleichstand
 
+gepi mal Daumenregel: man greift wo das Bein vorne ist, bzw die greifende Hand und der vordere Fuß befinden sich auf einer Seite.
+
 **seitenwechsel, griffspiel**: nun kann ein Wechsel erfolgen, so dass dann der linke Fuß vorne steht und die linke Hand am Nacken ist, entsprechend die rechte Hand am Trizeps des Partners die fifty fifty Position kann also immer wieder verlagert werden von links auf rechts und zurück. warum?, weil die die **Innenbahn vorteilhafter** ist. werde ihnen waren kontrolliert hat **bessere Angriffsmöglichkeiten**.
 
 **innenbahn**: bei der innenbahnstellung hast du beide Hände hinter dem Nacken deines Partners. dadurch hast du volle Kontrolle über die Distanz die zwischen euch beiden herrscht. dadurch kannst du 
@@ -32,9 +34,18 @@ da beide Partner sich in gleicher Weise kontrollieren und damit ein macht und kr
 * den anderen hin und her bewegen und dessen stand manipulieren
 * atemi-techniken effektiver ausführen
 
+Mini Detail: solltest Du ohne Handschuhe trainieren, achte unbedingt darauf dass der Daumen an die Hand angelegt ist. andernfalls droht Verletzungsgefahr des eigenen Auges durch den eigenen Daumen
+
 ## Bewegungsformen 
 
-XXXXX
+sobaldo eine Hand auf der Innenbahn hast mit Griff im Nacken kannst du den anderen auch leicht bewegen und so dessen Stellung manipulieren.
+
+dabei helfen folgende Bestandteile:
+
+* übersetzSchritt zurück: schritt mit dem vorderen Bein zurück, dabei Zug mit der Hand am Nacken; dadurch dadurch bewegt man den Partner auf sich zu
+* Drehung: Drehung auf dem vorderen Bein, hinteres Bein schwingt um 90 Grad nach hinten Strich. der Gegner wird desorientiert, er muss ein ausgleichsschritt machen, er ist also mit nicht hinfallen beschäftigt. dies eröffnet dir Angriffsmöglichkeiten
+
+anders als bei der "normalen" Bewegungslehre im Stand mit artemitechniken sind hier übersetzt Schritte an der Tagesordnung. denn dadurch arbeitest du mit der Kraft deines Körpergewichts
 
 ## atemi-techniken 
 
