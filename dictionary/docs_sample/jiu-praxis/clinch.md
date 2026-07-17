@@ -4,6 +4,18 @@ zeichnet man eine hautenge Auseinandersetzung im Stand. diese ist verbunden mit 
 
 die unten ausgeführten Techniken stammen aus dem Thaiboxen. dort trägt man große Handschuhe, Boxhandschuhe . Ein Greifen zwischen Fingern und Daumen ist nicht möglich. daher ist es ja ausreichend einzuhaken
 
+## schutzausrüstung
+
+im clinch werden Ellenbögen und Knie eingesetzt. an diesem Körper stellen ist die Haut sehr dünn und die Knochen sind daher kaum gedämmt. Frage daher folgende Schutzausrüstung
+
+* Zahnschutz 
+* ellenbogenschoner 
+* Knieschoner
+
+auch wenn du nur ganz entspannt macht und ganz ruhig: ohne Zahnschutz geht es nicht. es geht so schnell, dass bei einer Drehung unbeabsichtigt dicht der Ellenbogen irgendwo landet, wo er nicht hin soll. sind die Zähne betroffen, hat man zum Arzt Schmerzen auch noch eine große Rechnung zu bezahlen. lass es sein ! achte auf dich, acht auf deinen Partner!
+
+das Training läuft nicht weg, nächste Woche ist auch noch ein Tag. bis dahin habt ihr euch die Schutzausrüstung besorgt.
+
 ## distanzüberwindung 
 
 wo man den Gegner heranzukommen, gilt es erst einmal die Distanz zu überwinden Punkt in der Regel steht man im Stand ja in einer Entfernung, in der man sich nicht treffen kann. und die Distanz zu überwinden eignet sich eine artemikomination, die auf einer nahen Distanz endet, zum beispiel:
@@ -75,18 +87,6 @@ info: anders als bei der "normalen" Bewegungslehre im Stand mit atemi-techniken 
     * drehen
 * spiel: beide Partner ein fifty fifty,  nur ziehen und schieben mit dem Oberkörper ist erlaubt. die Füße bleiben genau an der Stelle an der sie sind. wer einen ausgleichsschritt machen muss und das Bein anhebt, hat ein Punkt verloren
 
-## schutzausrpstung
-
-im Grinch werden Ellenbögen und Knie eingesetzt. an diesem Körper stellen ist die Haut sehr dünn und die Knochen sind daher kaum gedämmt. Frage daher folgende Schutzausrüstung
-
-* Zahnschutz 
-* ellenbogenschoner 
-* Knieschoner
-
-auch wenn du nur ganz entspannt macht und ganz ruhig: ohne Zahnschutz geht es nicht. es geht so schnell, dass bei einer Drehung unbeabsichtigt dicht der Ellenbogen irgendwo landet, wo er nicht hin soll. sind die Zähne betroffen, hat man zum Arzt Schmerzen auch noch eine große Rechnung zu bezahlen. lass es sein ! achte auf dich, acht auf deinen Partner!
-
-das Training läuft nicht weg, nächste Woche ist auch noch ein Tag. bis dahin habt ihr euch die Schutzausrüstung besorgt
-
 ## atemi-techniken 
 
 oben angekündigt sind die zu verwendenden die Techniken Techniken der kurzen Distanz also:
@@ -148,11 +148,22 @@ der Partner ist auf enger Distanz. dadurch bieten sich folgende Ziele an:
 
 **übung**
 
-XXXXX
+* 50-50: Partner passiv, der andere Partner trainiert verschiedene kniestoss-Varianten
+* 50-50: Partner passiv, der andere beweg den Partner durch zug, schub  oder Drehung , dann führt er  verschiedene Kniestöße anpassen aus,  geh zurück in die fifty-fifty
+* 50-50, erarbeite dir die Innenbahn, setze kneekicks
+* abwehrÜbung: startet in 50-50, der Partner setzt ellenbogenschläge an, du bewegst dich und den Partner, um aus dem Angriff herauszukommen
+
+denke daran, dass du Kniestöße auch zu den Beinen des Partners setzen kannst.
 
 ## distanzierung
 
-XXXXX
+möglicherweise möchtest du dich aus dem blinch wieder distanzieren. entweder weil dein Angriff zu Ende ist, oder weil du dich aus diesem Angriff entfernen möchtest so Verteidigung. dies kannst du welchen durch: 
+
+* wegstoßen des anderen 
+* ruckartiges losreißen vom anderen
+* eine Kombination beider Bewegungen
+
+das wegstoßen kann durchaus
 
 **übung**
 
