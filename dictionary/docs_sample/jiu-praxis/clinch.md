@@ -48,12 +48,9 @@ Mini Detail: solltest Du ohne Handschuhe trainieren, achte unbedingt darauf dass
 
 **übungen**
 
-* in 50-50 auf rechts starten, ich gegenseitig einfach nur bewegen, also 
-    * schieben 
-    * ziehen 
-    * drehen
-* spiel: beide Partner ein fifty fifty,  nur ziehen und schieben mit dem Oberkörper ist erlaubt. die Füße bleiben genau an der Stelle an der sie sind. wer einen ausgleichsschritt machen muss und das Bein anhebt, hat ein Punkt verloren
-* fifty-fifty: immer wieder Griffwechsel mit dem Ziel, mit beiden Armen auf die Innenbahn 
+* ein Partner steht in tankstellung, verhält sich passiv Strich. der andere arbeitet an verschiedenen Griffen mama darf diese spielerisch einfach holen 
+* fifty-fifty: immer wieder **Griffwechsel** auf die andere Seite, das ist eher ein kooperatives Spiel, denn an sich wehren
+* fifty-fifty: immer wieder Griffwechsel mit dem Ziel, mit beiden Armen **auf die Innenbahn**, ich aus kompetitiv, das heißt man darf sich wehren
 
 ## Bewegungsformen 
 
@@ -72,7 +69,11 @@ info: anders als bei der "normalen" Bewegungslehre im Stand mit atemi-techniken 
 
 **übung**
 
-XXXXX
+* in 50-50 auf rechts starten, ich gegenseitig einfach nur bewegen, also 
+    * schieben 
+    * ziehen 
+    * drehen
+* spiel: beide Partner ein fifty fifty,  nur ziehen und schieben mit dem Oberkörper ist erlaubt. die Füße bleiben genau an der Stelle an der sie sind. wer einen ausgleichsschritt machen muss und das Bein anhebt, hat ein Punkt verloren
 
 ## atemi-techniken 
 
@@ -92,7 +93,11 @@ grundsätzlich hast Du unter anderem folgende ellenbogentechniken zur Verfügung
 * von oben nach unten 
 * seitlich
 
-und den Ellenbogenschlag auszuführen, lässt du den Griff für eine kurze Zeit los. dann bewegst du den Ellenbogen schnellstmöglich ins Ziel danach kehrst du wieder zu deinem Griff zurück Punkt als Ziele eignen sich
+und den Ellenbogenschlag auszuführen, lässt du den Griff für eine kurze Zeit los. dann bewegst du den Ellenbogen schnellstmöglich ins Ziel danach kehrst du wieder zu deinem Griff zurück . 
+
+das hat auch den Vorteil, dass dem angegriffenen die Abwehr erschwert wird. den Ellenbogenschlag müsste er mit dem Arm abwehren. dieser wird aber kontrolliert. die Kontrolle wird nur für eine halbe Sekunde verlassen, in der Ellenbogenschlag ausgeführt wird .
+
+als **Ziele** eignen sich
 
 * Kinnlade 
 * Kinn von unten 
@@ -101,6 +106,8 @@ und den Ellenbogenschlag auszuführen, lässt du den Griff für eine kurze Zeit 
 * kurze Rippe
 
 welches Ziel sich genau für dich anbietet ist massiv von der Größendifferenz der Partner abhängig. ein kleinerer Partner wird er Bauch und Brustbereich des größeren Partners angreifen. dagegen wird der größere Partner eher den Kopfbereich angreifen.
+
+**verteidigung**: wie oben ausgeführt ist ein Block mit den Armen kaum machbar. in der Regel werden die Arme kontrolliert und nur kurz für den Ellenbogenschlag losgelassen. die Verteidigung passiert daher auf Bewegungsformen. insbesondere dann wenn er gerade zu einem Ellenbogenschlag ansetzt. durch eine Bewegung wie **Drehung**, **Schub** oder **Zug** erreichst du zwei Dinge: (1) du bewegst dich aus dem Fokus des Angreifers heraus: (2) du versetzt den Angreifer und verhinderst damit optimal Angriff
 
 **übung**
 
