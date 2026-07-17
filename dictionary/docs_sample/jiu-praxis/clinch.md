@@ -54,7 +54,9 @@ gepi mal Daumenregel: man greift wo das Bein vorne ist, bzw die greifende Hand u
 * den anderen hin und her bewegen und dessen stand manipulieren
 * atemi-techniken effektiver ausführen
 
-wenn ein Partner auf der Innenbahn ist, so befindet sich der andere Partner zwangsläufig auf der **Außenbahn**. das ist eine unvorteilhaftere Stellung. aber auch mit dieser lässt sich umgehen
+wenn ein Partner auf der Innenbahn ist, so befindet sich der andere Partner zwangsläufig auf der **Außenbahn**. das ist eine unvorteilhaftere Stellung. aber auch mit dieser lässt sich umgehen. 
+
+**verteidung gegen innenbahn**: der Partner hat sich deine Innenbahn mit beiden Armen geholt. bringe nun von außen deine Arme über die die Arme des Partners und halte ihm beide Fäuste ins Gesicht. damit kannst du dich auch von ihm wegstoßen.
 
 Mini Detail: solltest Du ohne Handschuhe trainieren, achte unbedingt darauf dass der Daumen an die Hand angelegt ist. andernfalls droht Verletzungsgefahr des eigenen Auges durch den eigenen Daumen
 
@@ -63,6 +65,7 @@ Mini Detail: solltest Du ohne Handschuhe trainieren, achte unbedingt darauf dass
 * ein Partner steht in tankstellung, verhält sich passiv Strich. der andere arbeitet an verschiedenen Griffen mama darf diese spielerisch einfach holen 
 * fifty-fifty: immer wieder **Griffwechsel** auf die andere Seite, das ist eher ein kooperatives Spiel, denn an sich wehren
 * fifty-fifty: immer wieder Griffwechsel mit dem Ziel, mit beiden Armen **auf die Innenbahn**, ich aus kompetitiv, das heißt man darf sich wehren
+* fifty fifty eine erarbeitet sich die Innenbahn, der andere verteidigt sich gegen die Innenbahn durchwegstoßen . danach nehmt ihr wieder die fifty fifty ein
 
 ## Bewegungsformen 
 
@@ -75,7 +78,7 @@ dabei helfen folgende Bestandteile:
 
 davon gibt es unzählige Varianten . wichtig ist dass du den Partner bewegst, denn:
 
-ergebnus: durch die Fremden Manipulation des Gegners , wird dieserdesorientiert. er muss ein ausgleichsschritt machen. er ist also mit nicht hinfallen beschäftigt. dies eröffnet dir Angriffsmöglichkeiten
+ergebnis: durch die Fremden Manipulation des Gegners , wird dieserdesorientiert. er muss ein ausgleichsschritt machen. er ist also mit nicht hinfallen beschäftigt. dies eröffnet dir Angriffsmöglichkeiten
 
 info: anders als bei der "normalen" Bewegungslehre im Stand mit atemi-techniken sind hier übersetzt Schritte an der Tagesordnung. denn dadurch arbeitest du mit der Kraft deines Körpergewichts
 
@@ -163,8 +166,28 @@ möglicherweise möchtest du dich aus dem blinch wieder distanzieren. entweder w
 * ruckartiges losreißen vom anderen
 * eine Kombination beider Bewegungen
 
-das wegstoßen kann durchaus
+da Vollständigkeit halber wird hier erneut auf die **verteidung gegen innenbahn** eingegangen: der Partner hat sich deine Innenbahn mit beiden Armen geholt. bringe nun von außen deine Arme über die die Arme des Partners und halte ihm beide Fäuste ins Gesicht. damit kannst du dich auch von ihm wegstoßen.
 
 **übung**
 
-XXXXX
+* fifty fifty der Partner hält dich statisch, beweg dich ; du entziehst dich seinem Angriff durch Bewegungsformen und schub
+* fifty fifty der Partner ist aktiv, bewegt dich ; du entziehst dich seinem Angriff durch 
+    * Bewegungsformen 
+    * schub
+    * zug = sich losreissen
+* fifty fifty der Partner ist aktiv, beweg dich Strich. du entziehst dich seinem Angriff durch Bewegungsformen und schub
+
+## kombinationsübungen
+
+stelle dir Kombinationen zusammen, die den ganzen Komplex von distanzüberwindung Bewegungsform Artemis und Befreiung enthalten. trainiere die als methodische Übungsreihe. hier ein verdeutlichendes Beispiel:
+
+* Kombination: 
+    * finte; 
+    * Haken mit links mit Bewegung nach links; 
+    * 50-50; 
+    * partner bewegen; 
+    * 1x Kneekick, 1x ellenbogenschlag; 
+    * lösen durch wegschieben
+* methodische Übungsreihe: 30 Sekunden, starte mit einer Technik Strich. nach 30 Sekunden nimmst du die zweite Technik mit hinzu, nach weiteren 30 Sekunden nimmst du die dritte Technik mit hinzu Punkt so baust du die Kombination nachher noch auf
+* methodische Übungsreihe: du führst die erste Technik auf, dann die ersten beiden Techniken aus, dann die ersten drei Techniken aus, das machst du so lange, bis die Kombination vollständig durchgeführt hast, dann beginnst du wieder von vorne
+
