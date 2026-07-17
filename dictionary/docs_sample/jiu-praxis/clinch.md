@@ -61,7 +61,7 @@ dabei helfen folgende Bestandteile:
 * übersetzSchritt zurück: schritt mit dem vorderen Bein zurück, dabei Zug mit der Hand am Nacken; dadurch dadurch bewegt man den Partner auf sich zu
 * Drehung: Drehung auf dem hinteren  Bein, vorderes Bein schwingt um 90 Grad nach hinten 
 
-davon gibt es unzählige Varianten Punkt wichtig ist dass du den Partner bewegst, denn:
+davon gibt es unzählige Varianten . wichtig ist dass du den Partner bewegst, denn:
 
 ergebnus: durch die Fremden Manipulation des Gegners , wird dieserdesorientiert. er muss ein ausgleichsschritt machen. er ist also mit nicht hinfallen beschäftigt. dies eröffnet dir Angriffsmöglichkeiten
 
@@ -74,6 +74,18 @@ info: anders als bei der "normalen" Bewegungslehre im Stand mit atemi-techniken 
     * ziehen 
     * drehen
 * spiel: beide Partner ein fifty fifty,  nur ziehen und schieben mit dem Oberkörper ist erlaubt. die Füße bleiben genau an der Stelle an der sie sind. wer einen ausgleichsschritt machen muss und das Bein anhebt, hat ein Punkt verloren
+
+## schutzausrpstung
+
+im Grinch werden Ellenbögen und Knie eingesetzt. an diesem Körper stellen ist die Haut sehr dünn und die Knochen sind daher kaum gedämmt. Frage daher folgende Schutzausrüstung
+
+* Zahnschutz 
+* ellenbogenschoner 
+* Knieschoner
+
+auch wenn du nur ganz entspannt macht und ganz ruhig: ohne Zahnschutz geht es nicht. es geht so schnell, dass bei einer Drehung unbeabsichtigt dicht der Ellenbogen irgendwo landet, wo er nicht hin soll. sind die Zähne betroffen, hat man zum Arzt Schmerzen auch noch eine große Rechnung zu bezahlen. lass es sein ! achte auf dich, acht auf deinen Partner!
+
+das Training läuft nicht weg, nächste Woche ist auch noch ein Tag. bis dahin habt ihr euch die Schutzausrüstung besorgt
 
 ## atemi-techniken 
 
@@ -111,7 +123,10 @@ welches Ziel sich genau für dich anbietet ist massiv von der Größendifferenz 
 
 **übung**
 
-XXXXX
+* 50-50: lasse kurz den Arm am Trizeps los, führe ein Ellenbogen zum Gesicht aus, geh zurück in die fifty-fifty
+* 50-50: ein Partner passiv, der andere Partner trainiert verschiedene Ellenbögen Varianten
+* 50-50, erarbeite dir die Innenbahn, setze ellenbogenschläge
+* abewhrÜbung: startet in 50-50, der Partner setzt ellenbogenschläge an, du bewegst dich und den Partner, um aus dem Angriff herauszukommen
 
 **kneekicks**
 
