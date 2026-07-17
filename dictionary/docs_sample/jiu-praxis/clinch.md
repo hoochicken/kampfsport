@@ -11,6 +11,10 @@ wo man den Gegner heranzukommen, gilt es erst einmal die Distanz zu überwinden 
 * Jab-Punch-Lowkick 
 * finte, die die Aufmerksamkeit des Gegners auf eine kommende artemitechnik lenkt, die aber in einem Griff endet
 
+**übung**
+
+XXXXX
+
 ## Griffe und Kampfstellungen
 
 **50-50**
@@ -38,6 +42,10 @@ wenn ein Partner auf der Innenbahn ist, so befindet sich der andere Partner zwan
 
 Mini Detail: solltest Du ohne Handschuhe trainieren, achte unbedingt darauf dass der Daumen an die Hand angelegt ist. andernfalls droht Verletzungsgefahr des eigenen Auges durch den eigenen Daumen
 
+**übung**
+
+XXXXX
+
 ## Bewegungsformen 
 
 sobaldo eine Hand auf der Innenbahn hast mit Griff im Nacken kannst du den anderen auch leicht bewegen und so dessen Stellung manipulieren.
@@ -52,6 +60,10 @@ davon gibt es unzählige Varianten Punkt wichtig ist dass du den Partner bewegst
 ergebnus: durch die Fremden Manipulation des Gegners , wird dieserdesorientiert. er muss ein ausgleichsschritt machen. er ist also mit nicht hinfallen beschäftigt. dies eröffnet dir Angriffsmöglichkeiten
 
 info: anders als bei der "normalen" Bewegungslehre im Stand mit atemi-techniken sind hier übersetzt Schritte an der Tagesordnung. denn dadurch arbeitest du mit der Kraft deines Körpergewichts
+
+**übung**
+
+XXXXX
 
 ## atemi-techniken 
 
@@ -81,17 +93,36 @@ und den Ellenbogenschlag auszuführen, lässt du den Griff für eine kurze Zeit 
 
 welches Ziel sich genau für dich anbietet ist massiv von der Größendifferenz der Partner abhängig. ein kleinerer Partner wird er Bauch und Brustbereich des größeren Partners angreifen. dagegen wird der größere Partner eher den Kopfbereich angreifen.
 
+**übung**
+
+XXXXX
+
 **kneekicks**
 
-bei niekeks, Kniestößen arbeiten nicht nur die Beine . der gesamte Körper ist an der Ausführung dieser Techniken beteiligt. insbesondere ist der Zug der Arme und die angespannten Bauchmuskeln zu erwähnen. mit denen zwingst du den Gegner in deinen niedrig hinein  . dadurch entfaltet der kneekick größere Wirkung. 
+bei kneekicks, Kniestößen arbeiten nicht nur die Beine . der gesamte Körper ist an der Ausführung dieser Techniken beteiligt. insbesondere ist der Zug der Arme und die angespannten Bauchmuskeln zu erwähnen. mit denen zwingst du den Gegner in deinen niedrig hinein  . dadurch entfaltet der kneekick größere Wirkung. 
 
 folgende Kniestöße bieten sich an: 
 
 * kreisförmig, also Mawashi hoza Geri 
-* gerade nach vorne
+* gerade nach vorne 
+* divetse gesprungene varianten
 
+der Partner ist auf enger Distanz. dadurch bieten sich folgende Ziele an:
 
+* Bauch 
+* Solarplexus 
+* Oberschenkel Vorderseite
+* Oberschenkel Seite auf den Muskelansatz 
+* Kopf (nur weil wir gesprungener Variante, oder wenn du den Gegner entsprechend nach unten gezogen hast)
+
+**übung**
+
+XXXXX
 
 ## distanzierung
+
+XXXXX
+
+**übung**
 
 XXXXX
