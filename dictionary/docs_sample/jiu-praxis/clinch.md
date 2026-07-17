@@ -11,9 +11,13 @@ wo man den Gegner heranzukommen, gilt es erst einmal die Distanz zu überwinden 
 * Jab-Punch-Lowkick 
 * finte, die die Aufmerksamkeit des Gegners auf eine kommende artemitechnik lenkt, die aber in einem Griff endet
 
-**übung**
+**übungen**
 
-XXXXX
+diese Übungen kannst du allein trainieren, oder mit deinem Partner
+
+* Schlagern nach vorne, nicht zum Schlag, nur zum blenden, entschiedener Schritt nach vorne und zum clinch (50-50) greifen
+* Schritt auf Innenbahn gleichzeitig ein Punch zum Gesicht des anderen, dann zum Clinch (50-50) greifen
+* 3x Jab-punch-lowkick, beim 4. mal hook führhand mit Schritt nach außen, dann zum clinch (50-50) greifen
 
 ## Griffe und Kampfstellungen
 
@@ -42,9 +46,9 @@ wenn ein Partner auf der Innenbahn ist, so befindet sich der andere Partner zwan
 
 Mini Detail: solltest Du ohne Handschuhe trainieren, achte unbedingt darauf dass der Daumen an die Hand angelegt ist. andernfalls droht Verletzungsgefahr des eigenen Auges durch den eigenen Daumen
 
-**übung**
+**übungen**
 
-XXXXX
+* in 50-50 starten
 
 ## Bewegungsformen 
 
