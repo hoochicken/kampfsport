@@ -35,7 +35,20 @@ mehr als bei allen anderen Techniken ist der sichere Stand nach einem Kick schwe
 
 ## frontkicks
 
-der Frontkick ist ein nach vorne ausgeführter kick
+der Frontkick ist ein nach vorne ausgeführter kick. der Kik kann ausgeführt werden als 
+
+* Kick mit kleiner Trefffläche (großer Schmerz) 
+* Stoß mit möglichst großer trefffläche
+
+der Kick mit dem **hinteren Bein** hat besondere Stärke hier kannst du nämlich dein ganzes Gewicht reinlegen. das **vordere Bein** wird immer einen schwächeren kick produzieren. der sogenannte **SwitchKick** löst dieses Problem indem du vor dem Kick mit den vorderen Beinen einen schnellen auslagenwechsel durchführst, so wird das vordere Bein zum hinteren Bein und bekommt auch mehr Kraft
+
+**übung**
+
+* technikübung: Kampfstellung, 5x Flamingo Stellung,5x Flamingo Stellung und frontkick, zurück in Kampfstellung
+* technikübung: Kampfstellung, Flamingo Stellung,5x Flamingo Stellung und frontkick, in Kampfstellung
+* Frontkick gegen ein Gegenstand ausführen, zum Beispiel Boxsack
+* von Kik gegen die Wand, natürlich langsam, spüre wie du bewusst den die ganze Fußsohle aufsetzt oder den Ballen aufsetzt, über Druck aus gegen die Wand
+* arbeitet partnerweise, schiebe deinen Partner mit dem frontkrieg nach hinten, beginnt auf einer Seite der Matte, solange bis auf der anderen Seite ankommt. dann schieb dich der zurück
 
 ## Sidekicks 
 
@@ -47,7 +60,7 @@ der Frontkick ist ein nach vorne ausgeführter kick
 
 
 
-## rpckwärtige kicks
+## rückwärtige kicks
 
 Blickrichtung
 
