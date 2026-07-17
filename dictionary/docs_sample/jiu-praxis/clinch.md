@@ -48,7 +48,12 @@ Mini Detail: solltest Du ohne Handschuhe trainieren, achte unbedingt darauf dass
 
 **übungen**
 
-* in 50-50 starten
+* in 50-50 auf rechts starten, ich gegenseitig einfach nur bewegen, also 
+    * schieben 
+    * ziehen 
+    * drehen
+* spiel: beide Partner ein fifty fifty,  nur ziehen und schieben mit dem Oberkörper ist erlaubt. die Füße bleiben genau an der Stelle an der sie sind. wer einen ausgleichsschritt machen muss und das Bein anhebt, hat ein Punkt verloren
+* fifty-fifty: immer wieder Griffwechsel mit dem Ziel, mit beiden Armen auf die Innenbahn 
 
 ## Bewegungsformen 
 
