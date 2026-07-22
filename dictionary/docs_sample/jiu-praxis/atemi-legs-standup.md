@@ -70,9 +70,9 @@ beachte: beim kick nach vorne kannst du Durchdrehen der Hüfte noch viel länger
 
 ## Sidekicks 
 
-der Sidekick ist ein sehr beliebter Kick. denn er ist nicht nur effektiv und bezüglich der Distanz höchst variabel, sondern sieht auch sehr fancy aus nicht umsonst findet er sich auf vielen Pokalen dargestellt. den Sidekick übt man gerne vor dem Spiegel, eben weil er geil aussieht! darüber hinaus ist der technisch anspruchsvoll und man kann an vielen Details und Kleinigkeiten arbeiten
+der Sidekick ist ein sehr beliebter Kick. du kannst den zeitig als angriffskick verwenden oder auch als stopKick . denn er ist nicht nur effektiv und bezüglich der Distanz höchst variabel, sondern sieht auch sehr fancy aus nicht umsonst findet er sich auf vielen Pokalen dargestellt. den Sidekick übt man gerne vor dem Spiegel, eben weil er geil aussieht! darüber hinaus ist der technisch anspruchsvoll und man kann an vielen Details und Kleinigkeiten arbeiten
 
-**körperstellung bei kik Vorbereitung die 27**: Sidekicks wirst du 90° zu deiner standrichtung aus. daher wird das seitlich üblicherweise aus der seitlichen Kampfstellung getreten. bei der Ausführung aus einer anderen kampfstellung ist entsprechend zuvor der Körper oder das Bein einzutreten so dass die Hüfte in Kik Richtung steht
+**körperstellung bei kik Vorbereitung die 27**: Sidekicks irst du 90° zu deiner standrichtung aus. daher wird das seitlich üblicherweise aus der seitlichen Kampfstellung getreten. bei der Ausführung aus einer anderen kampfstellung ist entsprechend zuvor der Körper oder das Bein einzutreten so dass die Hüfte in Kik Richtung steht
 
 stellung das gegen den Bein vor dem Klick: es gibt verschiedene Varianten  wie du unmittelbar vor dem Kick stehst . zum einen kann die Ferse bereits in Richtung Gegner zeigen . dies bedingt ein starkes eindrehen der Hüfte , die Hüfte schaut dann richtungsmäßig fast 180 Grad von der kickrichtung entfernt . zum anderen kann Knie und Schienbein nach vorne zeigen Komma wobei das Schienbein vertikal gehalten wird aus dieser Stellung kann ein geschnappter sideKick erfolgen
 
