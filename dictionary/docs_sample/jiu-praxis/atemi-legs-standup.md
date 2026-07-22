@@ -84,8 +84,18 @@ und wie immer der kleine psychologische Trick: auf beiden Seiten kannst du den K
 
 **übung**
 
-* 
-
+* technikübung: Kampfstellung, 5x pipihund Stellung,5x Flamingo Stellung und frontkick, zurück in Kampfstellung
+* technikübung: Kampfstellung, pipihund Stellung,5x pipihund Stellung und frontkick, in Kampfstellung
+* sidekick gegen ein Gegenstand ausführen, zum Beispiel Boxsack
+* sideKik gegen die Wand, natürlich langsam, spüre wie du bewusst den die ganze Fußsohle aufsetzt oder den Ballen aufsetzt oder die fusskante, über Druck aus gegen die Wand
+* distanz-konzentration: dir in unterschiedlichen Distanzen zur Bratze (oder allein gegen Boxsack)
+    * 5x genau in Kik Distanz 
+    * 5x zu nah, so dass du nach hinten ausweichen und kicken musst 
+    * 5x entfernt, der Partner läuft auf dich zu du musst nach hinten ausweichen und kicken 
+* außerhalb der Distanz
+    * 5x außerhalb der Distanz: von ferne Anstetten 
+    * 5x außerhalb der Distanz von ferne anspringen 
+    * 5x außerhalb der Distanz von ferne Angleiten
 
 ## lowkick
 
