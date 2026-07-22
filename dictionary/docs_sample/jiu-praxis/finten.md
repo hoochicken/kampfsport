@@ -39,11 +39,11 @@ finten lassen sich bei aller Art von Techniken anbringen, z.B
 
 ## freeze
 
-der Freeze ist eine meiner absoluten Lieblings-azemi-finten. sicherlich wird es dir genauso gehen. nehmen wir wieder das Beispiel oben mit Jet punch. bringe jab punch dreimal hintereinander beim vierten Mal machst du jab Punch lässt den Punch  auf halbem wege stehen. 
+der Freeze ist eine meiner absoluten Lieblings-atemi-finten. sicherlich wird es dir genauso gehen. nehmen wir wieder das Beispiel oben mit Jet punch. bringe jab punch dreimal hintereinander beim vierten Mal machst du jab Punch lässt den Punch  auf halbem wege stehen. 
 
 wenn du einen Gegner hast, der sehr gut ausreichen kann, ist der Free das Mittel der Wahl. der angedeutete Punch lässt den Gegner bereits in die Ausweichbewegung verfallen. und du kannst ihn dann etwa eine halbe Sekunde später komplett abschießen. 
 
-**questionmark kick**: diesen kick kann man als Fleeze Variante ausführen. du ziehst das Bein hoch als würdest du zum Front kicken. bevor der aber einschlägst drehst du die Hüfte ein zum roundhouse Kick.
+**questionmark kick**: diesen kick kann man als Freeze Variante ausführen. du ziehst das Bein hoch als würdest du zum Front kicken. bevor der aber einschlägst drehst du die Hüfte ein zum roundhouse Kick.
 
 ## wedeln
 
