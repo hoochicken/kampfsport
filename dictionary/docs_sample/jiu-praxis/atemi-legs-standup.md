@@ -8,7 +8,7 @@ das dominante und damit stärkere Bein steht dann hinten Punkt das hintere Bein 
 
 **switchkicks**: jederzeit kannst du dann vorderes sein zu einem hinteren Bein machen, indem du ein Switch in der Auslage machst. das heißt ein kurzes hochspringen und den Wechsel des vorderen Beins. so kannst du auch mit dem vorderen Bein schnell und stark kicken. der Switch geht trägt natürlich dazu bei, dass ein bisschen schneller kicken kannst, kostet aber natürlich ein bisschen mehr Zeit als wenn du bereits davor den Gewichtswechsel beachtet hast(s. o.). oben
 
-## trefferfläche
+## trefffläche
 
 je nach Ausführung als Kik oder Stoß, bieten sich folgende Trefferflächen an
 
@@ -52,17 +52,25 @@ der Kick mit dem **hinteren Bein** hat besondere Stärke hier kannst du nämlich
 
 ## Sidekicks 
 
-aus seitlicher kampfstellung aus frontaler kampfstellung
+aus seitlicher kampfstellung aus frontaler kampfstellung 
+
+beim kik ist der Standbein mit der Ferse Richtung Gegner Kick Richtung eingedreht 
+
+Körperhaltung aufrecht oder schräg
 
 trefffläche ganzer Fuß Ferse Kante
 
 verschiedene Varianten, schiwnbein nach vorne Ferse nach vorne
 
- 
-
-unstep formen
 
 
+distanzlehre anstep formen
+
+und wie immer der kleine psychologische Trick: auf beiden Seiten kannst du den Kick stark ausführen. denn entweder ist ein dominantes Bein das Standbein, oder der dominantes Bein ist das kickbein Punkt in beiden Fällen führt es zu einem starken Kik.
+
+**übung**
+
+* 
 
 
 ## lowkick
@@ -76,6 +84,8 @@ unstep formen
 ## rückwärtige kicks
 
 Blickrichtung
+
+## Kik Varianten aus einem Stand
 
 
 
