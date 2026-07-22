@@ -96,9 +96,7 @@ the Sidekick ist bezüglich der Distanz der variabel. du kannst ihn wie folgt au
 
 * **statisch**: direkt aus der seitlichen Kampfstellung. das hintere Bein bleibt stehen, während das vordere kickt
 * **invasiv** / voranpreschend: der Gegner befindet sich außerhalb deiner kick- Tanz. diese Distanz überwindest du durch einen step-schritt, ein hineingleiten , ein Sprung mit Kik
-* **evasiv** / ausweichend: der Gegner befindet sich zu nah, z.B weil er gerade auf dich zuläuft, du musst also Distanz erzeugen zwischen den Gegner und dir also machst du einen Step Schritt vom Partner weg, gleitet vom Partner, oder springst sogar vom Partner Weg.
-
-
+* **evasiv** / ausweichend: der Gegner befindet sich zu nah, z.B weil er gerade auf dich zuläuft, du musst also Distanz erzeugen zwischen den Gegner und dir also machst du einen Step Schritt vom Partner weg, gleitet vom Partner, oder springst sogar vom Partner weg.
 
 **übung**
 
@@ -115,7 +113,9 @@ und vorab wieder der psychologische Trick: auf beiden Seiten kannst du den Kick 
 * außerhalb der Distanz
     * 5x außerhalb der Distanz: von ferne Anstetten 
     * 5x außerhalb der Distanz von ferne anspringen 
-    * 5x außerhalb der Distanz von ferne Angleiten
+    * 5x außerhalb der Distanz von ferne Angleiten bei einigen dieser Übungen langsam aus. 
+
+viele dieser Übungen kannst du langsam und kontrolliert ausführen. sie bieten sich daher auch zum auch zum Netflix Training an, du kannst also dabei glotzen. um die Schwierigkeitsstufe zu steigern, ergänze Gewichte an den Knöcheln oder ein Theraband
 
 ## lowkick
 
