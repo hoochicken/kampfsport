@@ -158,8 +158,21 @@ alle rundkicks/mawashi geris sind komplexe Techniken. du benötigst hierzu eine 
 * aus dr flamingostellung: das Bein wird angezogen, das Knie steht vor der Brust, Schienbein senkrecht. von hier erfolgt eine Hüftdrehung und anschließender kick; dies ist ein schneller Kick, zumal den Gegner erst sehr spät offenbar wird, ob ein gerader kick folgt oder ein gedrehter
 * aus der pipihundstellung: das Knie wird nach vorne gebracht, das Schienbein steht horizontal, aus dieser Stellung wird der Kick gebracht
 * mit Unterstützung der Schwerkraft: begonnen wird in der flamingostellung, der das Bein wird nach oben ausgestreckt und danach unten in das Ziel fallen gelassen. zumeist findet die Verwendung bei locis ist es leicht nach unten zu kicken); bei einem großen Höhenunterschied kann der größere Partner durchaus auch einen vernichtenden Kick nach unten zum Kopf machen
+* questionmark kick: dieser Kick ist genau genommen eine finte. du siehst das Bein hoch als würdest du zum Front gekicken bevor der aber einschlägst drehst du die Hüfte zum woanders Kick.
 
 **übungen**
+
+* Kik aus den verschiedenen Ausgangsstellungen, langsame und kontrollierte Ausführung, auf das eindrehende Standbeins achten
+    * 10x flamingo
+    * 10x pipihund 
+* variante
+    * 3x gestrecktes bein
+    * 3x direkt zum ziel
+    * 3x nach unten
+    * beide beide
+* 10x Kik gegen die Bratze oder Boxsack. achte auf die Trefffläche 
+* 10x roundhouse(high)Kick an die Wand, langsam, tritt dabei mit dem Ballen zu das ist übrigens ein ulkiges Gefühl, und diese Übung ist extrem zu empfehlen
+* 6er-Kick = sechs kicks in folge: rechtes Bein hallo Mädel high, linkes Bein low middle high
 
 ## rückwärtige kicks
 
