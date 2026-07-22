@@ -121,6 +121,7 @@ und vorab wieder der psychologische Trick: auf beiden Seiten kannst du den Kick 
     * 5x außerhalb der Distanz von ferne anspringen 
     * 5x außerhalb der Distanz von ferne Angleiten bei einigen dieser Übungen langsam aus. 
 * aus der bodenlage: iegen auf der linken Seite, 5x Kicks rechts; dann seitenwechsel
+* dehnen: stell Dich seitlich vor deinen Partner, Harke dein rechtes vorderes Bein an seinen Nacken ein halte dich mit deiner rechten Hand an deiner Diagonalen Hand fest, Dreh deine Hüfte ein, so dass deine rechte Arschbacke Richtung Partner steht, bleibe aufrecht halte diese Position 30 Sekunden
 
 viele dieser Übungen kannst du langsam und kontrolliert ausführen. sie bieten sich daher auch zum auch zum Netflix Training an, du kannst also dabei glotzen. um die Schwierigkeitsstufe zu steigern, ergänze Gewichte an den Knöcheln oder ein Theraband
 
@@ -158,7 +159,7 @@ alle rundkicks/mawashi geris sind komplexe Techniken. du benötigst hierzu eine 
 * aus dr flamingostellung: das Bein wird angezogen, das Knie steht vor der Brust, Schienbein senkrecht. von hier erfolgt eine Hüftdrehung und anschließender kick; dies ist ein schneller Kick, zumal den Gegner erst sehr spät offenbar wird, ob ein gerader kick folgt oder ein gedrehter
 * aus der pipihundstellung: das Knie wird nach vorne gebracht, das Schienbein steht horizontal, aus dieser Stellung wird der Kick gebracht
 * mit Unterstützung der Schwerkraft: begonnen wird in der flamingostellung, der das Bein wird nach oben ausgestreckt und danach unten in das Ziel fallen gelassen. zumeist findet die Verwendung bei locis ist es leicht nach unten zu kicken); bei einem großen Höhenunterschied kann der größere Partner durchaus auch einen vernichtenden Kick nach unten zum Kopf machen
-* questionmark kick: dieser Kick ist genau genommen eine finte. du siehst das Bein hoch als würdest du zum Front gekicken bevor der aber einschlägst drehst du die Hüfte zum woanders Kick.
+* **questionmark kick**: dieser Kick ist genau genommen eine finte. du siehst das Bein hoch als würdest du zum Front gekicken bevor der aber einschlägst drehst du die Hüfte zum woanders Kick.
 
 **übungen**
 
