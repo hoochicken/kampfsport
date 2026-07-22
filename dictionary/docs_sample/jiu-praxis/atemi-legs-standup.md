@@ -70,6 +70,8 @@ beachte: beim kick nach vorne kannst du Durchdrehen der Hüfte noch viel länger
 
 ## Sidekicks 
 
+der Sidekick ist ein sehr beliebter Kick. denn er ist nicht nur effektiv und bezüglich der Distanz höchst variabel, sondern sieht auch sehr fancy aus nicht umsonst findet er sich auf vielen Pokalen dargestellt. den Sidekick übt man gerne vor dem Spiegel, eben weil er geil aussieht! darüber hinaus ist der technisch anspruchsvoll und man kann an vielen Details und Kleinigkeiten arbeiten
+
 **körperstellung bei kik Vorbereitung die 27**: Sidekicks wirst du 90° zu deiner standrichtung aus. daher wird das seitlich üblicherweise aus der seitlichen Kampfstellung getreten. bei der Ausführung aus einer anderen kampfstellung ist entsprechend zuvor der Körper oder das Bein einzutreten so dass die Hüfte in Kik Richtung steht
 
 stellung das gegen den Bein vor dem Klick: es gibt verschiedene Varianten  wie du unmittelbar vor dem Kick stehst . zum einen kann die Ferse bereits in Richtung Gegner zeigen . dies bedingt ein starkes eindrehen der Hüfte , die Hüfte schaut dann richtungsmäßig fast 180 Grad von der kickrichtung entfernt . zum anderen kann Knie und Schienbein nach vorne zeigen Komma wobei das Schienbein vertikal gehalten wird aus dieser Stellung kann ein geschnappter sideKick erfolgen
@@ -80,19 +82,23 @@ Hintergrund: für durchschnittlich bewegliche Menschen ist es wesentlich einfach
 
 ( die spreizbewegung beim Kik geht üblicherweise mit einem Abknicken der Hüfte einher Punkt daraus resultiert ein schwacher Kick, der zudem Kacke aussieht. durch den Ausdruck Sidekick sollte man sich nicht verleiten lassen, während des Kicks die Hüfte seitlich stehen zu lassen. die hüfthaltung vor den Kick ist seitlich, die hüfthaltung während des Keks ist so dass der Hintern zum Gegner zeigt)
 
-**Körperhaltung** während des Kriegs kannst du aufrecht verbleiben oder schrög verbleiben . ich persönlich bevorzuge die aufrechte Haltung. Spanne dabei die Rumpfmuskulatur dann hast du einen stabilen Stand
+**Körperhaltung** während des Kicks kannst du aufrecht verbleiben oder schrög verbleiben . ich persönlich bevorzuge die aufrechte Haltung. Spanne dabei die Rumpfmuskulatur dann hast du einen stabilen Stand
+
+**deckung**: halte die Deckung oben, beide Arme zeigen entweder zum Gegner oder du hast sie passiv an deinen Kopf angelegt. deine Deckung soll kein Ergebnis eines Zufalls sein, sondern fphre sie bewusst und kontrolliert aus.
 
 **trefffläche**: du triffst entweder mit der ganzen Fußsohle, der Ferse oder der Fußaussenkante. ästhetisch am schönsten ist die fussaussenkante
 
-**Lieblingsvariante**: es gibt zahlreiche Varianten die. stelle dir deine lieblingsvariante zusammen Punkt meine persönliche ist zum Beispiel Doppelpunkt eindrehen des standbeins auf 180 Grad, Arschbacke das geht Weins zeigt zum Gegner, Ferse visiert Gegner an Körper aufrecht Deckung oben, Kickmit dwr Fuß Außenkante ausgeführt. wie sieht dein optimaler Sidekick aus?
+**Lieblingsvariante**: es gibt zahlreiche Varianten die. stelle dir deine lieblingsvariante zusammen Punkt meine persönliche ist zum Beispiel Doppelpunkt eindrehen des standbeins auf 180 Grad, Arschbacke das geht beins zeigt zum Gegner, Ferse visiert Gegner an Körper aufrecht Deckung oben, Kickmit dwr Fuß Außenkante ausgeführt. wie sieht dein optimaler Sidekick aus?
 
-oben behalten
+**distanzlehre** 
 
-distanzlehre anstep formen
 
-und wie immer der kleine psychologische Trick: auf beiden Seiten kannst du den Kick stark ausführen. denn entweder ist ein dominantes Bein das Standbein, oder der dominantes Bein ist das kickbein Punkt in beiden Fällen führt es zu einem starken Kik.
+
+
 
 **übung**
+
+und vorab wieder der psychologische Trick: auf beiden Seiten kannst du den Kick stark ausführen. denn entweder ist ein dominantes Bein das Standbein, oder der dominantes Bein ist das kickbein . in beiden Fällen führt es zu einem starken Kik.
 
 * technikübung: Kampfstellung, 5x pipihund Stellung,5x Flamingo Stellung und frontkick, zurück in Kampfstellung
 * technikübung: Kampfstellung, pipihund Stellung,5x pipihund Stellung und frontkick, in Kampfstellung
