@@ -70,15 +70,21 @@ beachte: beim kick nach vorne kannst du Durchdrehen der Hüfte noch viel länger
 
 ## Sidekicks 
 
-aus seitlicher kampfstellung aus frontaler kampfstellung 
+**körperstellung bei kik Vorbereitung die 27**: Sidekicks wirst du 90° zu deiner standrichtung aus. daher wird das seitlich üblicherweise aus der seitlichen Kampfstellung getreten. bei der Ausführung aus einer anderen kampfstellung ist entsprechend zuvor der Körper oder das Bein einzutreten so dass die Hüfte in Kik Richtung steht
 
-beim kik ist der Standbein mit der Ferse Richtung Gegner Kick Richtung eingedreht 
+stellung das gegen den Bein vor dem Klick: es gibt verschiedene Varianten  wie du unmittelbar vor dem Kick stehst . zum einen kann die Ferse bereits in Richtung Gegner zeigen . dies bedingt ein starkes eindrehen der Hüfte , die Hüfte schaut dann richtungsmäßig fast 180 Grad von der kickrichtung entfernt . zum anderen kann Knie und Schienbein nach vorne zeigen Komma wobei das Schienbein vertikal gehalten wird aus dieser Stellung kann ein geschnappter sideKick erfolgen
 
-Körperhaltung aufrecht oder schräg Anspannen der Rumpfmuskulatur, dann hast du einen stabilen Stand
+**körperstellung bei kickausführung**: während des kicks selbst ist das Standbein noch wesentlich weiter einzudrehen.  die ferse zeigt dann in Richtung zum Gegner
 
-trefffläche ganzer Fuß Ferse Kante
+Hintergrund: für durchschnittlich bewegliche Menschen ist es wesentlich einfacher in breitem Spagat dass der Hintern fast zum Gegner zeigt. dadurch vermeidet man die unbequeme spreizbewegung zugunsten einer gedanklichen natürlichen schrittbewegun
 
-verschiedene Varianten, schiwnbein nach vorne Ferse nach vorne
+( die spreizbewegung beim Kik geht üblicherweise mit einem Abknicken der Hüfte einher Punkt daraus resultiert ein schwacher Kick, der zudem Kacke aussieht. durch den Ausdruck Sidekick sollte man sich nicht verleiten lassen, während des Kicks die Hüfte seitlich stehen zu lassen. die hüfthaltung vor den Kick ist seitlich, die hüfthaltung während des Keks ist so dass der Hintern zum Gegner zeigt)
+
+**Körperhaltung** während des Kriegs kannst du aufrecht verbleiben oder schrög verbleiben . ich persönlich bevorzuge die aufrechte Haltung. Spanne dabei die Rumpfmuskulatur dann hast du einen stabilen Stand
+
+**trefffläche**: du triffst entweder mit der ganzen Fußsohle, der Ferse oder der Fußaussenkante. ästhetisch am schönsten ist die fussaussenkante
+
+**Lieblingsvariante**: es gibt zahlreiche Varianten die. stelle dir deine lieblingsvariante zusammen Punkt meine persönliche ist zum Beispiel Doppelpunkt eindrehen des standbeins auf 180 Grad, Arschbacke das geht Weins zeigt zum Gegner, Ferse visiert Gegner an Körper aufrecht Deckung oben, Kickmit dwr Fuß Außenkante ausgeführt. wie sieht dein optimaler Sidekick aus?
 
 oben behalten
 
