@@ -1,5 +1,7 @@
 # Atemi beine
 
+in diesem Kapitel findest du eine Zusammenstellung zu artemitechniken, die mit dem Fuß oder den Bein ausgeführt werden.
+
 Üblicherweise nimmt ein Rechtshänder des rechte Bein nach hinten, ein Linkshänder das linke Bein.
 
 das dominante und damit stärkere Bein steht dann hinten Punkt das hintere Bein hat übrigens deshalb so viel Kraft, weil der ganze Körper mit in den Kik hineingelegt werden kann. dadurch vergrößert sich die "schlagmasse".
@@ -179,7 +181,16 @@ alle rundkicks/mawashi geris sind komplexe Techniken. du benötigst hierzu eine 
 
 Blickrichtung
 
-## Kik Varianten aus einem Stand
+## weiterekicks
+
+* backkick 
+* back roundhouse Kick 
+* crescent Kick 
+* rear Jumping Back Kick 
+* rear Sidekick 
+* reverse roundhouse kick
+
+sicherlich gibt es hier noch tausend Varianten von Kicks. hier oben findest du die geläufigsten und das soll erstmal genug sein.
 
 
 
