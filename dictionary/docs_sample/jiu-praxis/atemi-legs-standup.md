@@ -92,7 +92,11 @@ Hintergrund: für durchschnittlich bewegliche Menschen ist es wesentlich einfach
 
 **distanzlehre** 
 
+the Sidekick ist bezüglich der Distanz der variabel. du kannst ihn wie folgt ausführen
 
+* **statisch**: direkt aus der seitlichen Kampfstellung. das hintere Bein bleibt stehen, während das vordere kickt
+* **invasiv** / voranpreschend: der Gegner befindet sich außerhalb deiner kick- Tanz. diese Distanz überwindest du durch einen step-schritt, ein hineingleiten , ein Sprung mit Kik
+* **evasiv** / ausweichend: der Gegner befindet sich zu nah, z.B weil er gerade auf dich zuläuft, du musst also Distanz erzeugen zwischen den Gegner und dir also machst du einen Step Schritt vom Partner weg, gleitet vom Partner, oder springst sogar vom Partner Weg.
 
 
 
