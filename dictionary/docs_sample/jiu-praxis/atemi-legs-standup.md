@@ -152,7 +152,7 @@ der Logik ist sehr schmerzhaft Punkt auf den innschenkel ausgeführt ist er soga
 
 alle rundkicks/mawashi geris sind komplexe Techniken. du benötigst hierzu eine ordentliche Portion Balance und Koordination. 
 
-**variante**: na wahrscheinlich Iris gibt es in unzähligen Varianten. hier findest du ganz grob die verschiedenen mir bekannten Varianten fixiert.
+**varianten**: mawashi / rundkicks gaben unzählige Varianten. hier findest du ganz grob die verschiedenen mir bekannten Varianten fixiert.
 
 * gestrecktes bein: die Bewegung wird ausgeführt mit fast gestrecktem Bein, dadurch ist die Bewegung langsam, aber sehr sehr kraftvoll
 * aus dr flamingostellung: das Bein wird angezogen, das Knie steht vor der Brust, Schienbein senkrecht. von hier erfolgt eine Hüftdrehung und anschließender kick; dies ist ein schneller Kick, zumal den Gegner erst sehr spät offenbar wird, ob ein gerader kick folgt oder ein gedrehter
