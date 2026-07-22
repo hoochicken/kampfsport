@@ -33,7 +33,9 @@ mehr als bei allen anderen Techniken ist der sichere Stand nach einem Kick schwe
 * blickfokus: blicke bei Keks immer auf das Schlüsselbein des Partners. richte den Blick nicht auf die Stelle, wohin du kicken möchtest. denn das verrät dem Gegner dein Ziel.(natürlich kannst du damit auch ventieren, mache das also bewusst und nicht unbewusst
 * Blickrichtung: Blicke soweit es geht immer zum Gegner. richte dein Gesicht nach dem Partner aus, beobachte ihn bei ab Ausweichbewegungen aus dem Augenwinkel heraus. sie nicht nur auf den Boden, beuge nicht dein Haupt. halte dies ein besonders in Clinch, denn dein Kopf ist gefährdet wenn du nach unten bringst (wegen dr knee kicks). insbesondere beigetreten Kicks gilt: blicke immer zuerst zum Gegner bevor du kickst. dadurch stellst du sicher dass doch wirklich ins Ziel treffen kannst
 
-**wichtigstes Detail: eindrehen des Standbeins**: beim allen kicks kannst du Durch drehen der Hüfte noch viel länge gut machen, sicherlich 10 cm. dies bedingt unter anderem
+## eindrehen des Standbeins 
+
+beim allen kicks kannst du durch Drehen der Hüfte noch viel länge gut machen, sicherlich 10 cm. dies bedingt unter anderem
 
 * den Standfuß eindrehen
 * zum Teil so weit dass der Fuß 180° zur kickrichtung steht
@@ -44,6 +46,8 @@ je mehr welche du auf dem Boden hast, umso stabiler wird dein stand. das brauchs
 * Drehung auf ballen:  ganz okay , aber immer noch schwer 
 * Drehung auf fuß grundgelenk durch leichtes anhüpfen , sehr schnelle Drehung möglich , am Knie schonen 
 * Drehung im Sprung: super easy , technisch am anspruchsvollsten, produziert nicht unbedingt den stärksten Kick, weil die Standfläche fehlt, dennoch sehr starker kick möglich
+
+und: das Knie ist ein Scharniergelenk, die natürlich Bewegungsrichtung ist einachsig. darüber hinaus ist das Knie das wichtigste Gelenk beim die Vorgang. du brauchst es bis ins hohe Alter hinein
 
 ## frontkicks
 
