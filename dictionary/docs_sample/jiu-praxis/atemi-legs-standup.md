@@ -102,10 +102,10 @@ the Sidekick ist bezüglich der Distanz der variabel. du kannst ihn wie folgt au
 
 und vorab wieder der psychologische Trick: auf beiden Seiten kannst du den Kick stark ausführen. denn entweder ist ein dominantes Bein das Standbein, oder der dominantes Bein ist das kickbein . in beiden Fällen führt es zu einem starken Kik.
 
-* technikübung: Kampfstellung, 5x pipihund Stellung,5x Flamingo Stellung und frontkick, zurück in Kampfstellung
+* technikübung: Kampfstellung, 5x pipihund Stellung,5x pipihund Stellung und frontkick, zurück in Kampfstellung
 * technikübung: Kampfstellung, pipihund Stellung,5x pipihund Stellung und frontkick, in Kampfstellung
 * sidekick gegen ein Gegenstand ausführen, zum Beispiel Boxsack
-* sideKik gegen die Wand, natürlich langsam, spüre wie du bewusst den die ganze Fußsohle aufsetzt oder den Ballen aufsetzt oder die fusskante, über Druck aus gegen die Wand
+* sideKik gegen die Wand, natürlich langsam, spüre wie du bewusst den die ferse oder die fusskante aufsetzt, über Druck aus gegen die Wand
 * distanz-konzentration: dir in unterschiedlichen Distanzen zur Bratze (oder allein gegen Boxsack)
     * 5x genau in Kik Distanz 
     * 5x zu nah, so dass du nach hinten ausweichen und kicken musst 
@@ -114,18 +114,50 @@ und vorab wieder der psychologische Trick: auf beiden Seiten kannst du den Kick 
     * 5x außerhalb der Distanz: von ferne Anstetten 
     * 5x außerhalb der Distanz von ferne anspringen 
     * 5x außerhalb der Distanz von ferne Angleiten bei einigen dieser Übungen langsam aus. 
+* aus der bodenlage: iegen auf der linken Seite, 5x Kicks rechts; dann seitenwechsel
 
 viele dieser Übungen kannst du langsam und kontrolliert ausführen. sie bieten sich daher auch zum auch zum Netflix Training an, du kannst also dabei glotzen. um die Schwierigkeitsstufe zu steigern, ergänze Gewichte an den Knöcheln oder ein Theraband
 
-## lowkick
-
-bei allen gedrehten Kicks ist es wichtig, dass du das Standbein eindrehst. dadurch kannst du kraftvoll kicken und dein Knies geschützt. 
-
-(im leichtkontakt wird das Standbein manchmal nicht eingedreht, weil man hier schnell zurückziehen möchte. ist gut zum Punkte machen, für das Knie ist es aber trotzdem doof.)
-
 ## roundhouse kicks
 
-noch mal vorab: dreh dein Standbein ein! das ist wichtig für einen kraftvollen Kik, der gesund für dein Knie trotzdem ist. das Knie ist ein Scharniergelenk. jede Bewegung in eine andere Richtung als die biologisch gedachte
+round of Kicks oder mawashi-kicks sind Kucks die in einer Kreisbewegung ausgeführt werden. der ganze Körper steht auf einem Standbein, auf dem man sich dreht. dadurch wird dieser Kick mit der gesamten Körpermasse unterstrichen. sound of Kicks sind also sehr starke Kicks
+
+**standbei eindrehen**: 
+
+noch mal vorab: dreh dein Standbein ein! das ist wichtig für einen kraftvollen Kik, der gesund für dein Knie trotzdem ist. das Knie ist ein Scharniergelenk. jede Bewegung in eine andere Richtung als die biologisch gedachte fügt deinem Knieschaden zu. und da du dein Knie noch ein paar Jahre lang brauchst (die durchschnittliche Lebenserwartung liegt bei 105 Jahren momentan), pass auf dein Knie entsprechend auf.
+
+während der Ausführung des wird das Standbein zum Teil bis auf 180 Grad drei eingedreht so dass die Ferse zum Gegner zeigt.
+
+**standfläche**
+
+um eine schnelle und reibungslose Drehung zu erreichen, verringere deine Standfläche, indem du auf den Ballen gehst oder sogar das großer-zeh-Grundgelenk verwendest
+
+**trefffläche und -höhe**
+
+der mawashi Geri kann in verschiedenen Höhen ausgeführt werden. je nach Ebene bieten sich andere trefffächen an. bei einem erst gleich groß angenommenen Gegner üblich sind folgende Ebenen
+
+**lowkick**: der Logik zählt auf den Oberschenkel des Gegners ab. idealerweise wird der Muskelansatz des großen vorderen Oberschenkelmuskels angestrebt. der Fläche ist ein Schienbein. das bedeutet, dass du mit etwas sehr hartem (deinem Schienbeinknochen das bedeutet, dass du mit etwas sehr hartem (deinem Schienbeinknochen) auf etwas weiches Verletzliches (muskelgewebe).
+
+der Logik ist sehr schmerzhaft Punkt auf den innschenkel ausgeführt ist er sogar sehr schmerzhaft.
+
+**middlekick**: der mittelkick wird auf die kurzen Rippen des Partners ausgeführt Punkt Rippen können leicht brechen Komma sei also im Training durchaus vorsichtig damit . trefflächen ist in der Regel das Schienbein
+
+**high-kick**: der eigentlich wird in der Regel zum Kopf ausgeführt. in der Regel führt man diesen Kick mit dem Rest aus (bitte anspannen) oder mit dem angespannten Fußballen
+
+alle rundkicks/mawashi geris sind komplexe Techniken. du benötigst hierzu eine ordentliche Portion Balance und Koordination. 
+
+**variante**: na wahrscheinlich Iris gibt es in unzähligen Varianten. hier findest du ganz grob die verschiedenen mir bekannten Varianten fixiert.
+
+* gestrecktes bein: die Bewegung wird ausgeführt mit fast gestrecktem Bein, dadurch ist die Bewegung langsam, aber sehr sehr kraftvoll
+* aus dr flamingostellung: das Bein wird angezogen, das Knie steht vor der Brust, Schienbein senkrecht. von hier erfolgt eine Hüftdrehung und anschließender kick; dies ist ein schneller Kick, zumal den Gegner erst sehr spät offenbar wird, ob ein gerader kick folgt oder ein gedrehter
+* aus der pipihundstellung: das Knie wird nach vorne gebracht, das Schienbein steht horizontal, aus dieser Stellung wird der Kick gebracht
+* mit Unterstützung der Schwerkraft: begonnen wird in der flamingostellung, der das Bein wird nach oben ausgestreckt und danach unten in das Ziel fallen gelassen. zumeist findet die Verwendung bei locis ist es leicht nach unten zu kicken); bei einem großen Höhenunterschied kann der größere Partner durchaus auch einen vernichtenden Kick nach unten zum Kopf machen
+
+**balance**: nach dem kick ist vor dem kick! beim Kampfsport haben Füße eine doppelte Aufgabe. zum einen denen sie der Fortbewegung, zum anderen zur Ausführung von vernichtenden kicks. man kann ein und dasselbe Bein zu einem Zeitpunkt aber nur für einen der beiden Aufgaben verwenden. das bedeutet, dass mit jedem Kick dein stand verunsichert wird. umso wichtiger ist es, nach dem Kick die Balance wieder zu finden.
+
+wenn wir von der Balance reden, so ist es sinnvoll sich die physikalischen Hintergründe kurz zu vergegenwärtigen. ein Körper ist stabil, wenn das Gewicht über seinem Schwerpunkt sich befindet. konkret bedeutet dies: je weiter du ein Gliedmaß (Arm, Bein) von dir wegstreckst, umso wacklige wird dein Standpunkt bei der Ausführung eines Kicks, in sonders eines Warendorf Skills, führst du sehr viel Gewicht von dir von deinem Körperschwerpunkt weg um dein Gleichgewicht wieder zu finden bringe dein Bein wieder zurück zu dir, zu deinem Körperschwerpunkt lass dein Bein also nicht fallen und kommt irgendwie auf den Boden auf, ziehe dein Bein gezielt und kontrolliert zurück. so kannst du es dort absetzen wo du es absetzen möchtest, und deine Nächsten Aktionen zu planen
+
+**übungen**
 
 ## rückwärtige kicks
 
