@@ -43,6 +43,8 @@ der Freeze ist eine meiner absoluten Lieblings-azemi-finten. sicherlich wird es 
 
 wenn du einen Gegner hast, der sehr gut ausreichen kann, ist der Free das Mittel der Wahl. der angedeutete Punch lässt den Gegner bereits in die Ausweichbewegung verfallen. und du kannst ihn dann etwa eine halbe Sekunde später komplett abschießen. 
 
+**questionmark kick**: diesen kick kann man als Fleeze Variante ausführen. du ziehst das Bein hoch als würdest du zum Front kicken. bevor der aber einschlägst drehst du die Hüfte ein zum roundhouse Kick.
+
 ## wedeln
 
 wedeln ist jetzt keine direkte finde, aber eine Ablenkung Bernd der Gegner vor dir stehst redest du z.B mit der Schlaghand ein bisschen hinter dir. es ist eine große Bewegung. 
