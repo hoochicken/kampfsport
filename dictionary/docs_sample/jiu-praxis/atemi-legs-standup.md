@@ -33,6 +33,12 @@ mehr als bei allen anderen Techniken ist der sichere Stand nach einem Kick schwe
 * blickfokus: blicke bei Keks immer auf das Schlüsselbein des Partners. richte den Blick nicht auf die Stelle, wohin du kicken möchtest. denn das verrät dem Gegner dein Ziel.(natürlich kannst du damit auch ventieren, mache das also bewusst und nicht unbewusst
 * Blickrichtung: Blicke soweit es geht immer zum Gegner. richte dein Gesicht nach dem Partner aus, beobachte ihn bei ab Ausweichbewegungen aus dem Augenwinkel heraus. sie nicht nur auf den Boden, beuge nicht dein Haupt. halte dies ein besonders in Clinch, denn dein Kopf ist gefährdet wenn du nach unten bringst (wegen dr knee kicks). insbesondere beigetreten Kicks gilt: blicke immer zuerst zum Gegner bevor du kickst. dadurch stellst du sicher dass doch wirklich ins Ziel treffen kannst
 
+## balance - nach dem kick ist vor dem kick! 
+
+beim Kampfsport haben Füße eine doppelte Aufgabe. zum einen denen sie der Fortbewegung, zum anderen zur Ausführung von vernichtenden kicks. man kann ein und dasselbe Bein zu einem Zeitpunkt aber nur für einen der beiden Aufgaben verwenden. das bedeutet, dass mit jedem Kick dein stand verunsichert wird. umso wichtiger ist es, nach dem Kick die Balance wieder zu finden.
+
+wenn wir von der Balance reden, so ist es sinnvoll sich die physikalischen Hintergründe kurz zu vergegenwärtigen. ein Körper ist stabil, wenn das Gewicht über seinem Schwerpunkt sich befindet. konkret bedeutet dies: je weiter du ein Gliedmaß (Arm, Bein) von dir wegstreckst, umso wacklige wird dein Standpunkt bei der Ausführung eines Kicks, in sonders eines Warendorf Skills, führst du sehr viel Gewicht von dir von deinem Körperschwerpunkt weg um dein Gleichgewicht wieder zu finden bringe dein Bein wieder zurück zu dir, zu deinem Körperschwerpunkt lass dein Bein also nicht fallen und kommt irgendwie auf den Boden auf, ziehe dein Bein gezielt und kontrolliert zurück. so kannst du es dort absetzen wo du es absetzen möchtest, und deine Nächsten Aktionen zu planen
+
 ## eindrehen des Standbeins 
 
 beim allen kicks kannst du durch Drehen der Hüfte noch viel länge gut machen, sicherlich 10 cm. dies bedingt unter anderem
@@ -152,10 +158,6 @@ alle rundkicks/mawashi geris sind komplexe Techniken. du benötigst hierzu eine 
 * aus dr flamingostellung: das Bein wird angezogen, das Knie steht vor der Brust, Schienbein senkrecht. von hier erfolgt eine Hüftdrehung und anschließender kick; dies ist ein schneller Kick, zumal den Gegner erst sehr spät offenbar wird, ob ein gerader kick folgt oder ein gedrehter
 * aus der pipihundstellung: das Knie wird nach vorne gebracht, das Schienbein steht horizontal, aus dieser Stellung wird der Kick gebracht
 * mit Unterstützung der Schwerkraft: begonnen wird in der flamingostellung, der das Bein wird nach oben ausgestreckt und danach unten in das Ziel fallen gelassen. zumeist findet die Verwendung bei locis ist es leicht nach unten zu kicken); bei einem großen Höhenunterschied kann der größere Partner durchaus auch einen vernichtenden Kick nach unten zum Kopf machen
-
-**balance**: nach dem kick ist vor dem kick! beim Kampfsport haben Füße eine doppelte Aufgabe. zum einen denen sie der Fortbewegung, zum anderen zur Ausführung von vernichtenden kicks. man kann ein und dasselbe Bein zu einem Zeitpunkt aber nur für einen der beiden Aufgaben verwenden. das bedeutet, dass mit jedem Kick dein stand verunsichert wird. umso wichtiger ist es, nach dem Kick die Balance wieder zu finden.
-
-wenn wir von der Balance reden, so ist es sinnvoll sich die physikalischen Hintergründe kurz zu vergegenwärtigen. ein Körper ist stabil, wenn das Gewicht über seinem Schwerpunkt sich befindet. konkret bedeutet dies: je weiter du ein Gliedmaß (Arm, Bein) von dir wegstreckst, umso wacklige wird dein Standpunkt bei der Ausführung eines Kicks, in sonders eines Warendorf Skills, führst du sehr viel Gewicht von dir von deinem Körperschwerpunkt weg um dein Gleichgewicht wieder zu finden bringe dein Bein wieder zurück zu dir, zu deinem Körperschwerpunkt lass dein Bein also nicht fallen und kommt irgendwie auf den Boden auf, ziehe dein Bein gezielt und kontrolliert zurück. so kannst du es dort absetzen wo du es absetzen möchtest, und deine Nächsten Aktionen zu planen
 
 **übungen**
 
