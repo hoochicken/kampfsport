@@ -127,6 +127,10 @@ und vorab wieder der psychologische Trick: auf beiden Seiten kannst du den Kick 
 
 viele dieser Übungen kannst du langsam und kontrolliert ausführen. sie bieten sich daher auch zum auch zum Netflix Training an, du kannst also dabei glotzen. um die Schwierigkeitsstufe zu steigern, ergänze Gewichte an den Knöcheln oder ein Theraband
 
+**frontkick blocken**
+
+XXXXX
+
 ## roundhouse kicks
 
 round of Kicks oder mawashi-kicks sind Kucks die in einer Kreisbewegung ausgeführt werden. der ganze Körper steht auf einem Standbein, auf dem man sich dreht. dadurch wird dieser Kick mit der gesamten Körpermasse unterstrichen. sound of Kicks sind also sehr starke Kicks
@@ -176,6 +180,23 @@ alle rundkicks/mawashi geris sind komplexe Techniken. du benötigst hierzu eine 
 * 10x Kik gegen die Bratze oder Boxsack. achte auf die Trefffläche 
 * 10x roundhouse(high)Kick an die Wand, langsam, tritt dabei mit dem Ballen zu das ist übrigens ein ulkiges Gefühl, und diese Übung ist extrem zu empfehlen
 * 6er-Kick = sechs kicks in folge: rechtes Bein hallo Mädel high, linkes Bein low middle high
+
+**roundhouse kIcks blocken**
+
+XXXXX
+
+## kneekicks
+
+näfig sind für die nähere Distanz gedacht. gekickt wird dabei mit der dem harten Teil des Knies, sei es die Kniescheibe oder der untere Kopf des Oberschenkelknochens, den du auf der Innenseite ertasten kannst .
+besonders an Kniestößen ist, dass die Hände in der Regel mitarbeiten. der Partner oder Gegner wird in den Kick hineingezogen Punkt dadurch wird die treffkraft erhöht.
+
+auch hier gibt es natürlich verschiedene Varianten 
+
+**frontaler kneekick**: Kik mit dem Knie nach vorne. die SPD, dass die Hüfte vor dem Kik hinten ist und mit dem Kick nach vorne gebracht wird. Ziel ist der Bauch des Gegners oder der Muskelansatz des Oberschenkelmuskels am Knie
+
+**mawashi kneekick**: dieser Kick wird in der Regel zum Bauch ausgeführt. wichtig ist hier natürlich die Drehung auf dem Standbein. hier ist es besonders wichtig, die Rumpfmuskulatur anzuspannen damit man den Gegner in seinen Kik hineinziehen kann. in der Regel hält eine Hand hinterm Nacken die andere am Trizeps des Partners
+
+**kneekick blocken: 
 
 ## rückwärtige kicks
 
