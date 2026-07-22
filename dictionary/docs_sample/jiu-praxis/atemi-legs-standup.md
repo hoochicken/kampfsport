@@ -24,7 +24,7 @@ auch hier gilt:
 * kleine Trefferfläche je kleiner die Trefferfläche, umso größer der im Park und Schmerz. hier sind sogenannte cuts das heißt Platzwunden möglich. 
 * grosse trefferfläche: je größer die Trefferfläche, umso leichter kannst du den anderen wegstoßen. böse dient der Distanzkontrolle
 
-## sichererstand und weitere grundregeln
+## sicherer stand und weitere grundregeln
 
 mehr als bei allen anderen Techniken ist der sichere Stand nach einem Kick schwer zu erreichen der Kick geht oft gegen den Körper des Gegners. es ist kaum berechenbar, ob der ausweichen wird gegen Kraft geben wird. mit anderen Worten das Verhalten nach dem Krieg ist ein bisschen unsicher. trainiere daher massiv nach den Kick, dass du schnell in eine sichere (Kampf)stellung zurückkehrst. folgende Aspekte helfen dir dabei
 
@@ -33,6 +33,18 @@ mehr als bei allen anderen Techniken ist der sichere Stand nach einem Kick schwe
 * blickfokus: blicke bei Keks immer auf das Schlüsselbein des Partners. richte den Blick nicht auf die Stelle, wohin du kicken möchtest. denn das verrät dem Gegner dein Ziel.(natürlich kannst du damit auch ventieren, mache das also bewusst und nicht unbewusst
 * Blickrichtung: Blicke soweit es geht immer zum Gegner. richte dein Gesicht nach dem Partner aus, beobachte ihn bei ab Ausweichbewegungen aus dem Augenwinkel heraus. sie nicht nur auf den Boden, beuge nicht dein Haupt. halte dies ein besonders in Clinch, denn dein Kopf ist gefährdet wenn du nach unten bringst (wegen dr knee kicks). insbesondere beigetreten Kicks gilt: blicke immer zuerst zum Gegner bevor du kickst. dadurch stellst du sicher dass doch wirklich ins Ziel treffen kannst
 
+**wichtigstes Detail: eindrehen des Standbeins**: beim allen kicks kannst du Durch drehen der Hüfte noch viel länge gut machen, sicherlich 10 cm. dies bedingt unter anderem
+
+* den Standfuß eindrehen
+* zum Teil so weit dass der Fuß 180° zur kickrichtung steht
+* drehfläche gering halten, am besten nur das Grundgelenk des großen Zehs
+
+je mehr welche du auf dem Boden hast, umso stabiler wird dein stand. das brauchst du beim Ausführen des Keks. je weniger Fläche du hast, umso leichter kannst du dich drehen. als drehfläche hast du mehrere Möglichkeiten
+
+* Drehung auf ballen:  ganz okay , aber immer noch schwer 
+* Drehung auf fuß grundgelenk durch leichtes anhüpfen , sehr schnelle Drehung möglich , am Knie schonen 
+* Drehung im Sprung: super easy , technisch am anspruchsvollsten, produziert nicht unbedingt den stärksten Kick, weil die Standfläche fehlt, dennoch sehr starker kick möglich
+
 ## frontkicks
 
 der Frontkick ist ein nach vorne ausgeführter kick. der Kik kann ausgeführt werden als 
@@ -40,7 +52,9 @@ der Frontkick ist ein nach vorne ausgeführter kick. der Kik kann ausgeführt we
 * Kick mit kleiner Trefffläche (großer Schmerz) 
 * Stoß mit möglichst großer trefffläche
 
-der Kick mit dem **hinteren Bein** hat besondere Stärke hier kannst du nämlich dein ganzes Gewicht reinlegen. das **vordere Bein** wird immer einen schwächeren kick produzieren. der sogenannte **SwitchKick** löst dieses Problem indem du vor dem Kick mit den vorderen Beinen einen schnellen auslagenwechsel durchführst, so wird das vordere Bein zum hinteren Bein und bekommt auch mehr Kraft
+der Kick mit dem **hinteren Bein** hat besondere Stärke hier kannst du nämlich dein ganzes Gewicht reinlegen. das **vordere Bein** wird immer einen schwächeren kick produzieren. der sogenannte **SwitchKick** löst dieses Problem indem du vor dem Kick mit den vorderen Beinen einen schnellen auslagenwechsel durchführst, so wird das vordere Bein zum hinteren Bein und bekommt auch mehr Kraft.
+
+beachte: beim kick nach vorne kannst du Durchdrehen der Hüfte noch viel länger gut machen, sicherlich 10 cm. dies bedingt unter anderem, dass du den Standfuß ein bisschen eindrehst, zum Teil so weit dass der Fuß 90° zur kiekrichtung steht
 
 **übung**
 
@@ -62,7 +76,7 @@ trefffläche ganzer Fuß Ferse Kante
 
 verschiedene Varianten, schiwnbein nach vorne Ferse nach vorne
 
-
+oben behalten
 
 distanzlehre anstep formen
 
