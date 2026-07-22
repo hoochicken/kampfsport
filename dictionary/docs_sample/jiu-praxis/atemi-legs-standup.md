@@ -70,7 +70,7 @@ aus seitlicher kampfstellung aus frontaler kampfstellung
 
 beim kik ist der Standbein mit der Ferse Richtung Gegner Kick Richtung eingedreht 
 
-Körperhaltung aufrecht oder schräg
+Körperhaltung aufrecht oder schräg Anspannen der Rumpfmuskulatur, dann hast du einen stabilen Stand
 
 trefffläche ganzer Fuß Ferse Kante
 
@@ -99,11 +99,13 @@ und wie immer der kleine psychologische Trick: auf beiden Seiten kannst du den K
 
 ## lowkick
 
+bei allen gedrehten Kicks ist es wichtig, dass du das Standbein eindrehst. dadurch kannst du kraftvoll kicken und dein Knies geschützt. 
 
+(im leichtkontakt wird das Standbein manchmal nicht eingedreht, weil man hier schnell zurückziehen möchte. ist gut zum Punkte machen, für das Knie ist es aber trotzdem doof.)
 
 ## roundhouse kicks
 
-
+noch mal vorab: dreh dein Standbein ein! das ist wichtig für einen kraftvollen Kik, der gesund für dein Knie trotzdem ist. das Knie ist ein Scharniergelenk. jede Bewegung in eine andere Richtung als die biologisch gedachte
 
 ## rückwärtige kicks
 
