@@ -52,6 +52,19 @@ der Kick mit dem **hinteren Bein** hat besondere Stärke hier kannst du nämlich
 
 ## Sidekicks 
 
+aus seitlicher kampfstellung aus frontaler kampfstellung
+
+trefffläche ganzer Fuß Ferse Kante
+
+verschiedene Varianten, schiwnbein nach vorne Ferse nach vorne
+
+ 
+
+unstep formen
+
+
+
+
 ## lowkick
 
 
