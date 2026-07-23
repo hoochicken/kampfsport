@@ -70,7 +70,7 @@ der Kick mit dem **hinteren Bein** hat besondere Stärke hier kannst du nämlich
 
 **übung**
 
-* technikübung: Kampfstellung, 5x Flamingo Stellung,5x Flamingo Stellung und frontkick, zurück in Kampfstellung
+* technikübung: Kampfstellung, 5x Flamingo Stellung, 5x Flamingo Stellung und frontkick, zurück in Kampfstellung, 5x dasselbe jedes mal 3 frontkicks
 * technikübung: Kampfstellung, Flamingo Stellung,5x Flamingo Stellung und frontkick, in Kampfstellung
 * Frontkick gegen ein Gegenstand ausführen, zum Beispiel Boxsack
 * von Kik gegen die Wand, natürlich langsam, spüre wie du bewusst den die ganze Fußsohle aufsetzt oder den Ballen aufsetzt, über Druck aus gegen die Wand
