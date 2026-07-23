@@ -225,17 +225,35 @@ alle rundkicks/mawashi geris sind komplexe Techniken. du benötigst hierzu eine 
 * 10x roundhouse(high)Kick an die Wand, langsam, tritt dabei mit dem Ballen zu das ist übrigens ein ulkiges Gefühl, und diese Übung ist extrem zu empfehlen
 * 6er-Kick = sechs kicks in folge: rechtes Bein hallo Mädel high, linkes Bein low middle high
 
-**roundhouse kIcks blocken**
+**low kIcks blocken**
+
+* nach hinten ausweichen 
+* Gegenkraft durch Beugung des angezielten Beines
+* wegdrehen vom Kik so dass der Kick auf den stabil Gluteus Maximus (dein Arsch abgeklappt
+* Schienbein Block( nur mit entsprechender Schutzausrüstung, andernfalls massive schmerzwirkung oder sogar schwere Verletzung)
+
+** middle roundhouse kIcks blocken**
+
+* nach hinten ausweichen 
+* nach hinten bauch zurückpendeln
+* weiterleiten des Kicks mit gegenseitigem Arm, gleichseitiger Abend verbleibt als passiver Block am Kopf
+* seitliches einlaufen auf die Innenbahn fangen des Kicks 
+* Schienbein Block( nur mit entsprechender Schutzausrüstung, andernfalls massive schmerzwirkung oder sogar schwere Verletzinf
+
+**high roundhouse kIcks blocken**
 
 * nach hinten ausweichen 
 * nach hinten auspendeln
 * harten Block mit beidseitigem Unterarm 
-* weiterleiten des Kicks mit gegenseitigem Arm 
+* weiterleiten des Kicks mit gegenseitigem Arm, gleichseitiger Abend verbleibt als passiver Block am Kopf
 * seitliches einlaufen auf die Innenbahn fangen des Kicks 
-* Schienbein Block( nur mit entsprechender Schutzausrüstung, andernfalls massive schmerzwirkung oder sogar schwere Verletzung)
+* Schienbein Block( nur mit entsprechender Schutzausrüstung, andernfalls massive schmerzwirkung oder sogar schwere Verletzung
 
-**übunge**
+**übung**
 
+* [angriff] - reaktion
+* lowkick - schienbeinblock
+* middlekick - schienbeinblock
 * 
 
 ## kneekicks
