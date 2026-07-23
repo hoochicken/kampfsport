@@ -1,6 +1,6 @@
 # Atemi beine
 
-in diesem Kapitel findest du eine Zusammenstellung zu artemitechniken, die mit dem Fuß oder den Bein ausgeführt werden.
+in diesem Kapitel findest du eine Zusammenstellung zu atemi-techniken, die mit dem Fuß, knie oder sonstwie lir dem Bein ausgeführt werden.
 
 Üblicherweise nimmt ein Rechtshänder des rechte Bein nach hinten, ein Linkshänder das linke Bein.
 
@@ -240,7 +240,37 @@ auch hier gibt es natürlich verschiedene Varianten
 
 **mawashi kneekick**: dieser Kick wird in der Regel zum Bauch ausgeführt. wichtig ist hier natürlich die Drehung auf dem Standbein. hier ist es besonders wichtig, die Rumpfmuskulatur anzuspannen damit man den Gegner in seinen Kik hineinziehen kann. in der Regel hält eine Hand hinterm Nacken die andere am Trizeps des Partners
 
-**kneekick blocken: 
+**übungen**:
+
+* 
+
+**kneekick verteidigen**
+
+wie du dich gegen Genetik verteidigst hängt davon ab, wohin er platziert wurde. 
+
+* kneekick auf Oberschenkel:
+    * zurückweichen 
+    * ausweichen 
+    * aus der Balance Ziehen des Partners 
+* kneekick gegen Bauch
+    * ausweichen durch Zurückziehen des Bauches 
+    * unterarmblock 
+    * Unterarm Block und weiterleiten 
+    * Ellenbogen zum Oberschenkelmuskel (schmerzhaft und fies) 
+* kneekick zum Kopf 
+   * passiv Block 
+    * Unterarm Block und weiterleiten 
+    * generell den Kopf oben halten und nicht im einflugsbereich des Knies 
+* gesprungener kneekick: 
+    * zur seite ausweichen
+    * zurückbrechen
+
+wenn jemand an dir einen dicken ausführt, wird er vermutlich in irgendeiner Weise an Dir ziehen. halte deinen Gegner im Blick schaue etwa zu seinem Schlüsselbein. wenn du nicht den Blick nach unten und warte auf den Kick, bleib oben und sorge dafür dass dein Kopf möglichst oben und sicher bleibt
+
+**übung**
+
+* 
+
 
 ## rückwärtige kicks
 
