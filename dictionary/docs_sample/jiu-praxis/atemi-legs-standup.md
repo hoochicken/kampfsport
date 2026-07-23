@@ -227,7 +227,16 @@ alle rundkicks/mawashi geris sind komplexe Techniken. du benötigst hierzu eine 
 
 **roundhouse kIcks blocken**
 
-XXXXX
+* nach hinten ausweichen 
+* nach hinten auspendeln
+* harten Block mit beidseitigem Unterarm 
+* weiterleiten des Kicks mit gegenseitigem Arm 
+* seitliches einlaufen auf die Innenbahn fangen des Kicks 
+* Schienbein Block( nur mit entsprechender Schutzausrüstung, andernfalls massive schmerzwirkung oder sogar schwere Verletzung)
+
+**übunge**
+
+* 
 
 ## kneekicks
 
