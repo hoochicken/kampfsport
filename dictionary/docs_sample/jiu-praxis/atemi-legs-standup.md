@@ -93,7 +93,13 @@ wenn du zeitig ausweist, verkürzt du damit auch gleichzeitig die Distanz Punkt 
 
 **übung**
 
-XXXXX
+Übungen sind natürlich viele Möglichkeiten, hier eine mini-auswahl. diese Übungen kannst du als Partnerübung, im Schatten Boxen oder am Sandsack trainieren. dieser aufschrieb hat folgenden Aufbau: zunächst der vorgestellte Angriff, nach dem Gedankenstrich folgt die Reaktion die du trainierst. die Beschreibung geht davon aus , dass zwei linksausleger miteinander trainieren
+
+* [angriff] - deine reaktion
+* 5x [frontkick re] - Block, seitlich nach links (aussenbahn) raus, jab, punch
+* 5x [frontkick re] - Block, seitlich nach rechts (innenbahn) raus, punch, jab
+* 5x [frontkick re] - Block, seitlich nach links (aussenbahn) raus, roundhouse kick re zu kopf oder bauch
+* 5x [frontkick re] - Block, seitlich nach rechts (innenbahn) raus, frontkick zu bauch
 
 ## Sidekicks 
 
@@ -161,13 +167,17 @@ der Unterschied zwischen Verteidigung und Frontkick liegt in den möglichen folg
 
 **übung**
 
-XXXXX
+* [angriff] - deine reaktion
+* 5x [sidekick re] - Block, seitlich nach links (aussenbahn) raus, jab, punch
+* 5x [sidekick re] - Block, seitlich nach rechts (innenbahn) raus, punch, jab
+* 5x [sidekick re] - Block, seitlich nach links (aussenbahn) raus, lowkick UNTER knöchelhöhe, fegen 45° nach vorne-rechts aus sicht des gegners
+* 5x [sidekick re] - seitlich nach rechts (innenbahn) raus, fangen mit links, hüfte an hüfte, grosse aussensichel 
 
 ## roundhouse kicks
 
-round of Kicks oder mawashi-kicks sind Kucks die in einer Kreisbewegung ausgeführt werden. der ganze Körper steht auf einem Standbein, auf dem man sich dreht. dadurch wird dieser Kick mit der gesamten Körpermasse unterstrichen. sound of Kicks sind also sehr starke Kicks
+round of Kicks oder mawashi-kicks sind Kicks die in einer Kreisbewegung ausgeführt werden. der ganze Körper steht auf einem Standbein, auf dem man sich dreht. dadurch wird dieser Kick mit der gesamten Körpermasse unterstrichen. sound of Kicks sind also sehr starke Kicks
 
-**standbei eindrehen**: 
+**standbein eindrehen**: 
 
 noch mal vorab: dreh dein Standbein ein! das ist wichtig für einen kraftvollen Kik, der gesund für dein Knie trotzdem ist. das Knie ist ein Scharniergelenk. jede Bewegung in eine andere Richtung als die biologisch gedachte fügt deinem Knieschaden zu. und da du dein Knie noch ein paar Jahre lang brauchst (die durchschnittliche Lebenserwartung liegt bei 105 Jahren momentan), pass auf dein Knie entsprechend auf.
 
@@ -183,11 +193,13 @@ der mawashi Geri kann in verschiedenen Höhen ausgeführt werden. je nach Ebene 
 
 **lowkick**: der Logik zählt auf den Oberschenkel des Gegners ab. idealerweise wird der Muskelansatz des großen vorderen Oberschenkelmuskels angestrebt. der Fläche ist ein Schienbein. das bedeutet, dass du mit etwas sehr hartem (deinem Schienbeinknochen das bedeutet, dass du mit etwas sehr hartem (deinem Schienbeinknochen) auf etwas weiches Verletzliches (muskelgewebe).
 
-der Logik ist sehr schmerzhaft Punkt auf den innschenkel ausgeführt ist er sogar sehr schmerzhaft.
+der Lowkick ist sehr schmerzhaft Punkt auf den innschenkel ausgeführt ist er sogar sehr schmerzhaft.
 
 **middlekick**: der mittelkick wird auf die kurzen Rippen des Partners ausgeführt Punkt Rippen können leicht brechen Komma sei also im Training durchaus vorsichtig damit . trefflächen ist in der Regel das Schienbein
 
 **high-kick**: der eigentlich wird in der Regel zum Kopf ausgeführt. in der Regel führt man diesen Kick mit dem Rest aus (bitte anspannen) oder mit dem angespannten Fußballen
+
+**fegekick**: der fegetick ist ein sehr tief ausgeführter Kick , unterhalb des knöchels . Treff ist die weiche angespannte fußsohle . das Bein des Partners wird zu 45 ° nach vorne außen weggefegt . idealerweise fühlt man diese Bewegung aus , wenn das Bein einigermaßen entlastet ist , also kurz vor dem aufsetzen des weines oder beim abheben des Beines Punkt (nicht auf das bein drauf Holzen , dass das komplette Gewicht trägt . das funktioniert erstens nicht und zweitens ist es verletzungsgefährlich.)
 
 alle rundkicks/mawashi geris sind komplexe Techniken. du benötigst hierzu eine ordentliche Portion Balance und Koordination. 
 
