@@ -89,6 +89,12 @@ der Frontkick ist ein gerader Kick. daher ist die wichtigste Bewegung, nach link
 
 wenn du das Bein fängst, bieten sich diverse folgetechniken an, um z.B das Standbein des Gegners zu fegen undden Gegner zu Fall zu bringen.
 
+wenn du zeitig ausweist, verkürzt du damit auch gleichzeitig die Distanz Punkt das heißt du hast nach dem zeitlichen ausweichen die Chance, mit der Faust zu treffen
+
+**übung**
+
+XXXXX
+
 ## Sidekicks 
 
 der Sidekick ist ein sehr beliebter Kick. du kannst den zeitig als angriffskick verwenden oder auch als stopKick . denn er ist nicht nur effektiv und bezüglich der Distanz höchst variabel, sondern sieht auch sehr fancy aus nicht umsonst findet er sich auf vielen Pokalen dargestellt. den Sidekick übt man gerne vor dem Spiegel, eben weil er geil aussieht! darüber hinaus ist der technisch anspruchsvoll und man kann an vielen Details und Kleinigkeiten arbeiten
@@ -139,6 +145,23 @@ und vorab wieder der psychologische Trick: auf beiden Seiten kannst du den Kick 
 * dehnen: stell Dich seitlich vor deinen Partner, Harke dein rechtes vorderes Bein an seinen Nacken ein halte dich mit deiner rechten Hand an deiner Diagonalen Hand fest, Dreh deine Hüfte ein, so dass deine rechte Arschbacke Richtung Partner steht, bleibe aufrecht halte diese Position 30 Sekunden
 
 viele dieser Übungen kannst du langsam und kontrolliert ausführen. sie bieten sich daher auch zum auch zum Netflix Training an, du kannst also dabei glotzen. um die Schwierigkeitsstufe zu steigern, ergänze Gewichte an den Knöcheln oder ein Theraband
+
+**sidekick - verteidigung**
+
+front kick und sidekick sind beide gerade Kicks. die Verteidigung ist daher identisch 
+
+* seitlich ausweichen
+* fegen nach aussen, du bewegst dich auf die Außenbahn des Gegners 
+* fegen nach innen, du bewegst dich auf die Innenbahn des Gegners
+* seitlich ausweichen, bein des Gegners fangen
+* deines Gegners fegen, vor Absetzen des Fußes des Gegners selbst mit einem sehr tiefen lockig die Bewegung weiterführen, so den Gegner zu verbringen
+* zurückspringen um aus der Reichweite des Kicks zu gelangen, dann gleich wieder nach vorne springen mit einem Gegenangriff
+
+der Unterschied zwischen Verteidigung und Frontkick liegt in den möglichen folgetechniken. der Körper des Gegners ist ja um 90 Grad versetzt. wenn du nach außen ausweichst, hast du daher nur noch den Rücken zum Angriff und das ist in den meisten Regelwerken zurecht verboten. auch ist der Bauch von außen schwerer erreichbar.
+
+**übung**
+
+XXXXX
 
 ## roundhouse kicks
 
