@@ -66,7 +66,7 @@ der Frontkick ist ein nach vorne ausgeführter kick. der Kik kann ausgeführt we
 
 der Kick mit dem **hinteren Bein** hat besondere Stärke hier kannst du nämlich dein ganzes Gewicht reinlegen. das **vordere Bein** wird immer einen schwächeren kick produzieren. der sogenannte **SwitchKick** löst dieses Problem indem du vor dem Kick mit den vorderen Beinen einen schnellen auslagenwechsel durchführst, so wird das vordere Bein zum hinteren Bein und bekommt auch mehr Kraft.
 
-beachte: beim kick nach vorne kannst du Durchdrehen der Hüfte noch viel länger gut machen, sicherlich 10 cm. dies bedingt unter anderem, dass du den Standfuß ein bisschen eindrehst, zum Teil so weit dass der Fuß 90° zur kiekrichtung steht
+beachte: beim kick nach vorne kannst du durch Drehen der Hüfte noch viel länger gut machen, sicherlich 10 cm. dies bedingt unter anderem, dass du den Standfuß ein bisschen eindrehst, zum Teil so weit dass der Fuß 90° zur kiekrichtung steht
 
 **übung**
 
@@ -127,9 +127,17 @@ und vorab wieder der psychologische Trick: auf beiden Seiten kannst du den Kick 
 
 viele dieser Übungen kannst du langsam und kontrolliert ausführen. sie bieten sich daher auch zum auch zum Netflix Training an, du kannst also dabei glotzen. um die Schwierigkeitsstufe zu steigern, ergänze Gewichte an den Knöcheln oder ein Theraband
 
-**frontkick blocken**
+**frontkick verteidigung**
 
-XXXXX
+der Frontkick ist ein gerader Kick. daher ist die wichtigste Bewegung, nach links oder nach rechts auszuweichen.(nach hinten ausweichen geht auch, aber damit siehst du den Gegner wieder auf sich, so dass er ein weiteren Angriff starten wird. also lieber seitlich raus. insgesamt hast du folgende Möglichkeiten: 
+
+* seitlich ausweichen
+* fegen nach aussen, du bewegst dich auf die Außenbahn des Gegners 
+* fegen nach innen, du bewegst dich auf die Innenbahn des Gegners
+* seitlich ausweichen, bein des Gegners fangen
+* deines Gegners fegen, vor Absetzen des Fußes des Gegners selbst mit einem sehr tiefen lockig die Bewegung weiterführen, so den Gegner zu verbringen
+
+wenn du das Bein fängst, bieten sich diverse folgetechniken an, um z.B das Standbein des Gegners zu fegen undden Gegner zu Fall zu bringen.
 
 ## roundhouse kicks
 
