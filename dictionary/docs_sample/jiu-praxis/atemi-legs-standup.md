@@ -327,7 +327,29 @@ wenn jemand an dir einen dicken ausführt, wird er vermutlich in irgendeiner Wei
 
 ## rückwärtige kicks
 
-Blickrichtung
+rückwärtige Keks werden in der Regel nicht einfach so in den Raum geworfen. sie resultieren in der Regel aus einer vorgenommenen Bewegungsrichtung, die unter anderem auch folgende vorausgehende Handlungen durch Dich oder den Gegner zurückgehen:
+
+* vorbereitete Bewegung: du hast eine Kombination speziell so aufgebaut, dass Sie in einem rückwärtigen Kick resultiert 
+* unvorbereitet, du landest irgendwie in einer seltsamen Position, und daraus versuchst du eine Technik zu machen 
+* Initiation durch Bewegung des Gegners: dein Gegner bewegt sich in einer Weise, dass ich ein rückwärtiger Kick anbietet
+
+es gibt viele verschiedene Arten von rückwärtigen Kicks, hier die bekanntesten:
+
+* ushiro geri, traditionell: gerade Kick nach hinten. traditionell zeigt die Ferse nach oben
+* (spinning) back kick, ushiro geri: gerade Kick nach hinten, ein sideKick nach vorangehender drehung, trefffläche ist entsprechen die Fußkante oder ferse
+* back roundhouse kick, ushiro mawashi geri: runder bzw. gedrehter kick, trefffläche ist die gesamte fusssohle ( freundliche Variante) oder die ferse (vorsichtig, knockout-gefahr)
+
+**Blickrichtung**: bei rückwärtigen Klicks drehst du dich Punkt entsprechend schaut dein Kopf für einen Moment nicht zum Partner. halte diesen toten Winkel so gering wie möglich. das heißt drehe deinen Kopf frühzeitig wieder in Richtung des Partners. so hast du ihn rechtzeitig im Griff, um dein aiming anzupassen. 
+
+andersrum: wartest du zu lange mit dem Blickkontakt, kann es sein dass dein Gegner sich von dir unbemerkt an eine andere Stelle bewegt. und dann geht dein Kick ins Leere. 
+
+sicherlich hast du schon einmal Balletttänzer bei Pirouetten beobachtet. diese halten in publikumsrichtung so lange Blickkontakt wie es geht um dann ganz schnell zu drehen
+
+**breiterstand**: bei allem bei Kicks hast du eine massive Drehung um 180 oder 360°. und diese kontrolliert ausführen zu können brauchst du einen breiten stand. setzt du deine Beine nebeneinander ab, wirst du herumeiern wie ein Lama Kreisel. daher sieht so, dass du mindestens einen schulterbreit
+
+XXXXX
+
+die Blickrichtung, die kontrollierte Blickrichtung kannst du wie folgt trainieren.
 
 ## weiterekicks
 
