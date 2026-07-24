@@ -275,10 +275,26 @@ die folgende Übungen mit dem geraden Kniestoß und danach mit dem Mawashi Knies
 * 5x kneekick zum bauch des partners, langsam und kontrolliert, ohne greifen
 * 5x partner greifen an nacken und oberarm, kniestoss
 * 5x in Abstand stehen, Griff erarbeiten, knieStoß
+* 3x kicks zum overschenkel des partners, dann angreiferwechsel
 
 alle diese Übungen kannst du auch auf die Bratze ausführen. 
 
-**im kampf**: diese Technik wird übrigens wirkungsvoller, wenn sich der Gegner nicht darauf einstellen kann. siehe daher in Erwägung den Partner zu drehen, wenn du ihn greifst. sie an ihm oder schief an ihn, so dass er den Stand verliert und setze dann erst den kneekick
+**ziel - aiming**
+
+diese Übung geht nur partnerweise. Partner sind oberkörperfrei, zumindest sollten Rippen und Bauch sichtbar sein. 
+
+die Kicks nur andeuten bzw. ganz vorsichtig ausführen
+
+* leber, befindet sich unter dem rechten Rippenbogen 
+* Solarplexus 
+* kurze Rippen, das sind die kleinen Rippen links und rechts unten am Brustkorb die sich nicht mit dem sternum/brustbeinvereinen
+* Niere (Rücken, nur zur Selbstverteidigung)
+
+tipp: zeichnet diese Punkte farblich an mit einem Edding oder klebt ein farbiges Tape darauf. gibt euch jeweils Rückmeldung ob gut getroffen wurde oder nicht. 
+
+Achtung: ihr schickt dir wirklich auf Organen und Druckpunkt herum herum, mach das vorsichtig und partnerschaftlich!
+
+**im kampf**: diese Technik wird übrigens wirkungsvoller, wenn sich der Gegner nicht darauf einstellen kann. greife den partner und **drehe** ihn. so verliert er seine stabilen Stand und ist abgelenkt. folglich wird deine Technik besser treffen 
 
 **kneekick verteidigen**
 
