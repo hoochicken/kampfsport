@@ -263,13 +263,22 @@ besonders an Kniestößen ist, dass die Hände in der Regel mitarbeiten. der Par
 
 auch hier gibt es natürlich verschiedene Varianten 
 
-**frontaler kneekick**: Kik mit dem Knie nach vorne. die SPD, dass die Hüfte vor dem Kik hinten ist und mit dem Kick nach vorne gebracht wird. Ziel ist der Bauch des Gegners oder der Muskelansatz des Oberschenkelmuskels am Knie
+**frontaler kneekick**: Kik mit dem Knie nach vorne. die SPD, dass die Hüfte vor dem Kik hinten ist und mit dem Kick nach vorne gebracht wird. Ziel ist der Bauch des Gegners oder der Muskelansatz des Oberschenkelmuskels am Knie; dieser Kick kann im Stand oder auch gesprungen ausgeführt werden
 
 **mawashi kneekick**: dieser Kick wird in der Regel zum Bauch ausgeführt. wichtig ist hier natürlich die Drehung auf dem Standbein. hier ist es besonders wichtig, die Rumpfmuskulatur anzuspannen damit man den Gegner in seinen Kik hineinziehen kann. in der Regel hält eine Hand hinterm Nacken die andere am Trizeps des Partners
 
 **übungen**:
 
-* 
+die folgende Übungen mit dem geraden Kniestoß und danach mit dem Mawashi Kniestoß durchführen
+
+* 5x flamingostellung, mit zurückgezogener hüfte; dann 5x mit kick; dann 5x mit 3 Kicks (mür)
+* 5x kneekick zum bauch des partners, langsam und kontrolliert, ohne greifen
+* 5x partner greifen an nacken und oberarm, kniestoss
+* 5x in Abstand stehen, Griff erarbeiten, knieStoß
+
+alle diese Übungen kannst du auch auf die Bratze ausführen. 
+
+**im kampf**: diese Technik wird übrigens wirkungsvoller, wenn sich der Gegner nicht darauf einstellen kann. siehe daher in Erwägung den Partner zu drehen, wenn du ihn greifst. sie an ihm oder schief an ihn, so dass er den Stand verliert und setze dann erst den kneekick
 
 **kneekick verteidigen**
 
