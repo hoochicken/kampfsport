@@ -335,9 +335,14 @@ rückwärtige Keks werden in der Regel nicht einfach so in den Raum geworfen. si
 
 es gibt viele verschiedene Arten von rückwärtigen Kicks, hier die bekanntesten:
 
-* ushiro geri, traditionell: gerade Kick nach hinten. traditionell zeigt die Ferse nach oben
-* (spinning) back kick, ushiro geri: gerade Kick nach hinten, ein sideKick nach vorangehender drehung, trefffläche ist entsprechen die Fußkante oder ferse
+* ushiro geri, traditionell: gerader Kick nach hinten. traditionell zeigt die Ferse nach oben
+* (spinning) back kick, ushiro geri: gerader Kick nach hinten, ein sideKick nach vorangehender drehung, trefffläche ist entsprechen die Fußkante oder ferse
 * back roundhouse kick, ushiro mawashi geri: runder bzw. gedrehter kick, trefffläche ist die gesamte fusssohle ( freundliche Variante) oder die ferse (vorsichtig, knockout-gefahr)
+
+Hinweis: für den background of Kick gibt es viele Varianten Punkt ausführen kannst du unter anderem:
+
+* fast gestrecktes Bein
+* ein angezogen wie bei der traditionellen Zeit geht Vorbereitung, Sidekick neben das Ziel, explosives Beugen des Knies zur Durchführung des Kicks
 
 **Blickrichtung**: bei rückwärtigen Klicks drehst du dich Punkt entsprechend schaut dein Kopf für einen Moment nicht zum Partner. halte diesen toten Winkel so gering wie möglich. das heißt drehe deinen Kopf frühzeitig wieder in Richtung des Partners. so hast du ihn rechtzeitig im Griff, um dein aiming anzupassen. 
 
@@ -345,13 +350,38 @@ andersrum: wartest du zu lange mit dem Blickkontakt, kann es sein dass dein Gegn
 
 sicherlich hast du schon einmal Balletttänzer bei Pirouetten beobachtet. diese halten in publikumsrichtung so lange Blickkontakt wie es geht um dann ganz schnell zu drehen
 
-**breiterstand**: bei allem bei Kicks hast du eine massive Drehung um 180 oder 360°. und diese kontrolliert ausführen zu können brauchst du einen breiten stand. setzt du deine Beine nebeneinander ab, wirst du herumeiern wie ein Lama Kreisel. daher sieht so, dass du mindestens einen schulterbreit
+**stand 1 - breiter stand**: bei allem bei Kicks hast du eine massive Drehung um 180 oder 360°. und diese kontrolliert ausführen zu können brauchst du einen breiten stand. setzt du deine Beine nebeneinander ab, wirst du herumeiern wie ein Lama Kreisel. daher sieht so, dass du mindestens einen schulterbreit
 
-XXXXX
+**stand 2 - "schienen-wechsel"**: ein stabiler Kick braucht ein stabilen kontrollierten Stand. da du ein massiven Richtungswechsel hast, empfehle ich dir, dass du mit der Drehung das kickende Bein 180-90 Grad zu Kick-Richtung stehen hast. ( in den meisten Fällen ist 135° ideal.)
+
+stell dir vor , deine Füße stehen auf Schienen. setze dein vorderes Bein auf der Schiene ab, die sich auf dem der anderen Seite deine Standbeins befindet Punkt dies stellt gedanklich sicher, dass dein stand breit ist
+
+**blick-übung**
 
 die Blickrichtung, die kontrollierte Blickrichtung kannst du wie folgt trainieren.
 
-## weiterekicks
+* stell dich in frontaler Kampfstellung hin
+* setze deinen vorderes Bein schräg auf deine Außenbahn, stelle dir dort eine zweite Schiene vor komme auf die  
+* jetzt steht dein hinteres Bein 135° zur kickrichtung
+* drehe deinen kompletten Oberkörper in Richtung zum gegner/spiegel, halte dabei die Deckung oben
+* entscheide wohin du kicken möchtest
+* führe den Kick aus
+
+vor einer Spiegelwand lässt sich dies am einfachsten trainieren. ja, du wirst rumgewackeln, ja dass sie zwischendurch kacke aus, das ist alles ein Prozess. aus jedem Fehler wirst du lernen . mit jeder Kick-ausführung wirst du besser
+
+**nach dem kick ist vor dem kick**
+
+der Kick selbst ist nur die halbe Miete wahrscheinlich wird der Kik kein Knockout sein. das heißt der Kampf geht danach weiter Punkt umso wichtiger ist es, dass du in ein stabilen Stand zurück findest. daher folgende Tipps
+
+* dir dein Bein schnell zurück 
+* Klappe dein Bein ein. damit sicherst du deinen Schwerpunkt über deiner Standfläche. 
+* setze dein Bein kontrolliert dort ab, wo du möchtest ( und nicht da, wo es gerade hinfällt)
+
+**übung**
+
+
+
+## weitere kicks
 
 * backkick 
 * back roundhouse Kick 
