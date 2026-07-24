@@ -306,8 +306,8 @@ wie du dich gegen Genetik verteidigst hängt davon ab, wohin er platziert wurde.
     * aus der Balance Ziehen des Partners 
 * kneekick gegen Bauch
     * ausweichen durch Zurückziehen des Bauches 
-    * unterarmblock 
-    * Unterarm Block und weiterleiten 
+    * unterarmblock, der Block wird nicht auf dem Knie, sondern auf der Oberseite des Oberschenkels ausgeführt. da Kraft auf Kraft kommt ist diese Variante sehr anstrengend für das Knochengerüst 
+    * Unterarm Block und weiterleiten , durch das weiterleiten wird eine extreme Belastung des Knochengerüstes (dr unterarmknochen) vermieten
     * Ellenbogen zum Oberschenkelmuskel (schmerzhaft und fies) 
 * kneekick zum Kopf 
    * passiv Block 
@@ -321,8 +321,9 @@ wenn jemand an dir einen dicken ausführt, wird er vermutlich in irgendeiner Wei
 
 **übung**
 
-* 
-
+* [angriff] - reaktion
+* [greifen, kneekick] - bauch zurückziehen
+* [greifen, kneekick] - unterarm-block mit seitlichen weiterleiten
 
 ## rückwärtige kicks
 
