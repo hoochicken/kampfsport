@@ -319,20 +319,21 @@ Achtung: ihr schickt dir wirklich auf Organen und Druckpunkt herum herum, mach d
 
 wie du dich gegen Genetik verteidigst hängt davon ab, wohin er platziert wurde. 
 
-* kneekick auf Oberschenkel:
+* [angriff] - verteidigung
+* [kneekick auf Oberschenkel] - 
     * zurückweichen 
     * ausweichen 
     * aus der Balance Ziehen des Partners 
-* kneekick gegen Bauch
+* [kneekick gegen Bauch] - 
     * ausweichen durch Zurückziehen des Bauches 
     * unterarmblock, der Block wird nicht auf dem Knie, sondern auf der Oberseite des Oberschenkels ausgeführt. da Kraft auf Kraft kommt ist diese Variante sehr anstrengend für das Knochengerüst 
     * Unterarm Block und weiterleiten , durch das weiterleiten wird eine extreme Belastung des Knochengerüstes (dr unterarmknochen) vermieten
     * Ellenbogen zum Oberschenkelmuskel (schmerzhaft und fies) 
-* kneekick zum Kopf 
-   * passiv Block 
+* [kneekick zum Kopf] - 
+    * passiv Block 
     * Unterarm Block und weiterleiten 
     * generell den Kopf oben halten und nicht im einflugsbereich des Knies 
-* gesprungener kneekick: 
+* [gesprungener kneekick] -
     * zur seite ausweichen
     * zurückbrechen
 
