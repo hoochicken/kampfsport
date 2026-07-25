@@ -12,7 +12,7 @@ das dominante und damit stärkere Bein steht dann hinten Punkt das hintere Bein 
 
 ## trefffläche
 
-je nach Ausführung als Kik oder Stoß, bieten sich folgende Trefferflächen an
+je nach Ausführung als Kik oder Stoß, bieten sich folgende Treffflächen an
 
 * ganze Fußfläche zum Stoß 
 * Ballen so Schmerz 
@@ -23,8 +23,8 @@ je nach Ausführung als Kik oder Stoß, bieten sich folgende Trefferflächen an
 
 auch hier gilt: 
 
-* kleine Trefferfläche je kleiner die Trefferfläche, umso größer der im Park und Schmerz. hier sind sogenannte cuts das heißt Platzwunden möglich. 
-* grosse trefferfläche: je größer die Trefferfläche, umso leichter kannst du den anderen wegstoßen. böse dient der Distanzkontrolle
+* kleine Trefffläche je kleiner die Trefffläche, umso größer der im Park und Schmerz. hier sind sogenannte cuts das heißt Platzwunden möglich. 
+* grosse trefffläche: je größer die Trefffläche, umso leichter kannst du den anderen wegstoßen. böse dient der Distanzkontrolle
 
 ## sicherer stand und weitere grundregeln
 
@@ -193,7 +193,9 @@ der mawashi Geri kann in verschiedenen Höhen ausgeführt werden. je nach Ebene 
 
 **lowkick**: der Logik zählt auf den Oberschenkel des Gegners ab. idealerweise wird der Muskelansatz des großen vorderen Oberschenkelmuskels angestrebt. der Fläche ist ein Schienbein. das bedeutet, dass du mit etwas sehr hartem (deinem Schienbeinknochen das bedeutet, dass du mit etwas sehr hartem (deinem Schienbeinknochen) auf etwas weiches Verletzliches (muskelgewebe).
 
-der Lowkick ist sehr schmerzhaft Punkt auf den innschenkel ausgeführt ist er sogar sehr schmerzhaft.
+der Lowkick ist sehr schmerzhaft . auf den innschenkel ausgeführt ist er sogar sehr schmerzhaft.
+
+**beugung und gegenkraft** der lowkick kann ein Knie auch zerstören. wird der lowkick auf ein gestrecktes Bein aufgeführt, kann dies zu einer massiven Verletzung des Knies führen. achte bei deinem Partner immer darauf, dass er ein gebeugtes Knie hat. insbesondere beim **Pratzen**halten muss das Knie hinter der Bratze gebeugt sein und Gegenkraft geben!
 
 **middlekick**: der mittelkick wird auf die kurzen Rippen des Partners ausgeführt Punkt Rippen können leicht brechen Komma sei also im Training durchaus vorsichtig damit . trefflächen ist in der Regel das Schienbein
 
@@ -206,7 +208,7 @@ alle rundkicks/mawashi geris sind komplexe Techniken. du benötigst hierzu eine 
 **varianten**: mawashi / rundkicks gaben unzählige Varianten. hier findest du ganz grob die verschiedenen mir bekannten Varianten fixiert.
 
 * gestrecktes bein: die Bewegung wird ausgeführt mit fast gestrecktem Bein, dadurch ist die Bewegung langsam, aber sehr sehr kraftvoll
-* aus dr flamingostellung: das Bein wird angezogen, das Knie steht vor der Brust, Schienbein senkrecht. von hier erfolgt eine Hüftdrehung und anschließender kick; dies ist ein schneller Kick, zumal den Gegner erst sehr spät offenbar wird, ob ein gerader kick folgt oder ein gedrehter
+* aus der flamingostellung: das Bein wird angezogen, das Knie steht vor der Brust, Schienbein senkrecht. von hier erfolgt eine Hüftdrehung und anschließender kick; dies ist ein schneller Kick, zumal den Gegner erst sehr spät offenbar wird, ob ein gerader kick folgt oder ein gedrehter
 * aus der pipihundstellung: das Knie wird nach vorne gebracht, das Schienbein steht horizontal, aus dieser Stellung wird der Kick gebracht
 * mit Unterstützung der Schwerkraft: begonnen wird in der flamingostellung, der das Bein wird nach oben ausgestreckt und danach unten in das Ziel fallen gelassen. zumeist findet die Verwendung bei locis ist es leicht nach unten zu kicken); bei einem großen Höhenunterschied kann der größere Partner durchaus auch einen vernichtenden Kick nach unten zum Kopf machen
 * **questionmark kick**: dieser Kick ist genau genommen eine finte. du siehst das Bein hoch als würdest du zum Front gekicken bevor der aber einschlägst drehst du die Hüfte zum woanders Kick.
@@ -232,6 +234,10 @@ alle rundkicks/mawashi geris sind komplexe Techniken. du benötigst hierzu eine 
 * wegdrehen vom Kik so dass der Kick auf den stabil Gluteus Maximus (dein Arsch abgeklappt
 * Schienbein Block( nur mit entsprechender Schutzausrüstung, andernfalls massive schmerzwirkung oder sogar schwere Verletzung)
 
+**gebeugtes bein!**: wenn der Gegner ein Lowkick macht ist es ganz ganz wichtig, dass dein Bein gebeugt ist, wenn der Kick einschlägt. das sollte normalerweise kein Problem sein, weil wir immer mit gebeugten Beinen in der Kampfstellung dastehen. achte aber besonders darauf dass dein knie wirklich gebeugt ist. andernfalls kann es zu einer massiven Verletzung kommen . denn ein lowkick auf ein gestrecktes bein/knie, bedeutet, dass eventuell das Knie in seinem Halteapparat zerstört wird. (aussenbänder, innenbänder, Miniskus, such dir was aus. das kann alles kaputt gehen.) das heißt: **beuge dein Bein!**
+
+**sparring? schütze den unwissenden**: manchmal kommt es vor, dass im Sparring einer der Partner nicht mehr richtig stehen kann. infolgedessen ist sein bein gestreckt. er humpelt dann so ein bisschen rum. ich persönlich gehe in so einem Fall sofort dazwischen, und erkläre diese Runde für beendet. es bringt nichts, sich für eine dämliche sparringsrunde das Knie zu ruinieren und für ein Jahr stillgelegt zu sein.
+
 ** middle roundhouse kIcks blocken**
 
 * nach hinten ausweichen 
@@ -252,9 +258,12 @@ alle rundkicks/mawashi geris sind komplexe Techniken. du benötigst hierzu eine 
 **übung**
 
 * [angriff] - reaktion
-* lowkick - schienbeinblock
-* middlekick - schienbeinblock
-* 
+* [lowkick] - schienbeinblock
+* [middlekick] - schienbeinblock
+* [highkick] - abblocken von oben mit gegenseitiger Hand, gleichseitige Hand verbleibt passiv am Kopf
+* [lowkick] - gegenkraft oberschenkel
+* [middlekick] - abblocken von oben mit gegenseitiger Hand, gleichseitige Hand verbleibt passiv am Kopf
+* [highkick] - weiterleiten, gleichseitige Hand verbleibt passiv am Kopf
 
 ## kneekicks
 
