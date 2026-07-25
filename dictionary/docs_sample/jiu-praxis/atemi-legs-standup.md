@@ -398,19 +398,39 @@ der Kick selbst ist nur die halbe Miete wahrscheinlich wird der Kik kein Knockou
 
 ## weitere kicks
 
-* axe kick: Bein wird fast gestreckt auf der Innenseite nach oben gezogen dann fallen gelassen; Ziel
-    * Brechen des schlüsselbeins
-    * deckung des gegners nach unten bringen, um eine Folgetechnik zu ermöglichen,  zum Beispiel hook
-* axekick 2:der axekick kann auch von aus nach innen durchgeführt werden
-* crescent Kick : eine mit der Fußsohle ausgeführte Ohrfeige, das Bein bewegt sich ähnlich wie beim exklick von außen nach innen. das Knie kann beim Hochziehen etwas angezogen sein so dass man bei der Ausführung der Ohrfeige den Kick verstärken kann durch "ausschlagen"  des unterschenkels
-* crescent kick 2: kann auch von innen nach außen ausgeführt werden, dann ist die Trefffläche der angespannte Fußrist,  Ziele können sein:
-    * untere Kante des Kiefers
-    * nach unten schlagen der Deckung zur Ermöglichung einer folgetechnik, z.B Hook
-* rear Jumping Back Kick : wie das Spinning backing aber es wird gesprungen
-* reverse roundhouse kick: das Knie wird nach oben gezogen und der Unterschenkel von innen nach außen geklappt. (der Roundhouse Kick wird komplett auf der Außenbahn ausgeführt, der Reverse Kick bewegt sich auf der Innenbahn, bisschen ungewohnt) Trefffläche ist der fussrist, ziel:
-    * kurze rippen
-    * solar plexus
-    * kopf
+**axe kick nach aussen**
+
+Bein wird fast gestreckt auf der Innenseite nach oben gezogen dann fallen gelassen; Ziel
+
+* Brechen des schlüsselbeins
+* deckung des gegners nach unten bringen, um eine Folgetechnik zu ermöglichen,  zum Beispiel hook
+
+**axekick nach innen**
+
+der axekick kann auch von aus nach innen durchgeführt werden
+
+**crescent Kick nach innen** 
+
+eine mit der Fußsohle ausgeführte Ohrfeige, das Bein bewegt sich ähnlich wie beim exklick von außen nach innen. das Knie kann beim Hochziehen etwas angezogen sein so dass man bei der Ausführung der Ohrfeige den Kick verstärken kann durch "ausschlagen"  des unterschenkels
+
+**crescent kick nach aussen**
+
+kann auch von innen nach außen ausgeführt werden, dann ist die Trefffläche der angespannte Fußrist,  Ziele können sein:
+
+* untere Kante des Kiefers
+* nach unten schlagen der Deckung zur Ermöglichung einer folgetechnik, z.B Hook
+
+**rear Jumping Back Kick** 
+
+wie der Spinning backkick aber es wird gesprungen
+
+**reverse roundhouse kick**
+
+das Knie wird nach oben gezogen und der Unterschenkel von innen nach außen geklappt. (der Roundhouse Kick wird komplett auf der Außenbahn ausgeführt, der Reverse Kick bewegt sich auf der Innenbahn, bisschen ungewohnt) Trefffläche ist der fussrist, ziel:
+
+* kurze rippen
+* solar plexus
+* kopf
 
 sicherlich gibt es hier noch tausend Varianten von Kicks. hier oben findest du die geläufigsten und das soll erstmal genug sein.
 
