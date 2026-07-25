@@ -1,6 +1,6 @@
-## Atemi & Standup
+# Atemi & Standup
 
-### Nomenklatur
+## Nomenklatur
 
 Üblicherweise nimmt ein Rechtshänder des rechte Bein nach hinten, ein Linkshänder das linke Bein.
 
@@ -19,7 +19,7 @@ Bei Ausführung jeglicher Atemi: Das **Gelenk** (hier Ellenbogengelenk) muss ein
 
 mit jeder artemitechnik, solltest du auch einen Schritt machen. dieser Schritt kann sehr klein sein 10 cm 5 cm 1 cm. wichtig ist, dass du dich bewegst, denn dann kommt die Kraft deiner Körpermasse mit in den Schlag hinein
 
-### Jab
+## Jab
 
 Der Jab ist ein schneller gerader Fauststoß mit der Führhand.
 Die Bewegung verläuft direkt nach vorne. Die Schulter hebt sich leicht zum Schutz des Kinns, die hintere Hand bleibt an der Deckung.
@@ -31,7 +31,7 @@ Durch seine Geschwindigkeit ist der Jab schwer vorhersehbar und ermöglicht schn
 
 Der Schlag erzeugt meist weniger Kraft als die hintere Schlaghand, ist dafür jedoch schneller und sicherer.
 
-### Punch
+## Punch
 
 Ein Punch ist ein Fauststoss mit der hinteren (üblicherweise dominanten) Hand zum Gegner.
 Die Kraft entsteht aus Körperdrehung, Gewichtsverlagerung und Streckung des Arms. Die zweite Hand bleibt möglichst an der Deckung.
@@ -42,7 +42,7 @@ Gerade Fauststöße sind schnell und kontrollierbar. Seitliche Schläge und Hake
 
 Unsichere Deckung, fehlende Hüftrotation oder überstreckte Bewegungen verringern Kontrolle und Schlagwirkung.
 
-### Hook
+## Hook
 
 Der Haken ist ein seitlicher Fauststoß.
 Der Arm bleibt leicht gebeugt. Die Bewegung entsteht aus Hüftrotation und Körperdrehung. Die Kraft wird seitlich in das Ziel übertragen.
@@ -55,7 +55,7 @@ Besonders geeignet sind Angriffe gegen: Kiefer, Schläfe, Rippen und Leberbereic
 
 Zu weite Ausholbewegungen machen den Schlag langsam und vorhersehbar. Die zweite Hand bleibt möglichst an der Deckung. Das Zurückziehen der Hand in die Deckung soll direkt erfolgen, in möglichst gerader Linie.
 
-### Weitere Atemi
+## Weitere Atemi
 
 Weitere Atemi sind:
 
@@ -65,7 +65,7 @@ Weitere Atemi sind:
 * Backfist / Rückhandschlag: ggf. aus einer Drehung heraus
 * Fingerstich: nur zu weichen Körperteilen, z. B. Kehle
 
-### Übungen I
+## Übungen I
 
 Diese Übungn sind notiert für den Jab. Übertrage diese auch auf die anderen Schlag- und Stoss-Atemi.
 
@@ -77,7 +77,7 @@ Diese Übungn sind notiert für den Jab. Übertrage diese auch auf die anderen S
 * Schnelligkeitsübung: führe den Jab 20 x aus mit einem Gewicht (z. B. 500ml-Flasche) in der Hand, dann 5 x ohne <= der Jab wird sehr schnell (Achtung: hau dich nicht mit dem Gewicht!)
 * korrekte Fußstellung auf Ballen: stelle dich an deine Wand, stehe in Kampfstellung drücke mit deiner Schlaghand in die Wand hinein. gehe dabei mit deinem hinteren Fuß auf den Beinen. du merkst du, dass du richtig viel Schub mit dem hinteren Bein geben kannst . übertrage diese schubübung auf die schlagübung
 
-### Ellenbogen
+## Ellenbogen
 
 Ellenbogenstöße sind kurze harte Angriffe auf kurze Distanz.
 Durch die kleine harte Trefferfläche entsteht hohe Schlagwirkung bei geringem Bewegungsweg.
@@ -109,3 +109,4 @@ Diese Übungen sind notiert für den rechten Mawashi-Ellenbogen. Übertrage dies
 - Halte den rechten Arm ausgestreckt, die Position der Hand markiert deine geplante Trefferposition; führe den rechten Mawashi-Ellenbogen mit Step-Schritt aus, der genau diese Trefferposition trifft, die zuvor die rechte Hand markiert hat
 - kehre nach jeder Technik in die Kampfstellung zurück
 - Partnerübung: steh dem Partner gegenüber, führe mit der rechten Hand die gleichseitige Deckung deines Partners nach unten, setze eine Ellenbogen-Technik nach LANGSAM und KONTROLLIERT, mach einen Stepschritt
+
