@@ -57,6 +57,16 @@ je mehr welche du auf dem Boden hast, umso stabiler wird dein stand. das brauchs
 
 und: das Knie ist ein Scharniergelenk, die natürlich Bewegungsrichtung ist einachsig. darüber hinaus ist das Knie das wichtigste Gelenk beim die Vorgang. du brauchst es bis ins hohe Alter hinein
 
+## verteidigung
+
+Kicks sind aufgrund der großen Masse des Beins und der immensen Kraftübertragung generell "gefährliche" Angriffe. ein Klick musst du immer ernst zu nehmen!  daher muss man wissen, wie man einen Kick ordentlich verteidigt. dabei gibt es verschiedene Strategien. diese sind hier nach ihrer Effektivität geordnet
+
+* Bewegungsmuster zu haben welches dem Gegner erschwert deine Position vorauszusehen
+* frühzeitig ausweichen 
+* Blocken, Parieren, Fegen
+
+diesen Kapitel wird massiv auf das Blocken eingegangen, das heißt die direkte Auseinandersetzung mit der atemi-technik. zu Bewegungslehre und Verteidigung gibt es jeweils ein eigenes Kapitel. dort findest du ebenfalls wichtige Informationen
+
 ## frontkicks
 
 der Frontkick ist ein nach vorne ausgeführter kick. der Kik kann ausgeführt werden als 
@@ -238,7 +248,7 @@ alle rundkicks/mawashi geris sind komplexe Techniken. du benötigst hierzu eine 
 
 **sparring? schütze den unwissenden**: manchmal kommt es vor, dass im Sparring einer der Partner nicht mehr richtig stehen kann. infolgedessen ist sein bein gestreckt. er humpelt dann so ein bisschen rum. ich persönlich gehe in so einem Fall sofort dazwischen, und erkläre diese Runde für beendet. es bringt nichts, sich für eine dämliche sparringsrunde das Knie zu ruinieren und für ein Jahr stillgelegt zu sein.
 
-** middle roundhouse kIcks blocken**
+**middle roundhouse kIcks blocken**
 
 * nach hinten ausweichen 
 * nach hinten bauch zurückpendeln
