@@ -411,18 +411,22 @@ der Kick selbst ist nur die halbe Miete wahrscheinlich wird der Kik kein Knockou
 
 **axe kick nach aussen**
 
-Bein wird fast gestreckt auf der Innenseite nach oben gezogen dann fallen gelassen; Ziel
+Bein wird fast gestreckt auf der Innenseite nach oben gezogen dann nach aussen hin fallen gelassen; Ziel
 
 * Brechen des schlüsselbeins
-* deckung des gegners nach unten bringen, um eine Folgetechnik zu ermöglichen,  zum Beispiel hook
+* deckung des gegners nach unten bringen, um eine Folgetechnik zu kopf zu ermöglichen
+
+**typische kombi**: jab, punch, axekick (dom), hook führhand, hook führhand mit ausweichen 90° zur führhandrichtung, abschliessender highkick (dom)
 
 **axekick nach innen**
 
 der axekick kann auch von aus nach innen durchgeführt werden
 
+**typische kombi**: jab, punch, axekick (dom), hook (dom), hook (dom) mit ausweichen 90° zur dom-richtung, abschliessender highkick (führfuss)
+
 **crescent Kick nach innen** 
 
-eine mit der Fußsohle ausgeführte Ohrfeige, das Bein bewegt sich ähnlich wie beim exklick von außen nach innen. das Knie kann beim Hochziehen etwas angezogen sein so dass man bei der Ausführung der Ohrfeige den Kick verstärken kann durch "ausschlagen"  des unterschenkels
+eine mit der Fußsohle ausgeführte Ohrfeige, das Bein bewegt sich ähnlich wie beim axeklick von außen nach innen. das Knie kann beim Hochziehen etwas angezogen sein so dass man bei der Ausführung der Ohrfeige den Kick verstärken kann durch "ausschlagen"  des unterschenkels
 
 **crescent kick nach aussen**
 
@@ -444,6 +448,10 @@ das Knie wird nach oben gezogen und der Unterschenkel von innen nach außen gekl
 * kopf
 
 sicherlich gibt es hier noch tausend Varianten von Kicks. hier oben findest du die geläufigsten und das soll erstmal genug sein.
+
+**übung**
+
+
 
 
 
