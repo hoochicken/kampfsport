@@ -416,13 +416,13 @@ Bein wird fast gestreckt auf der Innenseite nach oben gezogen dann nach aussen h
 * Brechen des schlüsselbeins
 * deckung des gegners nach unten bringen, um eine Folgetechnik zu kopf zu ermöglichen
 
-**typische kombi**: jab, punch, axekick (dom), hook führhand, hook führhand mit ausweichen 90° zur führhandrichtung, abschliessender highkick (dom)
+**typische kombi**: jab, punch, axekick (dom), hook führhand, hook führhand mit ausweichen 90° zur führhandrichtung, abschliessender middlekick (dom)
 
 **axekick nach innen**
 
 der axekick kann auch von aus nach innen durchgeführt werden
 
-**typische kombi**: jab, punch, axekick (dom), hook (dom), hook (dom) mit ausweichen 90° zur dom-richtung, abschliessender highkick (führfuss)
+**typische kombi**: jab, punch, axekick (dom), hook (dom), hook (dom) mit ausweichen 90° zur dom-richtung, abschliessender middlekick (führfuss)
 
 **crescent Kick nach innen** 
 
@@ -441,17 +441,20 @@ wie der Spinning backkick aber es wird gesprungen
 
 **reverse roundhouse kick**
 
-das Knie wird nach oben gezogen und der Unterschenkel von innen nach außen geklappt. (der Roundhouse Kick wird komplett auf der Außenbahn ausgeführt, der Reverse Kick bewegt sich auf der Innenbahn, bisschen ungewohnt) Trefffläche ist der fussrist, ziel:
+das Knie wird nach oben gezogen und der Unterschenkel von innen nach außen geklappt. (der Roundhouse Kick wird komplett auf der Außenbahn ausgeführt, der Reverse Kick bewegt sich auf der Innenbahn, bisschen ungewohnt) ziel:
 
-* kurze rippen
-* solar plexus
-* kopf
+* kurze rippen, trefffläche: Schienbein Fußrist
+* solar plexus, treffliche Schienbein Fußrist
+* kopf, trefffläche fussrist
+
+Tipp: der Kick mit dem fußriss zum Kopf kannst Du wesentlich verstärken indem du den Fußrist aktiv anspannst und somit als harten Fuß zum Kind bringst
 
 sicherlich gibt es hier noch tausend Varianten von Kicks. hier oben findest du die geläufigsten und das soll erstmal genug sein.
 
 **übung**
 
-
+* 5x knee hochziehen, reverse kick (mür)
+* 5x 
 
 
 
