@@ -47,11 +47,26 @@ aich bei **langsamen** Üben MUSS eine Wirkung ersichtlich sein. Hierzu:
 
 * den Atemi zu Ende führen in das Körperteil des Partner hinein, LANGSAM!
 * der Partner arbeitet bitte mit und gibt dem Treffer entsprechend nach
+    * Schlag ins Gesicht => Partner lässt Kopf und Hals entsprechend des Treffers verbiegen / gibt nach
     * Schag in Bauch => Partner knickt ein, als wäre er schwer getroffen
-    * Blenden => Partner wartet geduldig auf weitere Aktionen
+    * Blenden des Partner => Partner wartet geduldig auf weitere Aktionen
+
+diese langsame Übung ist sehr lehrreich. beide Partner können dadurch angstfrei trainieren. so kann man Schläge ausprobieren, die man sonst nicht tun würde.
 
 ## schlag / kick und stoss
 
 eine atemitechnik kann als Schlag, als Wirkungstreffer ausgeführt werden. dabei wird die Trefferfläche möglichst klein gehalten Ziel ist es, bei dem Gegner Schmerz und scharf zu erzeugen 
 
 alternativ kann eine atemi-technik als Stoß ausgeführt werden. dann wird eine möglichst große Trefferfläche gewählt, die die Kraft gut verteilt. so kann man den Gegner von sich wegstoßen, oder sich vom Gegner abstoßen
+
+## bewegung, bewegung , bewegung
+
+die Bewegungslehre spielt eine große Rolle dabei wie effektiv du eine aremi-technik anwenden kannst . im Einzelnen entscheidet sie zum Beispiel über folgende Parameter
+
+* welche technik ist überhaupt anwendbar? - bezüglich Reichweite
+* welche Technik ist geschickt? bezüglich stand
+* wie effektive diese Technik sein ? - bzgl. Schmerz, wurf, k.o.
+* wie sicher bist du während und nach der Technik - bzgl. vor Konterangriff 
+
+in den kapiteln zu Bewegungslehre und Verteidigung gibt es jeweils ein eigenes Kapitel. dort kannst du ergänzend Informationen die erlesen. auch im Kapitel klingt wirst du einiges finden.
+
