@@ -7,25 +7,25 @@
 
 Hinweis: "-hand" bezeichnet hier sowohl das Körperteil als auch den Schlag selbst. "Mach 2 Führhände" = "Mach 2 Schläge mit der Führhand."
 
-### Trefferfläche
+### Trefffläche
 
-Die Größe der Trefferfläche beeinflusst Schmerz, Wirkung und Kraftübertragung eines Angriffs.
+Die Größe der Trefffläche beeinflusst Schmerz, Wirkung und Kraftübertragung eines Angriffs.
 
-Eine **große Trefferfläche** verteilt die Kraft auf einen größeren Bereich.
+Eine **große Trefffläche** verteilt die Kraft auf einen größeren Bereich.
 Dadurch entsteht meist weniger Schmerz und geringerer Impakt. Die Wirkung ähnelt eher einem Stoß als einem harten Schlag.
 
-Große Trefferflächen eignen sich besonders, um:, Abstand zu kontrollieren, den Gegner zu verschieben, Gleichgewicht zu brechen, den Stand zu manipulieren. Typische Beispiele sind: Handballen, Schulter, Körperstoß
+Große Treffflächen eignen sich besonders, um:, Abstand zu kontrollieren, den Gegner zu verschieben, Gleichgewicht zu brechen, den Stand zu manipulieren. Typische Beispiele sind: Handballen, Schulter, Körperstoß
 
-Eine **kleine Trefferfläche** konzentriert viel Kraft auf wenig Oberfläche.
+Eine **kleine Trefffläche** konzentriert viel Kraft auf wenig Oberfläche.
 Dadurch entstehen hoher Schmerz und starke Schlagwirkung.
 
-Die Wirkung ähnelt eher einem harten Schlag als einem Stoß. Kleine Trefferflächen können Prellungen, Platzwunden oder starke lokale Schmerzen verursachen. Typische Beispiele sind: Knöchel von Zeige- und Mittelfinger, Ellenbogen, Fingerknöchel, Kniespitze
+Die Wirkung ähnelt eher einem harten Schlag als einem Stoß. Kleine Treffflächen können Prellungen, Platzwunden oder starke lokale Schmerzen verursachen. Typische Beispiele sind: Knöchel von Zeige- und Mittelfinger, Ellenbogen, Fingerknöchel, Kniespitze
 
 Je kleiner die Fläche, desto höher die Belastung auf das Ziel.
 
 ### Übungen
 
-- Schläge mit großer und kleiner Trefferfläche auf Pratze und vergleichen
+- Schläge mit großer und kleiner Trefffläche auf Pratze und vergleichen
 - Partner kontrolliert mit Handballen verschieben
 - Schmerzpunktwirkung bei Partner testen, z. B. auf der Mitte des Bizeps
 - Partner mit Fauststoss auf Brustbei schieben
