@@ -10,7 +10,9 @@ als Hebel bezeichnet man eine Technik, die ein Gelenk beansprucht. die Beanspruc
 
 **umsetzung**: ein Gelenk ist die Verbindung zwischen zwei Knochen. möchte man dieses Gelenk brechen, so gilt es beide Knochen zu kontrollieren und Armgelenk selbst Kraft auszuüben. man braucht also genau drei Punkte, um ein Gelenk zu brechen. das Einspannen der Knochen mit zwei einspann-Punkten, und einen dritten brech-punkt zur Krafteinwirkung direkt am gelenk. je weiter die einspannpunkte von Gelenk entfernt sind, um so eine größere Hebelwirkung erreicht man und umso leichter brichst du das Gelenk.
 
+**ein einfaches Bild**: stell dir zwei Trunkgläser vor. platziere einen Strohhalm ober auf die Gläser als eine einfache Brücke. XXXXX vor über einen Bach. sie besteht nur aus einem einzigen Brett. wenn du nun genau in der Mitte des Bretts anfängst zu springen, hast du gute Chancen dieses zu brechen. das ist eine einfache Vorstellung, verdeutlicht dir aber wie grundsätzlich ein Hebel funktioniert. dies ist aber nicht die ideale Vorstellung eines hebels. du kannst doch wesentlich besser brechen
 
+**differenzierteres Bild**
 
 ## distanzlehre 
 
