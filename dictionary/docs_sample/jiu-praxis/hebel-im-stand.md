@@ -1,12 +1,16 @@
 # Hebel 
 
-## definitio 
+## definition
 
 als Hebel bezeichnet man eine Technik, die ein Gelenk beansprucht. die Beanspruchung geht über die natürliche Bewegungsrichtung und Umfang des Gelenks hinaus.
 
 **erläuterung**: ein Gelenk hat eine natürliche Bewegungsrichtung und ein natürlichen Bewegungsumfang . innerhalb dieser Richtung(en) und das dieser Umfangs kann sich das Bewegen gelenkverletzungsfrei bewegen. 
 
-Beispiel: Fingergelenke sind schon die Gelenke sie lassen sich zur Handfläche hin beugen. nicht bewegen lassen sich die Finger zur Seite oder wesentlich über den Handrücken heraus. - ein fingerhebel kann dann z.B die Finger zum Handrücken hin bewegen wollen, oder eine seitliche Verkantung erwirken. beides ist sehr schmerzhaft. warum? war das Gelenk dabei zerstört würde, wenn man diese falsche Beanspruchung weiterführt
+**Beispiel**: Fingergelenke sind schon die Gelenke sie lassen sich zur Handfläche hin beugen. nicht bewegen lassen sich die Finger zur Seite oder wesentlich über den Handrücken heraus. - ein fingerhebel kann dann z.B die Finger zum Handrücken hin bewegen wollen, oder eine seitliche Verkantung erwirken. beides ist sehr schmerzhaft. warum? war das Gelenk dabei "gebrochen" würde, wenn man diese falsche Beanspruchung weiterführt
+
+**umsetzung**: ein Gelenk ist die Verbindung zwischen zwei Knochen. möchte man dieses Gelenk brechen, so gilt es beide Knochen zu kontrollieren und Armgelenk selbst Kraft auszuüben. man braucht also genau drei Punkte, um ein Gelenk zu brechen. das Einspannen der Knochen mit zwei einspann-Punkten, und einen dritten brech-punkt zur Krafteinwirkung direkt am gelenk. je weiter die einspannpunkte von Gelenk entfernt sind, um so eine größere Hebelwirkung erreicht man und umso leichter brichst du das Gelenk.
+
+
 
 ## distanzlehre 
 
