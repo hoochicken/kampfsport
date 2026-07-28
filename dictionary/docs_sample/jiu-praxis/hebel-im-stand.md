@@ -26,12 +26,24 @@ durch ein bisschen springen wirst du die obere Brücke sicherlich ein zwei bekom
 
 *) "gib mir einen festen Punkt im Universum und ich bewege die Welt.*
 
+## Unterschied von Hebeltechniken am Boden und im Stand
+
+**Am Boden** kann man den Partner so platzieren, dass der Boden automatisch den fixpart erzeugt. daher ist es einfach, ein armstrickhebel durchzuführen. denn ein großer Teil der Fixierung übernimmt der Boden die Schwerkraft . 
+
+**im Stand** hingegen, ist es schwer einen fixpart zu erzeugen. gerade an großen Gliedmaßen ist es schwer hier entsteht der Fixpunkt oft durch Schwerkraft und Trägheit der Masse. eine wirkliche Fixierung das fixpunktes gibt es nicht, der Partner könnte mit einem Flic Flac sich befreien. im Stand ist es wesentlich schwerer einen Hebel durchzuführen.
+
+**verletzuungsgefahr**: die Verletzungsgefahr im Stand ist wesentlich größer. denn grundsätzlich gibt es die Möglichkeit, dass ein oder beide Partner fallen und der Hebel sehr unglücklich wird und ein Bruch erfolgt. da man im Boden (fast)nicht mehr wirklich fallen kann, gibt es diese Gefahr dort nicht oder nur sehr selten
+
 ## distanzlehre 
 
 bei den Hebeln: hebel arbeite wirklich an dem Gelenk, welches du beanspruchen bzw brechen möchtest. wie sind das gewohnt, auf den Körper des anderen zu arbeiten, auf die Körpermitte . Hebel verhalten sich da ganz andere. gibst du an einem Gliedmaß herum, so arbeitet dich zu diesem Gliedmaß, zu diesem Gelenk hin. ist es: das gliedmaß optimal zu hebeln, wodurch du von der Körpermitte des Partners wegrutscht. gleichzeitig musst du darfst nicht angreifbar sein durch artemite-techniken(Schläge, Keks, benötigst einen sicheren Stand, damit man dich nicht umwerfen
 
 * gelenk öffnen
 * gelenk optimal drehen
+
+## hebel erarbeiten
+
+
 
 Beispiel: 
 
