@@ -34,7 +34,27 @@ durch ein bisschen springen wirst du die obere Brücke sicherlich ein zwei bekom
 
 **verletzuungsgefahr**: die Verletzungsgefahr im Stand ist wesentlich größer. denn grundsätzlich gibt es die Möglichkeit, dass ein oder beide Partner fallen und der Hebel sehr unglücklich wird und ein Bruch erfolgt. da man im Boden (fast)nicht mehr wirklich fallen kann, gibt es diese Gefahr dort nicht oder nur sehr selten
 
-## distanzlehre 
+## hebel erarbeiten - traditionell
+
+traditionelle Hebetechniken vor allem im Stand sind vergleichsweise einfach zu erlangen. im traditionellen Jujitsu zum Beispiel wird der Angriff angesagt. 
+
+**als verteidiger**: kannst du dich durch diese Formelhaftigkeit sehr gut darauf einstellen welcher Angriff kommt (z.B ein Punch) diesen abwehren und dann in einen Armstreckhebel übergehen. durch diese Formelhaftigkeit ist gesichert, dass du diese Technik gut üben kannst. 
+
+**als angreifer** hast du die Sicherheit, welche Technik gleich kommen wird. dadurch kannst du dich auf diese Hebeltechnik einstellen und entsprechend diese Technik begleiten. so verhinderst du eine eigene Verletzung . darüber hinaus kannst Du kontrolliert gegen Techniken trainieren. (natürlich kann man sich auch einfach wehren, dass es aber verletzungsanfällig und wenn man dann hinfällt ist der Arm kaputt.)
+
+diese traditionelle Trainingsform ermöglicht es, die Hefe kontrolliert und sicher trainieren zu können. dadurch bekommst du ein grundlegendes und äußerst wichtiges Verständnis zur Funktionsweise der Hebel. warst du wahrscheinlich eher nicht lernst, ist, wie man im Freikampf in einen solchen Hebel kommt 
+
+**WICHTIG: Verletzungsgefahr!** Hebel im Stand und im Freikampf sind gefährlich. hintergrund ist der, dass auf der Matte zwei große schwere Körper stehen die auf ein kleines Gelenk einwirken können. einmal gestolpert und einer der beiden Partner kann zwei Jahre lang nicht mehr trainieren. daher Hebel im Stand niemals bei einem Freikampf anwenden. was ihr aber machen könnt, ist folgendes: 
+
+## Henka Waza
+
+Henka Vasa bezeichnet den Übergang von einer Technik in die andere Technik. es ist eine Übungsform wie ein Tanz, beide Partner arbeiten hier gemeinsam. die ganze Zeit besteht Körperkontakt. und das funktioniert wie folgt
+
+übt mit ganz langsamen Angriffen im Stand und geht von einer gegentechnik in den Hebel über von dieser Gegend gegen diese Technik wieder ein gegenhebel so dass ihr eine ganz ganz langsame Technik Ausführung hat. so könnt ihr sicher und mit Spaß trainieren.
+
+**licht aus!**: gerne könnt ihr auch das Licht ausmachen während dieser Übung und euch ganz sanft und locker bewegen. diese Übung ist äußerst spannend weil man die Position des anderen fühlt über den Körperkontakt Punkt wenn du zum Beispiel nur den Unterarm in der Hand hast kannst du aus dem Winkel schließen und der Spannung, wo die Schulter des Partners steht und welches Verhältnis sie zum Körper hat Punkt daher weißt du auch, wie der Partner gerade steht. das ist eine super Übung für die Körperschulung und Orientierung im Raum
+
+## hebel-distanzlehre 
 
 bei den Hebeln: hebel arbeite wirklich an dem Gelenk, welches du beanspruchen bzw brechen möchtest. wie sind das gewohnt, auf den Körper des anderen zu arbeiten, auf die Körpermitte . Hebel verhalten sich da ganz andere. gibst du an einem Gliedmaß herum, so arbeitet dich zu diesem Gliedmaß, zu diesem Gelenk hin. ist es: das gliedmaß optimal zu hebeln, wodurch du von der Körpermitte des Partners wegrutscht. gleichzeitig musst du darfst nicht angreifbar sein durch artemite-techniken(Schläge, Keks, benötigst einen sicheren Stand, damit man dich nicht umwerfen
 
