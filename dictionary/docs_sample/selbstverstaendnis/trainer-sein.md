@@ -1,5 +1,7 @@
 ## Trainer sein
 
+XXXX mitrsinieren im training
+
 Als Trainer bist du zunächst einmal eines: ein Vorbild.
 
 Vorbild bist du in vielen Bereichen:
