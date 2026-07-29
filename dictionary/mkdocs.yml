@@ -79,7 +79,6 @@ nav:
       - "Positionen": "jiu-praxis/positionen.md"
       - "Bewegungslehre traditionell": "jiu-praxis/bewegungslehre-traditionell.md"
       - "Bewegungslehre &amp; Distanzlehre": "jiu-praxis/bewegungslehre-stand-distanzlehre.md"
-      - "Bewegungslehre &amp; Distanzlehre": "jiu-praxis/bewegungslehre-boden.md"
       - "Atemi &amp; Standup": "jiu-praxis/atemi-standup.md"
       - "Atemi &amp; Standup - Arme": "jiu-praxis/atemi-arms-standup.md"
       - "Atemi &amp; Standup - Beine": "jiu-praxis/atemi-legs-standup.md"
@@ -87,11 +86,14 @@ nav:
       - "Verteidigung": "jiu-praxis/verteidigung.md"
       - "Clinch": "clinch.md"
       - "Griffe": "jiu-praxus/griffe.md",
-      - "Pratzentraining": "jiu-praxis/pratzentraining.md"
+ "jiu-praxis/pratzentraining.md"
       - "Hebel im Stand": "jiu-praxis/hebel-im-stand.md"
       - "Würfe": "jiu-praxis/wuerfe.md"
       - "Kombinationen": "jiu-praxis/kombinationen.md"
       - "Waffen": "jiu-praxis/waffen.md"
+      - "Bewegungslehre Boden": "jiu-praxis/bewegungslehre-boden.md"
+      - "Festlegetechniken": "jiu-praxis/festlegetechniken.md",
+      - "Pratzentraining":
       - "Kata": "jiu-praxis/kata.md"
       - "Prompts": "prompts.md"
   - "Selbstverteidigung":
