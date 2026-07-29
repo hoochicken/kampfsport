@@ -31,7 +31,7 @@ Dieses Gegenziehen stabilisiert den Körper, erhöht die Schlaggeschwindigkeit u
 
 Wenn ein Schlag nicht funktioniert, hängt dies oft mit der vorangehenden Technik zusammen oder mit der unpassenden Vorbereitung der nächsten Technik
 
-Hinweis Doppelpunkt achte darauf dass der Gegenzug deine Deckung nicht nachteilig beeinflusst . das ist ein bisschen eine grat Wanderung
+Hinweis : achte darauf dass der Gegenzug deine Deckung nicht nachteilig beeinflusst . das ist ein bisschen eine grat Wanderung
 
 ### jab, punch, Lowkick (dom)
 
@@ -56,7 +56,7 @@ zur schnellen Ausführung des lowkick muss das lowkick-Bein leicht und frei sein
 
 ## die letzte Technik
 
-die letzte Technik einer Kombination sollte deine größte Aufmerksamkeit bekommen! denn sie ist immer die kampfstellung. auch wenn eine dreierkombination gesagt wird , erinnere dich daran dass du nach Ausführung der Kombination deine kampfstellung wieder einen ist damit du optimal geschützt bist
+die letzte Technik einer Kombination sollte deine größte Aufmerksamkeit bekommen! denn sie ist immer die kampfstellung - im bodenkampf eine kontrolltechnik. auch wenn eine dreierkombination gesagt wird , erinnere dich daran dass du nach Ausführung der Kombination deine kampfstellung wieder einen ist damit du optimal geschützt bist
 
 dies gilt auch versicherungstechniken. achte darauf dass der Partner sicher liegt und nur umständlich aufstehen kann, während du in immer im Blick hast und gegebenenfalls noch einmal nachzufassen
 
