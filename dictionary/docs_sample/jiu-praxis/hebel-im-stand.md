@@ -10,7 +10,7 @@ als Hebel bezeichnet man eine Technik, die ein Gelenk beansprucht. die Beanspruc
 
 **umsetzung**: ein Gelenk ist die Verbindung zwischen zwei Knochen. möchte man dieses Gelenk brechen, so gilt es beide Knochen zu kontrollieren und Armgelenk selbst Kraft auszuüben. man braucht also genau drei Punkte, um ein Gelenk zu brechen. das Einspannen der Knochen mit zwei einspann-Punkten, und einen dritten brech-punkt zur Krafteinwirkung direkt am gelenk. je weiter die einspannpunkte von Gelenk entfernt sind, um so eine größere Hebelwirkung erreicht man und umso leichter brichst du das Gelenk.
 
-**ein einfaches Bild**: stell dir über einen Bach vor als einfache Brücke.  sie besteht nur aus einem einzigen Brett. wenn du nun genau in der Mitte des Bretts anfängst zu springen, hast du gute Chancen dieses zu brechen. das ist eine einfache Vorstellung, verdeutlicht dir aber wie grundsätzlich ein Hebel funktioniert. dies ist aber nicht die ideale Vorstellung eines hebels. du kannst doch wesentlich besser brechen
+**einfaches Bild**: stell dir über einen Bach vor als einfache Brücke.  sie besteht nur aus einem einzigen Brett. wenn du nun genau in der Mitte des Bretts anfängst zu springen, hast du gute Chancen dieses zu brechen. das ist eine einfache Vorstellung, verdeutlicht dir aber wie grundsätzlich ein Hebel funktioniert. dies ist aber nicht die ideale Vorstellung eines hebels. du kannst doch wesentlich besser brechen
 
 durch ein bisschen springen wirst du die obere Brücke sicherlich ein zwei bekommen. aber es ist die einzige Möglichkeit und vor allem ist es die Glücks- und effektivste? verzeih mir, wenn ich kurz das Bild wechsle, denn jetzt befinden wir uns in McDonald's
 
@@ -42,7 +42,7 @@ traditionelle Hebetechniken vor allem im Stand sind vergleichsweise einfach zu e
 
 **als angreifer** hast du die Sicherheit, welche Technik gleich kommen wird. dadurch kannst du dich auf diese Hebeltechnik einstellen und entsprechend diese Technik begleiten. so verhinderst du eine eigene Verletzung . darüber hinaus kannst Du kontrolliert gegen Techniken trainieren. (natürlich kann man sich auch einfach wehren, dass es aber verletzungsanfällig und wenn man dann hinfällt ist der Arm kaputt.)
 
-diese traditionelle Trainingsform ermöglicht es, die Hefe kontrolliert und sicher trainieren zu können. dadurch bekommst du ein grundlegendes und äußerst wichtiges Verständnis zur Funktionsweise der Hebel. warst du wahrscheinlich eher nicht lernst, ist, wie man im Freikampf in einen solchen Hebel kommt 
+diese traditionelle Trainingsform ermöglicht es, die Hebel kontrolliert und sicher trainieren zu können. dadurch bekommst du ein grundlegendes und äußerst wichtiges Verständnis zur Funktionsweise der Hebel. warst du wahrscheinlich eher nicht lernst, ist, wie man im Freikampf in einen solchen Hebel kommt 
 
 **WICHTIG: Verletzungsgefahr!** Hebel im Stand und im Freikampf sind gefährlich. hintergrund ist der, dass auf der Matte zwei große schwere Körper stehen die auf ein kleines Gelenk einwirken können. einmal gestolpert und einer der beiden Partner kann zwei Jahre lang nicht mehr trainieren. daher Hebel im Stand niemals bei einem Freikampf anwenden. was ihr aber machen könnt, ist folgendes: 
 
