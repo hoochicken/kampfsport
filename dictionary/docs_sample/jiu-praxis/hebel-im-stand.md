@@ -54,15 +54,12 @@ Henka Vasa bezeichnet den Übergang von einer Technik in die andere Technik. es 
 
 **licht aus!**: gerne könnt ihr auch das Licht ausmachen während dieser Übung und euch ganz sanft und locker bewegen. diese Übung ist äußerst spannend weil man die Position des anderen fühlt über den Körperkontakt Punkt wenn du zum Beispiel nur den Unterarm in der Hand hast kannst du aus dem Winkel schließen und der Spannung, wo die Schulter des Partners steht und welches Verhältnis sie zum Körper hat Punkt daher weißt du auch, wie der Partner gerade steht. das ist eine super Übung für die Körperschulung und Orientierung im Raum
 
-## hebel-distanzlehre 
 
-bei den Hebeln: hebel arbeite wirklich an dem Gelenk, welches du beanspruchen bzw brechen möchtest. wie sind das gewohnt, auf den Körper des anderen zu arbeiten, auf die Körpermitte . Hebel verhalten sich da ganz andere. gibst du an einem Gliedmaß herum, so arbeitet dich zu diesem Gliedmaß, zu diesem Gelenk hin. ist es: das gliedmaß optimal zu hebeln, wodurch du von der Körpermitte des Partners wegrutscht. gleichzeitig musst du darfst nicht angreifbar sein durch artemite-techniken(Schläge, Keks, benötigst einen sicheren Stand, damit man dich nicht umwerfen
-
-* gelenk öffnen
-* gelenk optimal drehen
 
 ## hebel erarbeiten
 
+* gelenk öffnen
+* gelenk optimal drehen
 
 
 Beispiel: 
@@ -70,3 +67,7 @@ Beispiel:
 waki-gatame im Stand
 
 wak7-gatame am Boden
+
+## hebel-distanzlehre 
+
+bei den Hebeln: hebel arbeite wirklich an dem Gelenk, welches du beanspruchen bzw brechen möchtest. wie sind das gewohnt, auf den Körper des anderen zu arbeiten, auf die Körpermitte . Hebel verhalten sich da ganz andere. gibst du an einem Gliedmaß herum, so arbeitet dich zu diesem Gliedmaß, zu diesem Gelenk hin. ist es: das gliedmaß optimal zu hebeln, wodurch du von der Körpermitte des Partners wegrutscht. gleichzeitig musst du darfst nicht angreifbar sein durch atemi-techniken (Schläge, Kicks, benötigst einen sicheren Stand, damit man dich nicht umwerfen kann.
