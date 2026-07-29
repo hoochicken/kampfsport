@@ -15,15 +15,18 @@
 
 **übungen griffkraft**
 
+* 5x 15s den Stock fest umgreifen
+* 5x liegestütze auf finger, alles FingerGlieder sind leicht gebeugt, keine froschhand! geh gerne auf die Knie und spreize die Beine um die Belastung gering zu halten
+
+**alltagstraining**
+
 besonders bei der griffkraftübung gilt: alles ist Training!
-
-* 
-
-alltagstraining
 
 * 5x 30s: mache eine feste Faust /affengriff, wieder lösen
 * 5x 30s: greife beim bahnfahren an den eigenen unterarm und umgreife diesen fest 
 * 5x 30s: umgreife fest deine stabile kaffeetasse
+* 5x 10s: greife den kugelschreiber nur mit den fingerdpitzen, gib druck - halte das letzte Fingerglied gebeugt, keine Frosch-Hand
+* 5x 10s eigene kleidung greifen, fest, Achtung: sieht nachher verknittert aus
 
 Hinweis: willst du das verdeckt üben, so ist es besser wenn du lange Ärmel hast. dann sieht man nicht die Anspannung in den Unterarmen
 
@@ -37,7 +40,7 @@ Hinweis: willst du das verdeckt üben, so ist es besser wenn du lange Ärmel has
 
 **übung**
 
-* 
+* knee on belly (top): griff nacken, ander trizeps, zug
 
 **geschichte**: bei der wunderschönen submissao in Karlsruhe lag die Gegnerin gegen Ende in meiner guard und ich habe versucht, eine Kimura zu ziehen.  durch die große Belastung der vorangegangenen fünf Minuten, war es mir nicht mehr möglich, ihren Arm zu greifen. meine Hände hatten keinerlei Kraft mehr. irgendwie habe ich es geschafft meine Unterarme mit ihren zu verschränken und erfolgreich die kimura zu ziehen und wortwörtlich in letzter Sekunde zu tappen.
 
