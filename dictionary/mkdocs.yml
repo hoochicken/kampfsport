@@ -83,10 +83,11 @@ nav:
       - "Atemi &amp; Standup": "jiu-praxis/atemi-standup.md"
       - "Atemi &amp; Standup - Arme": "jiu-praxis/atemi-arms-standup.md"
       - "Atemi &amp; Standup - Beine": "jiu-praxis/atemi-legs-standup.md"
-      - "Clinch": "clinch.md"
-      - "pratzentraining.md": "Pratzentraining"
       - "Finten": "jiu-praxis/finten.md"
       - "Verteidigung": "jiu-praxis/verteidigung.md"
+      - "Clinch": "clinch.md"
+      - "Griffe": "jiu-praxus/griffe.md",
+      - "Pratzentraining": "jiu-praxis/pratzentraining.md"
       - "Hebel im Stand": "jiu-praxis/hebel-im-stand.md"
       - "Würfe": "jiu-praxis/wuerfe.md"
       - "Kombinationen": "jiu-praxis/kombinationen.md"
