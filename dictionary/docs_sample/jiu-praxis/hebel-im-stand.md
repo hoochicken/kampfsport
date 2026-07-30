@@ -12,27 +12,27 @@ als Hebel bezeichnet man eine Technik, die ein Gelenk beansprucht. die Beanspruc
 
 **einfaches Bild**: stell dir über einen Bach vor als einfache Brücke.  sie besteht nur aus einem einzigen Brett. wenn du nun genau in der Mitte des Bretts anfängst zu springen, hast du gute Chancen dieses zu brechen. das ist eine einfache Vorstellung, verdeutlicht dir aber wie grundsätzlich ein Hebel funktioniert. dies ist aber nicht die ideale Vorstellung eines hebels. du kannst doch wesentlich besser brechen
 
-durch ein bisschen springen wirst du die obere Brücke sicherlich ein zwei bekommen. aber es ist die einzige Möglichkeit und vor allem ist es die Glücks- und effektivste? verzeih mir, wenn ich kurz das Bild wechsle, denn jetzt befinden wir uns in McDonald's
+durch ein bisschen Springen wirst du die obere Brücke sicherlich ein zwei bekommen. aber: es ist die einzige Möglichkeit und vor allem ist es die Glücks- und effektivste? verzeih mir, wenn ich kurz das Bild wechsle, denn jetzt befinden wir uns in McDonald's und sitzen an einem Tischchen.
 
-**differenzierteres Bild** du siehst an einem Essenstisch und vor die ist ein Strohhalm wie würdest du diesen Strohhalm knicken? am einfachsten ist es den Strohhalm an einem Ende auf der Tischplatte zu fixieren. mit der anderen Hand drückst du den Strohhalm in der Mitte ein.dann  führst du das freie Ende nach oben, radial um den geknickten Mittelpunkt herum. das freie Ende des Strohhalms versuchst du, auf das fixe Ende auf den Tisch abzulegen.
+**differenzierteres Bild** du sitzt an einem Essenstisch und vor dir ist ein Strohhal. wie würdest du diesen Strohhalm knicken? am einfachsten ist es den Strohhalm an einem Ende auf der Tischplatte zu fixieren. mit der anderen Hand drückst du den Strohhalm in der Mitte ein. dann  führst du das freie Ende nach oben, radial um den geknickten Mittelpunkt herum. das freie Ende des Strohhalms versuchst du, auf das fixe Ende auf den Tisch abzulegen.
 
 **nomenklatur**: nun gilt es die Nomenklatur zu erklären: 
 
-* Fixpart: der am Tisch fixierte Teil des Strohhalms
 * Fixpunkt: das am Tisch fixierte Ende des Strohhalms
+* Fixpart: der am Tisch fixierte Teil des Strohhalms
 * Fulkrum: der eingedrückten Punkt in der Mitte, es ist der Drehpunkt oder das Fulkrum*). um diesen herum wird der Hebelarm gedreht
-* Hebelschubpunkt: das entfernte Ende des Strohhalms, da sich bewegt. der hebelschub. liegt möglich weit außen, damit man eine bessere (physikalische) Hebelwirkung erzeugt
 * Hebelpart: das bewegte Ende des Strohhalms . (eigentlich wollte ich es Hebelarm nennen. aber das gibt dann zu viel Verwirrung weil Arm auch ein Körperteil bezeichnet)
+* Hebelschubpunkt: das entfernte Ende des Strohhalms, da sich bewegt. der hebelschub. liegt möglich weit außen, damit man eine bessere (physikalische) Hebelwirkung erzeugt
 
-*) "gib mir einen festen Punkt im Universum und ich bewege die Welt.*
+*) "gib mir einen festen Punkt im Universum und ich bewege die Welt*, oder so ähnlich ...
 
 ## Unterschied von Hebeltechniken am Boden und im Stand
 
-**Am Boden** kann man den Partner so platzieren, dass der Boden automatisch den fixpart erzeugt. daher ist es einfach, ein armstrickhebel durchzuführen. denn ein großer Teil der Fixierung übernimmt der Boden die Schwerkraft . 
+**Am Boden** kann man den Partner so platzieren, dass der Boden automatisch den fixpart erzeugt. daher ist es einfach, ein armstreckhebel durchzuführen. denn ein großer Teil der Fixierung übernimmt der Boden bzw. die Schwerkraft bzw. die physikalischen beschränkungen, die 3-dimensionalen festen Körper auferlegen sind.
 
-**im Stand** hingegen, ist es schwer einen fixpart zu erzeugen. gerade an großen Gliedmaßen ist es schwer hier entsteht der Fixpunkt oft durch Schwerkraft und Trägheit der Masse. eine wirkliche Fixierung das fixpunktes gibt es nicht, der Partner könnte mit einem Flic Flac sich befreien. im Stand ist es wesentlich schwerer einen Hebel durchzuführen.
+**im Stand** hingegen, ist es schwer einen fixpart zu erzeugen. gerade an großen Gliedmaßen ist es schwer. hier entsteht der Fixpart oft durch Schwerkraft und Trägheit der Masse. eine wirkliche Fixierung des fixparts gibt es nicht. (oft könnte sich der Partner durch einen aus dem Stand gesprungenen Flic Flac sich befreien, theoretisch!) im Stand ist es wesentlich schwerer einen Hebel durchzuführen.
 
-**verletzuungsgefahr**: die Verletzungsgefahr im Stand ist wesentlich größer. denn grundsätzlich gibt es die Möglichkeit, dass ein oder beide Partner fallen und der Hebel sehr unglücklich wird und ein Bruch erfolgt. da man im Boden (fast)nicht mehr wirklich fallen kann, gibt es diese Gefahr dort nicht oder nur sehr selten
+**verletzuungsgefahr**: die Verletzungsgefahr im Stand ist wesentlich größer. denn grundsätzlich gibt es die Möglichkeit, dass ein oder beide Partner fallen und der Hebel sehr unglücklich wird und ein Bruch erfolgt. hingegwn: da man im Boden (fast) nicht mehr wirklich fallen kann, gibt es diese Gefahr dort nicht oder nur sehr selten
 
 ## hebel erarbeiten - traditionell
 
