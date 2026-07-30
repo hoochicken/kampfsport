@@ -32,7 +32,13 @@ durch ein bisschen Springen wirst du die obere Brücke sicherlich ein zwei bekom
 
 **im Stand** hingegen, ist es schwer einen fixpart zu erzeugen. gerade an großen Gliedmaßen ist es schwer. hier entsteht der Fixpart oft durch Schwerkraft und Trägheit der Masse. eine wirkliche Fixierung des fixparts gibt es nicht. (oft könnte sich der Partner durch einen aus dem Stand gesprungenen Flic Flac sich befreien, theoretisch!) im Stand ist es wesentlich schwerer einen Hebel durchzuführen.
 
-**verletzuungsgefahr**: die Verletzungsgefahr im Stand ist wesentlich größer. denn grundsätzlich gibt es die Möglichkeit, dass ein oder beide Partner fallen und der Hebel sehr unglücklich wird und ein Bruch erfolgt. hingegwn: da man im Boden (fast) nicht mehr wirklich fallen kann, gibt es diese Gefahr dort nicht oder nur sehr selten
+## verletzuungsgefahr
+
+die Verletzungsgefahr im Stand ist wesentlich größer. denn grundsätzlich gibt es die Möglichkeit, dass ein oder beide Partner fallen und der Hebel sehr unglücklich wird und ein Bruch erfolgt. hingegwn: da man im Boden (fast) nicht mehr wirklich fallen kann, gibt es diese Gefahr dort nicht oder nur sehr selten.
+
+stell dir mal vor Komma was ein schwerthandwurf (shionage), armstreckhebel, handdrehhebel (Kote hineri), fingerhebel an Schaden beim Partner anrichtet. wir sprechen hier von einer Verletzungspause von einem Jahr, wenn die Rotatorenmanschette zerstört ist. wenn das überhaupt mal wieder wird!
+
+hinweis: hier folgt wieder der Hinweis, dass wir im Kampfsport zwar Kampf trainieren aber dennoch nur darauf bedacht sind, niemanden zu verletzen
 
 ## hebel erarbeiten - traditionell
 
@@ -54,11 +60,27 @@ Henka Vasa bezeichnet den Übergang von einer Technik in die andere Technik. es 
 
 übt mit ganz langsamen Angriffen im Stand und geht von einer gegentechnik in den Hebel über von dieser Gegend gegen diese Technik wieder ein gegenhebel so dass ihr eine ganz ganz langsame Technik Ausführung hat. so könnt ihr sicher und mit Spaß trainieren.
 
-**licht aus!**: gerne könnt ihr auch das Licht ausmachen während dieser Übung und euch ganz sanft und locker bewegen. diese Übung ist äußerst spannend weil man die Position des anderen fühlt über den Körperkontakt Punkt wenn du zum Beispiel nur den Unterarm in der Hand hast kannst du aus dem Winkel schließen und der Spannung, wo die Schulter des Partners steht und welches Verhältnis sie zum Körper hat Punkt daher weißt du auch, wie der Partner gerade steht. das ist eine super Übung für die Körperschulung und Orientierung im Raum
-
-
+**licht aus ...**: gerne könnt ihr auch das Licht ausmachen während dieser Übung und euch ganz sanft und locker bewegen. diese Übung ist äußerst spannend weil man die Position des anderen fühlt über den Körperkontakt Punkt wenn du zum Beispiel nur den Unterarm in der Hand hast kannst du aus dem Winkel schließen und der Spannung, wo die Schulter des Partners steht und welches Verhältnis sie zum Körper hat Punkt daher weißt du auch, wie der Partner gerade steht. das ist eine super Übung für die Körperschulung und Orientierung im Raum
 
 ## hebel erarbeiten
+
+wenn man nicht traditionell trainiert, so muss man sich jeden Hebel erarbeiten. vorliegenden Fall gehe ich bewusst nur auf einen (fast) gefahrlosen Hebel im Stand ein, bei dem die verletzungsgefahr erwiesenermaßen weniger gravierend ist 
+
+## Hebel
+
+**kipphandhebel**
+
+beim kipphandhebel greifst du das Handgelenk des Partners gleichseitig und führst dann dessen Handfläche zu seinem Gesicht ( als würdest due ihn in ein Spiegel gucken lassen)  und dann nach außen weg.
+
+dieser kipphandhebel hat im Stand Manko, dass es kein fixspark gibt. die Schulter kann der Partner ausweichen bewegen und somit eine Verletzung im Bereich des Handgelenks verhindern. dieses ausweichen muss er aber Richtung Boden ausführen. und dadurch hast du einen take-down.
+
+**geschichte** auf der "Damenwahl" durfte ich in der offenen Klasse gegen eine körperlich wesentlich überlegene Gegnerin angetreten. Anfängerin zwar, aber schlichtweg 40 Kilogranm schwerer. sie hat noch im Stand getappt. (Mann war ich froh, dass ich nicht auf den Boden musste! das wäre nicht gut gegangen:-D)
+
+**kipphandhebel am bodel - nach missglücktem armbar**: bepanthebel und armba bilden aus Sicht des Gegners eine Symbiose des grauens Punkt wir sprechen hier vom Hund normalen armba, mit dem Partner in der Rückenlage. der Arm war funktioniert, indem du den Ellenbogen über den Oberschenkel versucht zu brechen. oft klappt der Gegner als gegentechnik den Ellenbogen ein, und so wird ein kiepanthebel möglich, Punkt dieser kommt in der Gegend überraschend für den Gegner es ist kaum eine Gegenreaktion in angemessener Zeit möglich.
+
+bei einer deutschen Meisterschaft hat ein junges Mädchen (17 j.) zu alte Hasen reihenweise getappt, u. a. mit dieser Technik . in einem kampf zieht sie den . die gegnerin beugt als gegentechnik ihren arm . das junge Mädel zieht weiter, nur eben als kipphandhebel. ( am Boden hat der kipphandel durchaus einen Gegenpart. am Boden ist der kippandhebel desaströs!) so schnell konnte die gegnerin gar nicht tappen Punkt sie war danach verletzt . der gegnerin war nicht bewusst Sicherheit bedeutet ... hat das die junge Dame super gemacht. sie heisst 
+
+
 
 * gelenk öffnen
 * gelenk optimal drehen
