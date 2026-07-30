@@ -79,7 +79,7 @@ dieser kipphandhebel hat im Stand Manko, dass es kein fixspark gibt. die Schulte
 **kipphandhebel am bodel - nach missglücktem armbar**: bepanthebel und armba bilden aus Sicht des Gegners eine Symbiose des grauens Punkt wir sprechen hier vom Hund normalen armba, mit dem Partner in der Rückenlage. der Arm war funktioniert, indem du den Ellenbogen über den Oberschenkel versucht zu brechen. oft klappt der Gegner als gegentechnik den Ellenbogen ein, und so wird ein kiepanthebel möglich, Punkt dieser kommt in der Gegend überraschend für den Gegner es ist kaum eine Gegenreaktion in angemessener Zeit möglich.
 
 bei einer deutschen Meisterschaft hat ein junges Mädchen (17 j.) zu alte Hasen reihenweise getappt, u. a. mit dieser Technik . in einem kampf zieht sie den . die gegnerin beugt als gegentechnik ihren arm . das junge Mädel zieht weiter, nur eben als kipphandhebel. ( am Boden hat der kipphandel durchaus einen Gegenpart. am Boden ist der kippandhebel desaströs!) so schnell konnte die gegnerin gar nicht tappen Punkt sie war danach verletzt . der gegnerin war nicht bewusst Sicherheit bedeutet ... hat das die junge Dame super gemacht. sie heisst 
-
+jolina reinhold.
 
 
 * gelenk öffnen
