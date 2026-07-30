@@ -4,7 +4,7 @@
 
 als Hebel bezeichnet man eine Technik, die ein Gelenk beansprucht. die Beanspruchung geht über die natürliche Bewegungsrichtung und Umfang des Gelenks hinaus.
 
-**erläuterung**: ein Gelenk hat eine natürliche Bewegungsrichtung und ein natürlichen Bewegungsumfang . innerhalb dieser Richtung(en) und das dieser Umfangs kann sich das Bewegen gelenkverletzungsfrei bewegen. 
+**erläuterung**: ein Gelenk hat eine natürliche Bewegungsrichtung und ein natürlichen Bewegungsumfang . innerhalb dieser Richtung(en) und das dieser Umfangs kann sich das gelenk verletzungsfrei bewegen. 
 
 **Beispiel**: Fingergelenke sind schon die Gelenke sie lassen sich zur Handfläche hin beugen. nicht bewegen lassen sich die Finger zur Seite oder wesentlich über den Handrücken heraus. - ein fingerhebel kann dann z.B die Finger zum Handrücken hin bewegen wollen, oder eine seitliche Verkantung erwirken. beides ist sehr schmerzhaft. warum? war das Gelenk dabei "gebrochen" würde, wenn man diese falsche Beanspruchung weiterführt
 
@@ -32,7 +32,7 @@ durch ein bisschen Springen wirst du die obere Brücke sicherlich ein zwei bekom
 
 **im Stand** hingegen, ist es schwer einen fixpart zu erzeugen. gerade an großen Gliedmaßen ist es schwer. hier entsteht der Fixpart oft durch Schwerkraft und Trägheit der Masse. eine wirkliche Fixierung des fixparts gibt es nicht. (oft könnte sich der Partner durch einen aus dem Stand gesprungenen Flic Flac sich befreien, theoretisch!) im Stand ist es wesentlich schwerer einen Hebel durchzuführen.
 
-## verletzuungsgefahr
+## verletzungsgefahr
 
 die Verletzungsgefahr im Stand ist wesentlich größer. denn grundsätzlich gibt es die Möglichkeit, dass ein oder beide Partner fallen und der Hebel sehr unglücklich wird und ein Bruch erfolgt. hingegwn: da man im Boden (fast) nicht mehr wirklich fallen kann, gibt es diese Gefahr dort nicht oder nur sehr selten.
 
@@ -50,7 +50,7 @@ traditionelle Hebetechniken vor allem im Stand sind vergleichsweise einfach zu e
 
 diese traditionelle Trainingsform ermöglicht es, die Hebel auch im stand kontrolliert und sicher trainieren zu können. dadurch bekommst du ein grundlegendes und äußerst wichtiges Verständnis zur Funktionsweise der Hebel. was du wahrscheinlich eher nicht lernst, ist, wie man im Freikampf in einen solchen Hebel kommt. denn das ist schier unmöglich, umindest wenn der Gegner Erfahrung in modernen, schellen Kampfsportarten hat
 
-**geschichte**: win partner hat sich gefreut, dass die hebel so wunderbar klappen. bei anderen partnern  würde das nicht gehen. (es ging um einen handgelenjshebel nach punch.) daraufhin habe ich mehrmals konsequent mein Arm nicht mit der 60°-Bewegung mitgedreht. da hat er erkannt, das eine Technik nicht nur von Körper des Partners abhängig ist, sondern auch von der Bereitschaft eine Technik zuzulassen. dies hat ihn leider (glücklicherweise) auch der Illusion beraubt, dass diese Technik funktionieren könnte ... nicht einmal bei einem so schwächlichen, kleinen Partner wie mir. (natürlich konnte der partner danach die Technik wieder "normal". die gribform wird immer mithilfe eunes sanftes Partners erworben.)
+**geschichte**: win partner hat sich gefreut, dass die hebel so wunderbar klappen. bei anderen partnern  würde das nicht gehen. (es ging um einen handgelenjshebel nach punch.) daraufhin habe ich mehrmals konsequent mein Arm nicht mit der 60°-Bewegung mitgedreht. da hat er erkannt, dass eine Technik nicht nur von Körper des Partners abhängig ist, sondern auch von der Bereitschaft eine Technik zuzulassen. dies hat ihn leider (glücklicherweise) auch der Illusion beraubt, dass diese Technik funktionieren könnte ... nicht einmal bei einem so schwächlichen, kleinen Partner wie mir. (natürlich konnte der partner danach die Technik wieder "normal". die grobform wird immer mithilfe eines sanftes Partners erworben.)
 
 **WICHTIG: Verletzungsgefahr!** Hebel im Stand und im Freikampf sind gefährlich. hintergrund ist der, dass auf der Matte zwei große schwere Körper stehen die auf ein kleines Gelenk einwirken können. einmal gestolpert und einer der beiden Partner kann zwei Jahre lang nicht mehr trainieren. daher Hebel im Stand niemals bei einem Freikampf anwenden. was ihr aber machen könnt, ist folgendes: 
 
@@ -76,9 +76,9 @@ dieser kipphandhebel hat im Stand Manko, dass es kein fixspark gibt. die Schulte
 
 **geschichte** auf der "Damenwahl" durfte ich in der offenen Klasse gegen eine körperlich wesentlich überlegene Gegnerin angetreten. Anfängerin zwar, aber schlichtweg 40 Kilogranm schwerer. sie hat noch im Stand getappt. (Mann war ich froh, dass ich nicht auf den Boden musste! das wäre nicht gut gegangen:-D)
 
-**kipphandhebel am bodel - nach missglücktem armbar**: bepanthebel und armba bilden aus Sicht des Gegners eine Symbiose des grauens Punkt wir sprechen hier vom Hund normalen armba, mit dem Partner in der Rückenlage. der Arm war funktioniert, indem du den Ellenbogen über den Oberschenkel versucht zu brechen. oft klappt der Gegner als gegentechnik den Ellenbogen ein, und so wird ein kiepanthebel möglich, Punkt dieser kommt in der Gegend überraschend für den Gegner es ist kaum eine Gegenreaktion in angemessener Zeit möglich.
+**kipphandhebel am boden - nach missglücktem armbar**: kipphandhebel und armbar bilden aus Sicht des Gegners eine Symbiose des Grauens.  wir sprechen hier vom hundsnormalen Armbar, mit dem Partner in der Rückenlage. der Armbar funktioniert, indem du den Ellenbogen über den Oberschenkel versuchst zu brechen. oft klappt der Gegner als gegentechnik den Ellenbogen ein ... entgeht er dir am Armbar. dabei ermöglicht er aber gleichzeitig eunen kippandhebel möglich. dieser kommt für den Gegnet überraschend. es ist kaum eine Gegenreaktion in angemessener Zeit möglich.
 
-bei einer deutschen Meisterschaft hat ein junges Mädchen (17 j.) zu alte Hasen reihenweise getappt, u. a. mit dieser Technik . in einem kampf zieht sie den . die gegnerin beugt als gegentechnik ihren arm . das junge Mädel zieht weiter, nur eben als kipphandhebel. ( am Boden hat der kipphandel durchaus einen Gegenpart. am Boden ist der kippandhebel desaströs!) so schnell konnte die gegnerin gar nicht tappen Punkt sie war danach verletzt . der gegnerin war nicht bewusst Sicherheit bedeutet ... hat das die junge Dame super gemacht. sie heisst 
+bei einer deutschen Meisterschaft hat ein junges Mädchen (16 j.) zu alte Hasen reihenweise getappt, u. a. mit dieser Technik . in einem kampf zieht sie den armbar. die gegnerin beugt als gegentechnik ihren arm . das junge Mädel zieht weiter, nur eben als kipphandhebel. ( am Boden hat der kipphandel durchaus einen Fixpart => am Boden ist der kipphandhebel desaströs!) so schnell konnte die gegnerin gar nicht tappen ... hat das die junge Dame super gemacht. sie heisst 
 jolina reinhold.
 
 
