@@ -64,7 +64,22 @@ Henka Vasa bezeichnet den Übergang von einer Technik in die andere Technik. es 
 
 ## hebel erarbeiten
 
-wenn man nicht traditionell trainiert, so muss man sich jeden Hebel erarbeiten. vorliegenden Fall gehe ich bewusst nur auf einen (fast) gefahrlosen Hebel im Stand ein, bei dem die verletzungsgefahr erwiesenermaßen weniger gravierend ist 
+wenn man nicht traditionell trainiert, so muss man sich jeden Hebel erarbeiten. 
+
+ein Hebel zu erarbeiten heißt ein Gliedmaß des Partners zu isolieren. diese Isolation erreicht man durch
+
+* Griffe
+* Scheinangriffe und Täuschungen
+* Blenden des Partners
+* Kontrolle anderer Gliedmassen
+
+dadurch ist es möglich, mit mehreren eigenen Gliedmaßen an dem isolierten einzelnen Gliedmaß des anderen zu arbeiten. das ist einfacher Mathematik: 2 ist stärker als 1.
+
+Beispiel: beim armstreckhebel am Boden isolierst du z.B den Arm an dem Du hier bist. dabei setzt du ein: 
+
+* Drehung des Partners auf die Seite, um den nicht zu hebelnden Arm nach unten zu drehen ( der ist dann kontrolliert
+
+vorliegenden Fall gehe ich bewusst nur auf einen (fast) gefahrlosen Hebel im Stand ein, bei dem die verletzungsgefahr erwiesenermaßen weniger gravierend ist 
 
 ## Hebel
 
@@ -79,7 +94,7 @@ dieser kipphandhebel hat im Stand Manko, dass es kein fixspark gibt. die Schulte
 **kipphandhebel am boden - nach missglücktem armbar**: kipphandhebel und armbar bilden aus Sicht des Gegners eine Symbiose des Grauens.  wir sprechen hier vom hundsnormalen Armbar, mit dem Partner in der Rückenlage. der Armbar funktioniert, indem du den Ellenbogen über den Oberschenkel versuchst zu brechen. oft klappt der Gegner als gegentechnik den Ellenbogen ein ... entgeht er dir am Armbar. dabei ermöglicht er aber gleichzeitig eunen kippandhebel möglich. dieser kommt für den Gegnet überraschend. es ist kaum eine Gegenreaktion in angemessener Zeit möglich.
 
 bei einer deutschen Meisterschaft hat ein junges Mädchen (16 j.) zu alte Hasen reihenweise getappt, u. a. mit dieser Technik . in einem kampf zieht sie den armbar. die gegnerin beugt als gegentechnik ihren arm . das junge Mädel zieht weiter, nur eben als kipphandhebel. ( am Boden hat der kipphandel durchaus einen Fixpart => am Boden ist der kipphandhebel desaströs!) so schnell konnte die gegnerin gar nicht tappen ... hat das die junge Dame super gemacht. sie heisst 
-jolina reinhold.
+Jolina Reinhold.
 
 
 * gelenk öffnen
