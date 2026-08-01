@@ -8,7 +8,9 @@ als Hebel bezeichnet man eine Technik, die ein Gelenk beansprucht. die Beanspruc
 
 **Beispiel**: Fingergelenke sind schon die Gelenke sie lassen sich zur Handfläche hin beugen. nicht bewegen lassen sich die Finger zur Seite oder wesentlich über den Handrücken heraus. - ein fingerhebel kann dann z.B die Finger zum Handrücken hin bewegen wollen, oder eine seitliche Verkantung erwirken. beides ist sehr schmerzhaft. warum? war das Gelenk dabei "gebrochen" würde, wenn man diese falsche Beanspruchung weiterführt
 
-**umsetzung**: ein Gelenk ist die Verbindung zwischen zwei Knochen. möchte man dieses Gelenk brechen, so gilt es beide Knochen zu kontrollieren und Armgelenk selbst Kraft auszuüben. man braucht also genau drei Punkte, um ein Gelenk zu brechen. das Einspannen der Knochen mit zwei einspann-Punkten, und einen dritten brech-punkt zur Krafteinwirkung direkt am gelenk. je weiter die einspannpunkte von Gelenk entfernt sind, um so eine größere Hebelwirkung erreicht man und umso leichter brichst du das Gelenk.
+## Drei-Punkt-Theorie
+
+ein Gelenk ist die Verbindung zwischen zwei Knochen. möchte man dieses Gelenk brechen, so gilt es beide Knochen zu kontrollieren und Armgelenk selbst Kraft auszuüben. man braucht also genau drei Punkte, um ein Gelenk zu brechen. das Einspannen der Knochen mit zwei einspann-Punkten, und einen dritten brech-punkt zur Krafteinwirkung direkt am gelenk. je weiter die einspannpunkte von Gelenk entfernt sind, um so eine größere Hebelwirkung erreicht man und umso leichter brichst du das Gelenk.
 
 **einfaches Bild**: stell dir über einen Bach vor als einfache Brücke.  sie besteht nur aus einem einzigen Brett. wenn du nun genau in der Mitte des Bretts anfängst zu springen, hast du gute Chancen dieses zu brechen. das ist eine einfache Vorstellung, verdeutlicht dir aber wie grundsätzlich ein Hebel funktioniert. dies ist aber nicht die ideale Vorstellung eines hebels. du kannst doch wesentlich besser brechen
 
@@ -16,7 +18,9 @@ durch ein bisschen Springen wirst du die obere Brücke sicherlich ein zwei bekom
 
 **differenzierteres Bild** du sitzt an einem Essenstisch und vor dir ist ein Strohhal. wie würdest du diesen Strohhalm knicken? am einfachsten ist es den Strohhalm an einem Ende auf der Tischplatte zu fixieren. mit der anderen Hand drückst du den Strohhalm in der Mitte ein. dann  führst du das freie Ende nach oben, radial um den geknickten Mittelpunkt herum. das freie Ende des Strohhalms versuchst du, auf das fixe Ende auf den Tisch abzulegen.
 
-**nomenklatur**: nun gilt es die Nomenklatur zu erklären: 
+## Fixpunkt, Fulkrum, Hebelpunkt
+
+nun gilt es die Nomenklatur zu erklären: 
 
 * Fixpunkt: das am Tisch fixierte Ende des Strohhalms
 * Fixpart: der am Tisch fixierte Teil des Strohhalms
@@ -36,7 +40,7 @@ durch ein bisschen Springen wirst du die obere Brücke sicherlich ein zwei bekom
 
 die Verletzungsgefahr im Stand ist wesentlich größer. denn grundsätzlich gibt es die Möglichkeit, dass ein oder beide Partner fallen und der Hebel sehr unglücklich wird und ein Bruch erfolgt. hingegwn: da man im Boden (fast) nicht mehr wirklich fallen kann, gibt es diese Gefahr dort nicht oder nur sehr selten.
 
-stell dir mal vor Komma was ein schwerthandwurf (shionage), armstreckhebel, handdrehhebel (Kote hineri), fingerhebel an Schaden beim Partner anrichtet. wir sprechen hier von einer Verletzungspause von einem Jahr, wenn die Rotatorenmanschette zerstört ist. wenn das überhaupt mal wieder wird!
+stell dir mal vor , was ein schwerthandwurf (shionage), armstreckhebel, handdrehhebel (Kote hineri), fingerhebel an Schaden beim Partner anrichtet. wir sprechen hier von einer Verletzungspause von einem Jahr, wenn die Rotatorenmanschette zerstört ist. wenn das überhaupt mal wieder wird!
 
 hinweis: hier folgt wieder der Hinweis, dass wir im Kampfsport zwar Kampf trainieren aber dennoch nur darauf bedacht sind, niemanden zu verletzen
 
@@ -50,7 +54,7 @@ traditionelle Hebetechniken vor allem im Stand sind vergleichsweise einfach zu e
 
 diese traditionelle Trainingsform ermöglicht es, die Hebel auch im stand kontrolliert und sicher trainieren zu können. dadurch bekommst du ein grundlegendes und äußerst wichtiges Verständnis zur Funktionsweise der Hebel. was du wahrscheinlich eher nicht lernst, ist, wie man im Freikampf in einen solchen Hebel kommt. denn das ist schier unmöglich, umindest wenn der Gegner Erfahrung in modernen, schellen Kampfsportarten hat
 
-**geschichte**: win partner hat sich gefreut, dass die hebel so wunderbar klappen. bei anderen partnern  würde das nicht gehen. (es ging um einen handgelenjshebel nach punch.) daraufhin habe ich mehrmals konsequent mein Arm nicht mit der 60°-Bewegung mitgedreht. da hat er erkannt, dass eine Technik nicht nur von Körper des Partners abhängig ist, sondern auch von der Bereitschaft eine Technik zuzulassen. dies hat ihn leider (glücklicherweise) auch der Illusion beraubt, dass diese Technik funktionieren könnte ... nicht einmal bei einem so schwächlichen, kleinen Partner wie mir. (natürlich konnte der partner danach die Technik wieder "normal". die grobform wird immer mithilfe eines sanftes Partners erworben.)
+**geschichte**: win partner hat sich gefreut, dass die hebel so wunderbar klappen. bei anderen partnern  würde das nicht gehen. (es ging um einen handgelenjshebel nach punch.) daraufhin habe ich mehrmals konsequent mein Arm nicht mit der 60°-Bewegung mitgedreht. da hat er erkannt, dass eine Technik nicht nur von Körper des Partners abhängig ist, sondern auch von der Bereitschaft eine Technik zuzulassen. dies hat ihn leider (glücklicherweise) auch der Illusion beraubt, dass diese Technik funktionieren könnte ... nicht einmal bei einem so schwächlichen, kleinen Partner wie mir. 
 
 **WICHTIG: Verletzungsgefahr!** Hebel im Stand und im Freikampf sind gefährlich. hintergrund ist der, dass auf der Matte zwei große schwere Körper stehen die auf ein kleines Gelenk einwirken können. einmal gestolpert und einer der beiden Partner kann zwei Jahre lang nicht mehr trainieren. daher Hebel im Stand niemals bei einem Freikampf anwenden. was ihr aber machen könnt, ist folgendes: 
 
@@ -77,9 +81,10 @@ dadurch ist es möglich, mit mehreren eigenen Gliedmaßen an dem isolierten einz
 
 Beispiel: beim armstreckhebel am Boden isolierst du z.B den Arm an dem Du hier bist. dabei setzt du ein: 
 
-* Drehung des Partners auf die Seite, um den nicht zu hebelnden Arm nach unten zu drehen ( der ist dann kontrolliert
-
-vorliegenden Fall gehe ich bewusst nur auf einen (fast) gefahrlosen Hebel im Stand ein, bei dem die verletzungsgefahr erwiesenermaßen weniger gravierend ist 
+* anderen Arm blockieren: Drehung des Partners auf die Seite, um den nicht zu hebelnden Arm nach unten zu brungen, dee ust dann "tot" = blockeriert
+* täuschung: am Hals angreifen, den Partner damit beschäftigen, dass er denkt, er wird durch einen Würger bedroht
+* blenden: mit den offenen Hand das Gesicht des Partners wegdrehen
+* isolation: mit beiden armen den Arm des Partners ziehen = 2 gegen 1-situation; 2 arme gegen 1 arm
 
 ## Hebel
 
@@ -87,14 +92,16 @@ vorliegenden Fall gehe ich bewusst nur auf einen (fast) gefahrlosen Hebel im Sta
 
 beim kipphandhebel greifst du das Handgelenk des Partners gleichseitig und führst dann dessen Handfläche zu seinem Gesicht ( als würdest due ihn in ein Spiegel gucken lassen)  und dann nach außen weg.
 
-dieser kipphandhebel hat im Stand Manko, dass es kein fixspark gibt. die Schulter kann der Partner ausweichen bewegen und somit eine Verletzung im Bereich des Handgelenks verhindern. dieses ausweichen muss er aber Richtung Boden ausführen. und dadurch hast du einen take-down.
+info: der kipphandhebel ist meunes erachtens einer Liebe, die man einigermaßen gefahrlos im Stand durchführen kann. die verletzungsgefahr ist erwiesenermaßen weniger gravierend, wenn man ein bisschen aufpasst. und zwar deshalb:
+
+der kipphandhebel hat im Stand das Manko, dass es keinen fixspart gibt. die Schulter des Partners kann ausweichen und somit eine Verletzung im Bereich des Handgelenks verhindern. dieses ausweichen muss er aber Richtung Boden ausführen. und dadurch hast du einen take-down.
 
 **geschichte** auf der "Damenwahl" durfte ich in der offenen Klasse gegen eine körperlich wesentlich überlegene Gegnerin angetreten. Anfängerin zwar, aber schlichtweg 40 Kilogranm schwerer. sie hat noch im Stand getappt. (Mann war ich froh, dass ich nicht auf den Boden musste! das wäre nicht gut gegangen:-D)
 
-**kipphandhebel am boden - nach missglücktem armbar**: kipphandhebel und armbar bilden aus Sicht des Gegners eine Symbiose des Grauens.  wir sprechen hier vom hundsnormalen Armbar, mit dem Partner in der Rückenlage. der Armbar funktioniert, indem du den Ellenbogen über den Oberschenkel versuchst zu brechen. oft klappt der Gegner als gegentechnik den Ellenbogen ein ... entgeht er dir am Armbar. dabei ermöglicht er aber gleichzeitig eunen kippandhebel möglich. dieser kommt für den Gegnet überraschend. es ist kaum eine Gegenreaktion in angemessener Zeit möglich.
+**kipphandhebel am boden - nach missglücktem armbar**: kipphandhebel und armbar bilden aus Sicht des Gegners eine Symbiose des Grauens.  wir sprechen hier vom hundsnormalen Armbar, mit dem Partner in der Rückenlage. der Armbar funktioniert, indem du den Ellenbogen über den Oberschenkel versuchst zu brechen. oft klappt der Gegner als gegentechnik den Ellenbogen ein. dadurch entgeht er dem Armbar ... aaaber dies ermöglicht dir gleichzeitig den kippandhebel. dieser kommt für den Gegner überraschend. 
 
-bei einer deutschen Meisterschaft hat ein junges Mädchen (16 j.) zu alte Hasen reihenweise getappt, u. a. mit dieser Technik . in einem kampf zieht sie den armbar. die gegnerin beugt als gegentechnik ihren arm . das junge Mädel zieht weiter, nur eben als kipphandhebel. ( am Boden hat der kipphandel durchaus einen Fixpart => am Boden ist der kipphandhebel desaströs!) so schnell konnte die gegnerin gar nicht tappen ... hat das die junge Dame super gemacht. sie heisst 
-Jolina Reinhold.
+**geschichte**: bei einer deutschen judo-Meisterschaft (u16 UND U21) hat ein junges Mädchen (16 j.) alte Hasen reihenweise getappt, u. a. mit dieser Technik . in einem kampf zieht sie den armbar. die gegnerin beugt als gegentechnik ihren arm . das junge Mädel zieht weiter, nur eben als kipphandhebel. ( am Boden hat der kipphandel durchaus einen Fixpart => am Boden ist der kipphandhebel desaströs!) so schnell konnte die gegnerin gar nicht tappen ... hat das die junge Dame super gemacht. sie heisst 
+Jolina Reinhold;-)
 
 
 * gelenk öffnen
