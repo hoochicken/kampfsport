@@ -54,7 +54,7 @@ traditionelle Hebetechniken vor allem im Stand sind vergleichsweise einfach zu e
 
 diese traditionelle Trainingsform ermöglicht es, die Hebel auch im stand kontrolliert und sicher trainieren zu können. dadurch bekommst du ein grundlegendes und äußerst wichtiges Verständnis zur Funktionsweise der Hebel. was du wahrscheinlich eher nicht lernst, ist, wie man im Freikampf in einen solchen Hebel kommt. denn das ist schier unmöglich, umindest wenn der Gegner Erfahrung in modernen, schellen Kampfsportarten hat
 
-**geschichte**: win partner hat sich gefreut, dass die hebel so wunderbar klappen. bei anderen partnern  würde das nicht gehen. (es ging um einen handgelenjshebel nach punch.) daraufhin habe ich mehrmals konsequent mein Arm nicht mit der 60°-Bewegung mitgedreht. da hat er erkannt, dass eine Technik nicht nur von Körper des Partners abhängig ist, sondern auch von der Bereitschaft eine Technik zuzulassen. dies hat ihn leider (glücklicherweise) auch der Illusion beraubt, dass diese Technik funktionieren könnte ... nicht einmal bei einem so schwächlichen, kleinen Partner wie mir. 
+**geschichte**: ein partner hat sich gefreut, dass die hebel so wunderbar klappen: bei anderen partnern würde das nicht gehen. (es ging um einen handgelenkshebel nach punch.) daraufhin habe ich mehrmals konsequent mein Arm nicht mit der 60°-Bewegung mitgedreht. da hat er erkannt, dass eine Technik nicht nur von Körper des Partners abhängig ist, sondern auch von der Bereitschaft eine Technik zuzulassen. dies hat ihn leider (glücklicherweise) auch der Illusion beraubt, dass diese Technik funktionieren könnte ... nicht einmal bei einem so schwächlichen, kleinen Partner wie mir. 
 
 **WICHTIG: Verletzungsgefahr!** Hebel im Stand und im Freikampf sind gefährlich. hintergrund ist der, dass auf der Matte zwei große schwere Körper stehen die auf ein kleines Gelenk einwirken können. einmal gestolpert und einer der beiden Partner kann zwei Jahre lang nicht mehr trainieren. daher Hebel im Stand niemals bei einem Freikampf anwenden. was ihr aber machen könnt, ist folgendes: 
 
@@ -70,21 +70,33 @@ Henka Vasa bezeichnet den Übergang von einer Technik in die andere Technik. es 
 
 wenn man nicht traditionell trainiert, so muss man sich jeden Hebel erarbeiten. 
 
-ein Hebel zu erarbeiten heißt ein Gliedmaß des Partners zu isolieren. diese Isolation erreicht man durch
+**isolation**: ein Hebel zu erarbeiten heißt ein Gliedmaß des Partners zu isolieren. diese Isolation erreicht man durch
 
 * Griffe
 * Scheinangriffe und Täuschungen
 * Blenden des Partners
 * Kontrolle anderer Gliedmassen
 
-dadurch ist es möglich, mit mehreren eigenen Gliedmaßen an dem isolierten einzelnen Gliedmaß des anderen zu arbeiten. das ist einfacher Mathematik: 2 ist stärker als 1.
+dadurch ist es möglich, mit mehreren eigenen Gliedmaßen an dem isolierten einzelnen Gliedmaß des anderen zu arbeiten. das ist einfacher Mathematik: **2 ist stärker als 1**.
 
-Beispiel: beim armstreckhebel am Boden isolierst du z.B den Arm an dem Du hier bist. dabei setzt du ein: 
+**grossen hebel verwenden**: je weiter außen du ein Gliedmaß greifst, umso größer ist die Kraft die Du darauf anwenden kannst. typisches Beispiel wäre ein Armstreckhebel. stell dir vor du ziehst den armba kurz über dem Ellenbogengelenk. der Gegner hat es dann sehr einfach seinen Arm zu beugen und das Gelenk zu schützen. je weiter außen du greifst, umso größer ist die Hebelwirkung, umso mehr hast Kraft hast du im Vergleich zum gegner.
+
+**in den winkel drehen**: ein Winkel hat immer eine bestimmte Richtung, in der er besonders gut wird. diese Richtung liegt in der Regel dort, wohin das Gelenk nicht auf natürliche Weise gelangen kann. 
+
+und beim Beispiel des armstrecke bis zu bleiben: den Ellenbogen bis zum Anschlag bringen und dann darüber hinaus bewegen. gerade beim armstreckheber ist es leicht, zu sehen in welche Richtung du ziehen musst. in der Regel reicht es aus, Richtung kleinen Finger zu drehen, denn der kleine Finger verrät dir zumeist, wie der Ellenbogen gerade steht.
+
+und den Winkel sich erhalten zu können, ist es sinnvoll nicht an einem runden Part des gliedmaßes zu arbeiten. wieder am Beispiel des armstreckhebels: nicht das Handgelenk halten, sondern komplett in die Hand eingreifen. sicher, dass der Ellenbogen in eine Richtung schaut. der Partner kann ihn nicht herausdrehen zu einer Gegendtechnik
+
+* gelenk öffnen
+* gelenk optimal drehen
+
+**Beispiel armstreckhebel (ASH): beim armstreckhebel am Boden isolierst du z.B den Arm an dem Du hier bist. dabei setzt du ein: 
 
 * anderen Arm blockieren: Drehung des Partners auf die Seite, um den nicht zu hebelnden Arm nach unten zu brungen, dee ust dann "tot" = blockeriert
 * täuschung: am Hals angreifen, den Partner damit beschäftigen, dass er denkt, er wird durch einen Würger bedroht
 * blenden: mit den offenen Hand das Gesicht des Partners wegdrehen
 * isolation: mit beiden armen den Arm des Partners ziehen = 2 gegen 1-situation; 2 arme gegen 1 arm
+* => der Arm des Gegners ist isoliert, langgestreckt und angreifbar
 
 ## Hebel
 
@@ -104,8 +116,7 @@ der kipphandhebel hat im Stand das Manko, dass es keinen fixspart gibt. die Schu
 Jolina Reinhold;-)
 
 
-* gelenk öffnen
-* gelenk optimal drehen
+
 
 
 Beispiel: 
@@ -117,3 +128,10 @@ wak7-gatame am Boden
 ## hebel-distanzlehre 
 
 bei den Hebeln: hebel arbeite wirklich an dem Gelenk, welches du beanspruchen bzw brechen möchtest. wie sind das gewohnt, auf den Körper des anderen zu arbeiten, auf die Körpermitte . Hebel verhalten sich da ganz andere. gibst du an einem Gliedmaß herum, so arbeitet dich zu diesem Gliedmaß, zu diesem Gelenk hin. ist es: das gliedmaß optimal zu hebeln, wodurch du von der Körpermitte des Partners wegrutscht. gleichzeitig musst du darfst nicht angreifbar sein durch atemi-techniken (Schläge, Kicks, benötigst einen sicheren Stand, damit man dich nicht umwerfen kann.
+
+## gegentechniken
+
+* gliedmassen eng halten, keinen großen Hebel anbieten
+* nicht isolieren lassen
+frame aufbauen
+
