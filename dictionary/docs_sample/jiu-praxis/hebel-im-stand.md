@@ -27,11 +27,21 @@ nun gilt es die Nomenklatur zu erklären:
 * Fulkrum: der eingedrückten Punkt in der Mitte, es ist der Drehpunkt oder das Fulkrum*). um diesen herum wird der Hebelarm gedreht
 * Hebelpart: das bewegte Ende des Strohhalms . (eigentlich wollte ich es Hebelarm nennen. aber das gibt dann zu viel Verwirrung weil Arm auch ein Körperteil bezeichnet)
 * Hebelschubpunkt: das entfernte Ende des Strohhalms, da sich bewegt. der hebelschub. liegt möglich weit außen, damit man eine bessere (physikalische) Hebelwirkung erzeugt
+* Bruchvektor: die optimale Richtung, in welche der hebelpunkt bewegt werden muss, um Schaden am Gelenk zu erzeugen
+
+**beispiel: armstreckhebel am boden** 
+
+* Fixpunkt: die am Boden liegende Schulter des gehebelten arms 
+* Fixpart: der Oberarm das gehäkelten arms, gegebenenfalls am Boden auflegen, wahrscheinlich eher ein bisschen in der Luft
+* Fulkrum: morgen früh das Ellenbogengelenk, im vorliegenden Fall am untersten Ende des Unterarms
+* Hebelpart: Unterarm des gehebekten armd 
+* Hebelschubpunkt: wir sind so weit unten ist das äußere Ende des geliebelten Arms  = das fixierte habdgelenk
+* Bruchvektor: die optimale Richtung, in welche der hebelpunkt bewegt werden muss, um Schaden am Gelenk zu erzeugen
+
 
 Ein Gelenk ist oft nur in eine bestimmte Richtung brechbar. Daher benötigen Fix- und Hebelpunkt ebenfalls eine Vorgabe in der Richtung. Das heisst, das der Partner darf sich nicht "aus dem Hebel herauswinden" dürfen können.
 
-einfaches Beispiel: bei einem armstrichhebel dreht der Partner seinen Arm um 180 Grad. dadurch XXXXX
- möglichst  in ihrer Richtung zu bestimmen. 
+einfaches Beispiel: bei einem armstreckhebel dreht der Partner seinen Arm um 180 Grad. dadurch dadurch würde der "armstreckheabel" den Ellenbogen einfach nur beugen und nicht brechen. 
 
 *) "gib mir einen festen Punkt im Universum und ich bewege die Welt*, oder so ähnlich ...
 
