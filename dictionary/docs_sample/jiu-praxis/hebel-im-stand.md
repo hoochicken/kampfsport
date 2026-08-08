@@ -28,6 +28,8 @@ nun gilt es die Nomenklatur zu erklären:
 * Hebelpart: das bewegte Ende des Strohhalms . (eigentlich wollte ich es Hebelarm nennen. aber das gibt dann zu viel Verwirrung weil Arm auch ein Körperteil bezeichnet)
 * Hebelschubpunkt: das entfernte Ende des Strohhalms, da sich bewegt. der hebelschub. liegt möglich weit außen, damit man eine bessere (physikalische) Hebelwirkung erzeugt
 
+Ein Gelenk ist nur in ein
+
 *) "gib mir einen festen Punkt im Universum und ich bewege die Welt*, oder so ähnlich ...
 
 ## Unterschied von Hebeltechniken am Boden und im Stand
