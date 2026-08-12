@@ -66,6 +66,7 @@ nun gilt es die Nomenklatur zu erklären:
 * Hebelpart: Unterarm des gehebekten armd 
 * Hebelschubpunkt: wir sind so weit unten ist das äußere Ende des geliebelten Arms  = das fixierte habdgelenk
 * Bruchvektor: die optimale Richtung, in welche der hebelpunkt bewegt werden muss, um Schaden am Gelenk zu erzeugen: in der Regel 90° zum Hebelpart abweichend der natürlichen Bewegungsrichtung des Gelenks
+* fulkrumträger: der Punkt deines Körpers, dass du am vollkommen ansetzt, um darum herum den Hebel zu führen und das hebeltziel brechen
 
 *) "gib mir einen festen Punkt im Universum und ich bewege die Welt*, oder so ähnlich ...
 
@@ -148,20 +149,52 @@ ein Hebel zu erarbeiten heißt ein Gliedmaß des Partners zu isolieren. diese Is
 * Blenden des Partners
 * Kontrolle anderer Gliedmassen
 
-dadurch ist es möglich, mit mehreren eigenen Gliedmaßen an dem isolierten einzelnen Gliedmaß des anderen zu arbeiten. das ist einfacher Mathematik: **2 ist stärker als 1**.
+dadurch ist es möglich, mit mehreren eigenen Gliedmaßen an dem isolierten einzelnen Gliedmaß des anderen zu arbeiten. 
 
-**grossen hebel verwenden**: je weiter außen du ein Gliedmaß greifst, umso größer ist die Kraft die Du darauf anwenden kannst. typisches Beispiel wäre ein Armstreckhebel. stell dir vor du ziehst den armba kurz über dem Ellenbogengelenk. der Gegner hat es dann sehr einfach seinen Arm zu beugen und das Gelenk zu schützen. je weiter außen du greifst, umso größer ist die Hebelwirkung, umso mehr hast Kraft hast du im Vergleich zum gegner.
+* quantitative Übermacht: mit mehreren Gliedmaßen an einem isolierten einzelnen Gliedmaß arbeiten beispielsweise mit zwei Armen gegen einarm
+* qualitative Übermacht: mit starken Gliedmaßen an schwachen Gliedmaßen arbeiten, beispielsweise mit dem Arm gegen ein Handgelenk
 
-**in den winkel drehen**: ein Winkel hat immer eine bestimmte Richtung, in der er besonders gut wird. diese Richtung liegt in der Regel dort, wohin das Gelenk nicht auf natürliche Weise gelangen kann. 
+das ist einfache Mathematik: **2 ist stärker als 1**.
 
-und beim Beispiel des armstrecke bis zu bleiben: den Ellenbogen bis zum Anschlag bringen und dann darüber hinaus bewegen. gerade beim armstreckheber ist es leicht, zu sehen in welche Richtung du ziehen musst. in der Regel reicht es aus, Richtung kleinen Finger zu drehen, denn der kleine Finger verrät dir zumeist, wie der Ellenbogen gerade steht.
+**kraft durch hebel**
 
-und den Winkel sich erhalten zu können, ist es sinnvoll nicht an einem runden Part des gliedmaßes zu arbeiten. wieder am Beispiel des armstreckhebels: nicht das Handgelenk halten, sondern komplett in die Hand eingreifen. sicher, dass der Ellenbogen in eine Richtung schaut. der Partner kann ihn nicht herausdrehen zu einer Gegendtechnik
+je weiter außen du ein Gliedmaß greifst, umso größer ist die Kraft die Du darauf anwenden kannst. typisches Beispiel wäre ein Armstreckhebel. stell dir vor du ziehst den armba kurz über dem Ellenbogengelenk. der Gegner hat es dann sehr einfach seinen Arm zu beugen und das Gelenk zu schützen. je weiter außen du greifst, umso größer ist die Hebelwirkung, umso mehr hast Kraft hast du im Vergleich zum gegner.
 
-* gelenk öffnen
-* gelenk optimal drehen
+**fulkrum setzen**
 
-**Beispiel armstreckhebel (ASH): beim armstreckhebel am Boden isolierst du z.B den Arm an dem Du hier bist. dabei setzt du ein: 
+das vollkommen ist der Teil deines Körpers über den du das hebelziel = Gliedmaß des anderen brichst
+
+überlege Dir ganz genau wo dieser Punkt ist und versetze deinen fulkrumträger an die gewünschte Stelle
+
+**in den winkel drehen**
+
+ein Winkel hat immer eine bestimmte Richtung, in der er besonders gut wird. diese Richtung liegt in der Regel dort, wohin das Gelenk nicht auf natürliche Weise gelangen kann. 
+
+um beim Beispiel des armstrecke bis zu bleiben: den Ellenbogen bis zum Anschlag bringen und dann darüber hinaus bewegen. gerade beim armstreckheber ist es leicht, zu sehen in welche Richtung du ziehen musst. in der Regel reicht es aus, Richtung kleinen Finger zu drehen, denn der kleine Finger verrät dir zumeist, wie der Ellenbogen gerade steht.
+
+um Winkel sich erhalten zu können, ist es sinnvoll nicht an einem runden Part des gliedmaßes zu arbeiten. wieder am Beispiel des armstreckhebels: nicht das Handgelenk halten, sondern komplett in die Hand eingreifen. sicher, dass der Ellenbogen in eine Richtung schaut. der Partner kann ihn nicht herausdrehen zu einer Gegendtechnik
+
+**Gelenk öffnen**
+
+um ein Gelenk optimal Hebeln zu können, ist es geschickt, es zuvor "schwach" zu machen. denn ein Gelenk hat eine natürliche schutzvorrüstvorrichtung namens muskulatur. die Muskulatur hält ein Gelenk an Ort und Stelle. schwach macht man ein Gelenk, indem man an dem Gliedmaß zieht. Beispiel handbeugehebel zunächst einmal das Handgelenk weit ziehen Punkt und erst dann Beugung ausfüllen.
+
+**Beispiel der Prinzipien anhand armstreckhebel (ASH)**
+
+* Ziel ist der armstreckhebel am Boden
+* position before submision: Partner auf die Seite drehen
+* isolation: mit beuden Armen, den einzelnen Arm des Partners isolieren, gegebenenfalls durchwinde oder brutale Gewalt
+* position before submission sicherstellen, dass die Schulter des Partners in den eigenen Schritt rutscht beim fallen nach hinten, erzeugt gleichzeitig eine qualitative und quantitative übermacht
+* kraftcdurch hebel: das hebelziel möglichst weit außenpacken, also am Handgelenk desto hebelnden arms
+* in den winkel drehen: im Falle des armstrickhebes würde ich das vollkommen über den Oberschenkel ziehen, wobei der Oberschenkel ein bisschen angewinkelt wird, damit er direkt auf dem Vollkorn liegt
+
+
+## Finten etc.
+
+auch in Bezug auf Hebeltechniken, kannst du Täuschungen, finten, blenden etc. einsetzen. oft ist es sinnvoll, nicht direkt auf das Ziel (Hebel, submission) zuzusprinten, sondern ein paar blendende Köder in den Kampf zu werfen
+
+**Beispiel armstreckhebel (ASH)**
+
+beim armstreckhebel am Boden isolierst du z.B den Arm an dem Du hier bist. dabei setzt du ein: 
 
 * anderen Arm blockieren: Drehung des Partners auf die Seite, um den nicht zu hebelnden Arm nach unten zu brungen, dee ust dann "tot" = blockeriert
 * täuschung: am Hals angreifen, den Partner damit beschäftigen, dass er denkt, er wird durch einen Würger bedroht
