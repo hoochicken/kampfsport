@@ -39,7 +39,9 @@ Wirkungsweise kann sein:
 * Gleichgewichts-Verlust - wer das Gleichgewicht sucht
 * temporäres Blenden - Faust vor den Augen behindert Sicht
 * Desorientierung - Manipulation des Blickes, wer Orientierung sucht
-* Schmerz - Angst vor Verletzung
+* Schmerz 
+* Verletzung: platzwunde, innere verletzung
+* Angst vor schmerz und Verletzung, vorausahnende Befürchtung großen Unheils
 
 Wer mit Gleichgewichtssuche etc. beschäftigt ist, ist beschäftigt und kann weder schlagen nach verteidigen.
 
