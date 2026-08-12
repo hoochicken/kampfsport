@@ -14,9 +14,9 @@ das dominante und damit stärkere Bein steht dann hinten Punkt das hintere Bein 
 
 je nach Ausführung als Kik oder Stoß, bieten sich folgende Treffflächen an
 
-* ganze Fußfläche zum Stoß 
+* ganze Fußfläche zum Stoß oder ohrfeigenartig zum Schmerz
 * Ballen so Schmerz 
-* Fußrist zum Schmerz 
+* Fußrist zum Schmerz , gerne speziell mit dem angespannten Großzeh-Knöchel schlagen
 * Schienbein zum großen Schmerz 
 * Ferse zum Schmerz 
 * nur großer Zeh auf Weichteile, z.B zur kehle  sehr selten, der Vollständigkeit halber erwähnt
