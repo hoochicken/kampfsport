@@ -228,18 +228,20 @@ beim armstreckhebel am Boden isolierst du z.B den Arm an dem Du hier bist. dabei
 
 beim kipphandhebel greifst du das Handgelenk des Partners gleichseitig und führst dann dessen Handfläche zu seinem Gesicht ( als würdest due ihn in ein Spiegel gucken lassen)  und dann nach außen weg.
 
-info: der kipphandhebel ist meunes erachtens einer Liebe, die man einigermaßen gefahrlos im Stand durchführen kann. die verletzungsgefahr ist erwiesenermaßen weniger gravierend, wenn man ein bisschen aufpasst. und zwar deshalb:
+der Hebel funktioniert über eine abweichende Hebel Richtung. das Handgelenk ist ein eigelenk. es ist kegelartig beweglich aber nicht drehbar. der kipphandhebel rotiert das Handgelenk. dadurch wird eine Ausweichbewegung er wird. in gewissen Maße können kann die Beweglichkeit zwischen Elle und Speiche dieser Rotation abfangen. aber nur bis zu einem gewissen Grad. danach bricht entweder das Handgelenk oder der Halteapparat von Elle und Speiche geht kaputt.
+
+info: der kipphandhebel ist miunes erachtens einer der hebel, die man einigermaßen gefahrlos im Stand durchführen kann. die verletzungsgefahr ist erwiesenermaßen weniger gravierend, wenn man ein bisschen aufpasst. und zwar deshalb:
 
 der kipphandhebel hat im Stand das Manko, dass es keinen fixspart gibt. die Schulter des Partners kann ausweichen und somit eine Verletzung im Bereich des Handgelenks verhindern. dieses ausweichen muss er aber Richtung Boden ausführen. und dadurch hast du einen take-down.
 
-**geschichte** auf der "Damenwahl" durfte ich in der offenen Klasse gegen eine körperlich wesentlich überlegene Gegnerin angetreten. Anfängerin zwar, aber schlichtweg 40 Kilogranm schwerer. sie hat noch im Stand getappt. (Mann war ich froh, dass ich nicht auf den Boden musste! das wäre nicht gut gegangen:-D)
+**geschichte: stand** auf der "Damenwahl" durfte ich in der offenen Klasse gegen eine körperlich wesentlich überlegene Gegnerin angetreten. Anfängerin zwar, aber schlichtweg 40 Kilogranm schwerer. sie hat noch im Stand getappt. (Mann war ich froh, dass ich nicht auf den Boden musste! das wäre nicht gut gegangen:-D)
 
 **kipphandhebel am boden - nach missglücktem armbar**: kipphandhebel und armbar bilden aus Sicht des Gegners eine Symbiose des Grauens.  wir sprechen hier vom hundsnormalen Armbar, mit dem Partner in der Rückenlage. der Armbar funktioniert, indem du den Ellenbogen über den Oberschenkel versuchst zu brechen. oft klappt der Gegner als gegentechnik den Ellenbogen ein. dadurch entgeht er dem Armbar ... aaaber dies ermöglicht dir gleichzeitig den kippandhebel. dieser kommt für den Gegner überraschend. 
 
-**geschichte**: bei einer deutschen judo-Meisterschaft (u16 UND U21) hat ein junges Mädchen (16 j.) alte Hasen reihenweise getappt, u. a. mit dieser Technik . in einem kampf zieht sie den armbar. die gegnerin beugt als gegentechnik ihren arm . das junge Mädel zieht weiter, nur eben als kipphandhebel. ( am Boden hat der kipphandel durchaus einen Fixpart => am Boden ist der kipphandhebel desaströs!) so schnell konnte die gegnerin gar nicht tappen ... hat das die junge Dame super gemacht. sie heisst 
+**geschichte: boden**: bei einer deutschen judo-Meisterschaft (u16 UND U21) hat ein junges Mädchen (16 j.) alte Hasen reihenweise getappt, u. a. mit dieser Technik . in einem kampf zieht sie den armbar. die gegnerin beugt als gegentechnik ihren arm . das junge Mädel zieht weiter, nur eben als kipphandhebel. ( am Boden hat der kipphandel durchaus einen Fixpart => am Boden ist der kipphandhebel desaströs!) so schnell konnte die gegnerin gar nicht tappen ... hat das die junge Dame super gemacht. sie heisst 
 Jolina Reinhold;-)
 
-
+**armsrätrreckhebel**
 
 
 
