@@ -197,6 +197,18 @@ ein Hebel wird durch Druck auf zwei Punkte erzeugt.
 * in den winkel drehen: die optimale Richtung zum Ziehen des armstrickhefes ist in der Regel identisch mit der Ausrichtung des kleinen Fingers. drehe daher am Handgelenk die Hand so, dass der Kleine Finger in Richtung des Oberschenkels zeigt.
 * eigentlicher hebel und gegendruck: anhebepunkt und fulkrum baust du nun zwei entgegengesetzte Kräfte aus. mit dem Oberschenkel drückst du massiv gegen den Ellenbogen, gegebenenfalls unter Zuhilfenahme der Hüfte mit beiden Armen hebelst du am hebelpunkt/handgelenk des Partners und ziehst es entgegen dem Oberschenkel. das wird bei optimaler Ausführung seitlich an dir vorbei sein.
 
+## hebel-distanzlehre 
+
+noch einmal möchte ich auf das  setzen das fulkrumTrägers zurückkommen.
+
+den fulkrumträger setzt du am zu hebelenden Gelenk an, am fulkrum. da der fulkrumpunkt in der Regel stabil sein muss, ist es ratsam, den gesamten Körper dorthin zu bewegen. beim Hebeln eines Gliedmaß lass dich also nicht davon ablenken, den kompletten Körper des partners irgendwie zu berühren. 
+
+viel mehr krabbelst du zu dem gehäkelten körperteilchen. die Endstellung eines Hebels an einem Gliedmaß ist in der Regel asymmetrisch. eigentlich klebst du dich anders zu hebelnde Gliedmaß an.
+
+und dennoch kontrollierst du dadurch die Position des Partners. indem du Fixpunkt, fulkrum, hebelpunkt geschickt einsetzt solltest du du eine Fixierung des gesamten Partners erreichen.
+
+dadurch bist du sicher und nicht musst angreifbar sein durch atemi-techniken (Schläge, Kicks) 
+
 ## Finten etc.
 
 auch in Bezug auf Hebeltechniken, kannst du Täuschungen, finten, blenden etc. einsetzen. oft ist es sinnvoll, nicht direkt auf das Ziel (Hebel, submission) zuzusprinten, sondern ein paar blendende Köder in den Kampf zu werfen
@@ -238,9 +250,6 @@ waki-gatame im Stand
 
 wak7-gatame am Boden
 
-## hebel-distanzlehre 
-
-bei den Hebeln: hebel arbeite wirklich an dem Gelenk, welches du beanspruchen bzw brechen möchtest. wie sind das gewohnt, auf den Körper des anderen zu arbeiten, auf die Körpermitte . Hebel verhalten sich da ganz andere. gibst du an einem Gliedmaß herum, so arbeitet dich zu diesem Gliedmaß, zu diesem Gelenk hin. ist es: das gliedmaß optimal zu hebeln, wodurch du von der Körpermitte des Partners wegrutscht. gleichzeitig musst du darfst nicht angreifbar sein durch atemi-techniken (Schläge, Kicks, benötigst einen sicheren Stand, damit man dich nicht umwerfen kann.
 
 ## gegentechniken
 
