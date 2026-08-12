@@ -130,7 +130,7 @@ Henka Vasa bezeichnet den Übergang von einer Technik in die andere Technik. es 
 
 **licht aus ...**: gerne könnt ihr auch das Licht ausmachen während dieser Übung und euch ganz sanft und locker bewegen. diese Übung ist äußerst spannend weil man die Position des anderen fühlt über den Körperkontakt Punkt wenn du zum Beispiel nur den Unterarm in der Hand hast kannst du aus dem Winkel schließen und der Spannung, wo die Schulter des Partners steht und welches Verhältnis sie zum Körper hat Punkt daher weißt du auch, wie der Partner gerade steht. das ist eine super Übung für die Körperschulung und Orientierung im Raum
 
-## hebel erarbeiten
+## hebel-Prinzipien
 
 wenn man flexibel und anwendungsbezogen trainiert, so muss man sich jeden Hebel erarbeiten. hierbei sind die folgenden prinzipien ausschlaggebend
 
@@ -192,9 +192,8 @@ ein Hebel wird durch Druck auf zwei Punkte erzeugt.
 * isolation: mit beuden Armen, den einzelnen Arm des Partners isolieren, gegebenenfalls durchwinde oder brutale Gewalt
 * position before submission sicherstellen, dass die Schulter des Partners in den eigenen Schritt rutscht beim fallen nach hinten, erzeugt gleichzeitig eine qualitative und quantitative übermacht
 * kraft durch hebel: das hebelziel möglichst weit außenpacken, also am Handgelenk desto hebelnden arms
-* fulkrum setzen: im Falle des armstreckhebes kannst du  das fulkrum die optimale Richtung, in welche der hebelpunkt bewegt werden muss, um Schaden am Gelenk zu erzeugen: in der Regel 90° zum Hebelpart abweichend der natürlichen Bewegungsrichtung des Gelenkdie optimale Richtung, in welche der hebelpunkt bewegt werden muss, um Schaden am Gelenk zu erzeugen: in der Regel 90° zum Hebelpart abweichend der natürlichen Bewegungsrichtung des Gelenksdie optimale Richtung, in welche der hebelpunkt bewegt werden muss, um Schaden am Gelenk zu erzeugen: in der Regel 90° zum Hebelpart abweichend der natürlichen Bewegungsrichtung des Gelenks
 * fulkrumträger setzen: im Falle des armstrickhebes kannst du den Oberschenkel als vollkommen Träger anwenden. dazu musst du das Bein leicht anwinkeln. 
-* in den winkel drehen: die optimale Richtung zum Ziehen des armstrickhefes ist in der Regel identisch mit der Ausrichtung des kleinen Fingers. drehe daher am Handgelenk die Hand so, dass der Kleine Finger in Richtung des Oberschenkels zeigt.
+* in den winkel drehen: die optimale Richtung zum Ziehen des armstrickhefes ist in der Regel identisch mit der Ausrichtung des kleinen Fingers. drehe daher am Handgelenk die Hand so, dass der Kleine Finger in Richtung des Oberschenkels zeigt. in der Regel 90° zum Hebelpart abweichend der natürlichen Bewegungsrichtung des Gelenksdie optimale Richtung, in welche der hebelpunkt bewegt werden muss, um Schaden am Gelenk zu erzeugen: in der Regel 90° zum Hebelpart abweichend der natürlichen Bewegungsrichtung des Gelenks
 * eigentlicher hebel und gegendruck: anhebepunkt und fulkrum baust du nun zwei entgegengesetzte Kräfte aus. mit dem Oberschenkel drückst du massiv gegen den Ellenbogen, gegebenenfalls unter Zuhilfenahme der Hüfte mit beiden Armen hebelst du am hebelpunkt/handgelenk des Partners und ziehst es entgegen dem Oberschenkel. das wird bei optimaler Ausführung seitlich an dir vorbei sein.
 
 ## hebel-distanzlehre 
