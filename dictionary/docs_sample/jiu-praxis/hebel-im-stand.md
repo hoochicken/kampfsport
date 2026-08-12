@@ -178,6 +178,13 @@ um Winkel sich erhalten zu können, ist es sinnvoll nicht an einem runden Part d
 
 um ein Gelenk optimal Hebeln zu können, ist es geschickt, es zuvor "schwach" zu machen. denn ein Gelenk hat eine natürliche schutzvorrüstvorrichtung namens muskulatur. die Muskulatur hält ein Gelenk an Ort und Stelle. schwach macht man ein Gelenk, indem man an dem Gliedmaß zieht. Beispiel handbeugehebel zunächst einmal das Handgelenk weit ziehen Punkt und erst dann Beugung ausfüllen.
 
+**eigentlicher hebel und gegendruck**
+
+ein Hebel wird durch Druck auf zwei Punkte erzeugt. 
+
+* druck am hebelpunkt, radial um das fulkrum bewegt. 
+* druck am fulkrum: der fulkrum-Träger ist also nicht irgendeinen Körperteil von dir, wogegen du brichst.  es ist aktiv beteiligt an Hebel. drehe Körperteil, welches du als fulkrumträger verwendest mit einer harten und möglichst kleinen Fläche an das fulkum Punkt Spanne das gesamte Gliedmaß an 
+
 **Beispiel der Prinzipien anhand armstreckhebel (ASH)**
 
 * Ziel ist der armstreckhebel am Boden
@@ -185,10 +192,10 @@ um ein Gelenk optimal Hebeln zu können, ist es geschickt, es zuvor "schwach" zu
 * isolation: mit beuden Armen, den einzelnen Arm des Partners isolieren, gegebenenfalls durchwinde oder brutale Gewalt
 * position before submission sicherstellen, dass die Schulter des Partners in den eigenen Schritt rutscht beim fallen nach hinten, erzeugt gleichzeitig eine qualitative und quantitative übermacht
 * kraft durch hebel: das hebelziel möglichst weit außenpacken, also am Handgelenk desto hebelnden arms
-* fulkrum setzen: im Falle des armstreckhebes kannst du  das fulkrudie optimale Richtung, in welche der hebelpunkt bewegt werden muss, um Schaden am Gelenk zu erzeugen: in der Regel 90° zum Hebelpart abweichend der natürlichen Bewegungsrichtung des Gelenkdie optimale Richtung, in welche der hebelpunkt bewegt werden muss, um Schaden am Gelenk zu erzeugen: in der Regel 90° zum Hebelpart abweichend der natürlichen Bewegungsrichtung des Gelenksdie optimale Richtung, in welche der hebelpunkt bewegt werden muss, um Schaden am Gelenk zu erzeugen: in der Regel 90° zum Hebelpart abweichend der natürlichen Bewegungsrichtung des Gelenks
-* fulkrumzräger setzen: im Falle des armstrickhebes kannst du den Oberschenkel als vollkommen Träger anwenden. dazu musst du das Bein leicht anwinkeln. 
+* fulkrum setzen: im Falle des armstreckhebes kannst du  das fulkrum die optimale Richtung, in welche der hebelpunkt bewegt werden muss, um Schaden am Gelenk zu erzeugen: in der Regel 90° zum Hebelpart abweichend der natürlichen Bewegungsrichtung des Gelenkdie optimale Richtung, in welche der hebelpunkt bewegt werden muss, um Schaden am Gelenk zu erzeugen: in der Regel 90° zum Hebelpart abweichend der natürlichen Bewegungsrichtung des Gelenksdie optimale Richtung, in welche der hebelpunkt bewegt werden muss, um Schaden am Gelenk zu erzeugen: in der Regel 90° zum Hebelpart abweichend der natürlichen Bewegungsrichtung des Gelenks
+* fulkrumträger setzen: im Falle des armstrickhebes kannst du den Oberschenkel als vollkommen Träger anwenden. dazu musst du das Bein leicht anwinkeln. 
 * in den winkel drehen: die optimale Richtung zum Ziehen des armstrickhefes ist in der Regel identisch mit der Ausrichtung des kleinen Fingers. drehe daher am Handgelenk die Hand so, dass der Kleine Finger in Richtung des Oberschenkels zeigt.
-* XXXXX
+* eigentlicher hebel und gegendruck: anhebepunkt und fulkrum baust du nun zwei entgegengesetzte Kräfte aus. mit dem Oberschenkel drückst du massiv gegen den Ellenbogen, gegebenenfalls unter Zuhilfenahme der Hüfte mit beiden Armen hebelst du am hebelpunkt/handgelenk des Partners und ziehst es entgegen dem Oberschenkel. das wird bei optimaler Ausführung seitlich an dir vorbei sein.
 
 ## Finten etc.
 
