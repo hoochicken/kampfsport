@@ -36,8 +36,9 @@ nun gilt es die Nomenklatur zu erklären:
 * Fulkrum: morgen früh das Ellenbogengelenk, im vorliegenden Fall am untersten Ende des Unterarms
 * Hebelpart: Unterarm des gehebekten armd 
 * Hebelschubpunkt: wir sind so weit unten ist das äußere Ende des geliebelten Arms  = das fixierte habdgelenk
-* Bruchvektor: die optimale Richtung, in welche der hebelpunkt bewegt werden muss, um Schaden am Gelenk zu erzeugen
+* Bruchvektor: die optimale Richtung, in welche der hebelpunkt bewegt werden muss, um Schaden am Gelenk zu erzeugen: in der Regel 90° zum Hebelpart abweichend der natürlichen Bewegungsrichtung des Gelenks
 
+## Bruchvektor
 
 Ein Gelenk ist oft nur in eine bestimmte Richtung brechbar. Daher benötigen Fix- und Hebelpunkt ebenfalls eine Vorgabe in der Richtung. Das heisst, das der Partner darf sich nicht "aus dem Hebel herauswinden" dürfen können.
 
