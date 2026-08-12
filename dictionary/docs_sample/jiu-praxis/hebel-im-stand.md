@@ -184,9 +184,11 @@ um ein Gelenk optimal Hebeln zu können, ist es geschickt, es zuvor "schwach" zu
 * position before submision: Partner auf die Seite drehen
 * isolation: mit beuden Armen, den einzelnen Arm des Partners isolieren, gegebenenfalls durchwinde oder brutale Gewalt
 * position before submission sicherstellen, dass die Schulter des Partners in den eigenen Schritt rutscht beim fallen nach hinten, erzeugt gleichzeitig eine qualitative und quantitative übermacht
-* kraftcdurch hebel: das hebelziel möglichst weit außenpacken, also am Handgelenk desto hebelnden arms
-* in den winkel drehen: im Falle des armstrickhebes würde ich das vollkommen über den Oberschenkel ziehen, wobei der Oberschenkel ein bisschen angewinkelt wird, damit er direkt auf dem Vollkorn liegt
-
+* kraft durch hebel: das hebelziel möglichst weit außenpacken, also am Handgelenk desto hebelnden arms
+* fulkrum setzen: im Falle des armstreckhebes kannst du  das fulkrudie optimale Richtung, in welche der hebelpunkt bewegt werden muss, um Schaden am Gelenk zu erzeugen: in der Regel 90° zum Hebelpart abweichend der natürlichen Bewegungsrichtung des Gelenkdie optimale Richtung, in welche der hebelpunkt bewegt werden muss, um Schaden am Gelenk zu erzeugen: in der Regel 90° zum Hebelpart abweichend der natürlichen Bewegungsrichtung des Gelenksdie optimale Richtung, in welche der hebelpunkt bewegt werden muss, um Schaden am Gelenk zu erzeugen: in der Regel 90° zum Hebelpart abweichend der natürlichen Bewegungsrichtung des Gelenks
+* fulkrumzräger setzen: im Falle des armstrickhebes kannst du den Oberschenkel als vollkommen Träger anwenden. dazu musst du das Bein leicht anwinkeln. 
+* in den winkel drehen: die optimale Richtung zum Ziehen des armstrickhefes ist in der Regel identisch mit der Ausrichtung des kleinen Fingers. drehe daher am Handgelenk die Hand so, dass der Kleine Finger in Richtung des Oberschenkels zeigt.
+* XXXXX
 
 ## Finten etc.
 
