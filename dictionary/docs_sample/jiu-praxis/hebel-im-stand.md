@@ -16,7 +16,7 @@ ein Gelenk ist die Verbindung zwischen zwei Knochen. möchte man dieses Gelenk b
 
 durch ein bisschen Springen wirst du die obere Brücke sicherlich ein zwei bekommen. aber: es ist die einzige Möglichkeit und vor allem ist es die Glücks- und effektivste? verzeih mir, wenn ich kurz das Bild wechsle, denn jetzt befinden wir uns in McDonald's und sitzen an einem Tischchen.
 
-**differenzierteres Bild** du sitzt an einem Essenstisch und vor dir ist ein Strohhal. wie würdest du diesen Strohhalm knicken? am einfachsten ist es den Strohhalm an einem Ende auf der Tischplatte zu fixieren. mit der anderen Hand drückst du den Strohhalm in der Mitte ein. dann  führst du das freie Ende nach oben, radial um den geknickten Mittelpunkt herum. das freie Ende des Strohhalms versuchst du, auf das fixe Ende auf den Tisch abzulegen.
+**differenzierteres Bild**: du sitzt an einem Essenstisch und vor dir ist ein Strohhalm. wie würdest du diesen Strohhalm knicken? am einfachsten ist es den Strohhalm an einem Ende auf der Tischplatte zu fixieren. mit der anderen Hand drückst du den Strohhalm in der Mitte ein. dann  führst du das freie Ende nach oben, radial um den geknickten Mittelpunkt herum. das freie Ende des Strohhalms versuchst du, auf das fixe Ende auf den Tisch abzulegen.
 
 ## Fixpunkt, Fulkrum, Hebelpunkt
 
@@ -26,8 +26,8 @@ nun gilt es die Nomenklatur zu erklären:
 * Fixpart: der am Tisch fixierte Teil des Strohhalms
 * Fulkrum: der eingedrückten Punkt in der Mitte, es ist der Drehpunkt oder das Fulkrum*). um diesen herum wird der Hebelarm gedreht
 * Hebelpart: das bewegte Ende des Strohhalms . (eigentlich wollte ich es Hebelarm nennen. aber das gibt dann zu viel Verwirrung weil Arm auch ein Körperteil bezeichnet)
-* Hebelschubpunkt: das entfernte Ende des Strohhalms, da sich bewegt. der hebelschub. liegt möglich weit außen, damit man eine bessere (physikalische) Hebelwirkung erzeugt
-* Bruchvektor: die optimale Richtung, in welche der hebelpunkt bewegt werden muss, um Schaden am Gelenk zu erzeugen
+* Hebelpunkt: das entfernte Ende des Strohhalms, da sich bewegt. der hebelschub. liegt möglich weit außen, damit man eine bessere (physikalische) Hebelwirkung erzeugt
+* Bruchvektor: die optimale Richtung, in welche der hebelpunkt bewegt werden muss, um Schaden am Gelenk zu erzeugen; in der Regel 90° zum Hebelpart
 
 **beispiel: armstreckhebel am boden** 
 
