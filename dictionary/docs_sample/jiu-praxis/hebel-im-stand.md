@@ -26,9 +26,9 @@ das Tappen sollte dann erfolgen, wenn der Hebel sicher drin ist gleich wirksam. 
 
 **aufmerksamkeit beim hebelausführenden**: bei einem Hebel setzt man einen gewissen Körperteil unter Spannung. diese Spannung überträgt sich vom gehäkelten Körperteil z.B Arm auf den gesamten Körper Punkt oft ist der Partner bemüht leichte Ausweichbewegung durchzuführen, um den Hebel abzumildern. diese Spannung kannst du wahrnehmen Punkt du siehst zum Beispiel wie sich die Hüfte des Partners hebt oder ein leichtes Eindrehen der Schulter erfolgt. neben dieser Zeichen, dass der Hebel bereits wirksam ist. zieh dann also nicht voll durch, sondern frag lieber zurück: "kommt der Hebel? kommt der Hebel?"
 
-**schmerzlose hebel bis zum **knack"**: besondere Vorsicht ist bei Hebel geboten, die nicht weh tun. beispielsweise bei einem Knie Drehhebel empfindet man zunächst keinen Schmerz. der Schmerz kommt erst, sobald alle Bänder gerissen sind. und dann ist das Knie so ziemlich zerstört. als Trainer: mache deine Trainees unbedingt darauf aufmerksam, dass Sie vorsichtig bei diesen Hebeln umgehen. als Training: über diese Techniken immer langsam und vorsichtig aus!
+**schmerzlose hebel bis zum **knack"**: besondere Vorsicht ist bei Hebel geboten, die nicht weh tun. beispielsweise bei einem Knie Drehhebel empfindet man zunächst keinen Schmerz. der Schmerz kommt erst, sobald alle Bänder gerissen sind. und dann ist das Knie so ziemlich zerstört. als Trainer: mache deine Trainees unbedingt darauf aufmerksam, dass Sie vorsichtig bei diesen Hebeln umgehen. als Trainee: über diese Techniken immer langsam und vorsichtig aus!
 
-**geschichte**: auf der submissao in Karlsruhe war es interessant, die Kämpfe schlechte spezifisch zu beobachten. auf den **frauenmatten** wurden Armstreckhebel gezogen. die Kämpferinnen sind (auch im größten Stress des Kampfes!) an diese Hebel äußerst vorsichtig herangegangen und haben sie langsam zugezogen. soweit ich mich erinnere, hat sich keine Kämpferin verletzt. alle hatten Zeit, **rechtzeitig abzuklopfen**, und tazen dies auch. auf der **männermatte** hatte ich das Gefühl, dass in jedem zweiten Kampf ein Arm gebrochen wurde. viele Leute sind von der Matte gelaufen und haben sich ihren **Ellenbogen** gehalten. ist es das Testosteron? was auch immer es ist, es ist kacke für den unterlegenen . überlege dir gut, ob du den Kampf gewinnen willst und den anderen für ein Jahr Trainingspause damit anmeldest.
+**geschichte**: auf der submissao in Karlsruhe war es interessant, die Kämpfe schlechte spezifisch zu beobachten. auf den **frauenmatten** wurden Armstreckhebel gezogen. die Kämpferinnen sind (auch im größten Stress des Kampfes!) an diese Hebel äußerst vorsichtig herangegangen und haben sie langsam zugezogen. soweit ich mich erinnere, hat sich keine Kämpferin verletzt. alle hatten Zeit, **rechtzeitig abzuklopfen**, und tazen dies auch. auf der **männermatte** hatte ich das Gefühl, dass in jedem zweiten Kampf ein Arm gebrochen wurde. viele Leute sind von der Matte gelaufen und haben sich ihren **Ellenbogen** gehalten. ist es das Testosteron? was auch immer es ist, es ist kacke für den unterlegenen . überlege dir gut, ob du den Kampf gewinnen willst und den anderen für **ein Jahr Trainings"pause"** damit anmeldest.
 
 ## Drei-Punkt-Theorie
 
@@ -60,6 +60,8 @@ nun gilt es die Nomenklatur zu erklären:
 * Hebelschubpunkt: wir sind so weit unten ist das äußere Ende des geliebelten Arms  = das fixierte habdgelenk
 * Bruchvektor: die optimale Richtung, in welche der hebelpunkt bewegt werden muss, um Schaden am Gelenk zu erzeugen: in der Regel 90° zum Hebelpart abweichend der natürlichen Bewegungsrichtung des Gelenks
 
+*) "gib mir einen festen Punkt im Universum und ich bewege die Welt*, oder so ähnlich ...
+
 ## Bruchvektor und Verkantung
 
 Ein Gelenk ist oft nur in eine bestimmte Richtung brechbar. Daher benötigen Fix- und Hebelpunkt ebenfalls eine Vorgabe in der Richtung. Das heisst, das der Partner darf sich nicht "aus dem Hebel herauswinden" dürfen können.
@@ -68,17 +70,21 @@ Die optimale Richtung, in welche der hebelpunkt bewegt werden muss, um Schaden a
 
 hier sind mehrere Fälle zu unterscheiden
 
-**beugende Hebel**: beim beugenden Hebel wird ein Gelenk gebeugt. dann wird Kraft ausgeübt und das Gelenk weiter in die Richtung gebeugt, obwohl es dafür kein Spiel hat.
+**beugende Hebel**
 
-Beispiel: Hand beugehebel. die Hand ist zur Beruhigung von etwa 90° nach innen möglich. Winkel deine rechte Hand und 90°, drücke auf den Handrücken der rechten Hand und führe diese Beugung weiter. dabei entsteht eine Spannung auf der Außenseite der Hand. diese Spannung wird allmählich zum Schmerz.
+beim beugenden Hebel wird ein Gelenk gebeugt. dann wird Kraft ausgeübt und das Gelenk weiter in die Richtung gebeugt, obwohl es dafür kein Spiel hat.
 
-, z.B beim Handgelenk Hebel.
+**Beispiel**: Handbeugehebel. die Hand ist zur Beruhigung von etwa 90° nach innen möglich. Winkel deine rechte Hand und 90°, drücke auf den Handrücken der rechten Hand und führe diese Beugung weiter. dabei entsteht eine Spannung auf der Außenseite der Hand. diese Spannung wird allmählich zum Schmerz.
 
-**entgegen Gelenk**: 
+**streckende hebel**
 
-einfaches Beispiel: bei einem armstreckhebel dreht der Partner seinen Arm um 180 Grad. dadurch dadurch würde der "armstreckheabel" den Ellenbogen einfach nur beugen und nicht brechen. 
+beim streckenden Hebel wird ein Gelenk gestreckt. dann wird Kraft ausgeübt und das Gelenk weiter in die Richtung gestreckt. 
 
-*) "gib mir einen festen Punkt im Universum und ich bewege die Welt*, oder so ähnlich ...
+**Beispiel**: beim armstrichhebel wird der Arm gestreckt und der Ellenbogen als vollkommen verwendet. das Scharniergelenk des Ellenbogens wird über seine natürliche 180 Grad an Winkelung hinaus beansprucht. es erfolgt ein Bruch des Ellenbogens, exakter: der Elle im Bereich des Ellenbogens.
+
+**abweichende hebelrichtung = verkantung**
+
+die abweichende Hebel Richtung bezeichnet eine Richtung, für die das Gelenk überhaupt nicht vorgesehen ist. dies ist eher Scharniergelenk möglich weniger bei bei Kugelgelenken. ein Scharniergelenk bewegt sich um eine Achse herum. eine abweichenden Bewegung zieht man den Hebel nicht um die Achse herum, sondern in Richtung der Achse. wie? Beispiel fingerhebel die Finger sind zum Handrücken und zur Handfläche hin recht beweglich. bei einer abweichenden hebelichtung bewegst Du sie seitwärts. dies bezeichnet man auch als Verkantung. diese verkantungen sind vor allem  möglich bei Fingern, Ellenbogen (aufgrund der Beweglichkeit der Schulter etwas schwer zu arrangieren) und Kniegelenk. 
 
 ## Unterschied von Hebeltechniken am Boden und im Stand
 
