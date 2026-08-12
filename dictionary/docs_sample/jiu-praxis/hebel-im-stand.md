@@ -8,6 +8,26 @@ als Hebel bezeichnet man eine Technik, die ein Gelenk beansprucht. die Beanspruc
 
 **Beispiel**: Fingergelenke sind schon die Gelenke sie lassen sich zur Handfläche hin beugen. nicht bewegen lassen sich die Finger zur Seite oder wesentlich über den Handrücken heraus. - ein fingerhebel kann dann z.B die Finger zum Handrücken hin bewegen wollen, oder eine seitliche Verkantung erwirken. beides ist sehr schmerzhaft. warum? war das Gelenk dabei "gebrochen" würde, wenn man diese falsche Beanspruchung weiterführt
 
+## Gesundheit, Abklopfen, Kommunikation ...
+
+Hebel wirken auf das feste körpergerüst des Partners(Skelett) bzw auch auf den damit verbundenen Sehnenapparat und die Muskulatur. mit einem Hebel übt man Kraft auf diese Körperstrukturen aus . sie können auch geschädigt werden. 
+
+in der Regel (aber nicht immer) kündigt sich diese Schädigung durch ein Schmerzempfinden an. daher ist beständig Kommunikation zwischen beiden Partnern grundlegend um die Gesundheit beider zu erhalten.
+
+**gehebelte person**: die Person, die gerade gehebelt wird, muss den Partner mitteilen, wenn der Hebel "drinnen" = wirksam ist. dies kann sie über:
+
+* tappen am Boden (laut, bitte!)
+* tappen am partner (wird sicher wahrgenommen
+* verbale äusserung wie "tap, tap", "achtung, jetzt langsam", "STOP!", "aua"
+
+"tappen" meint dabei das Klatschen mit der Hand auf den Boden oder eben am Körper des Partners. im Falle eines Kampfes bedeutet das tappen, dass man aufgibt.
+
+das Tappen sollte dann erfolgen, wenn der Hebel sicher drin ist gleich wirksam. man muss **nicht** bis zur Schmerzgrenze abwarten. das ist sogar nicht ratsam. nimm mal an, ihr macht ein Abend langarmstrich Hebel und du bekommst hundertmal den armstrichhebel in großer Intensität gezogen. so machst du auf lange Sicht dein Ellenbogen kaputt. hier ist das ratsam, den Hebel ein vielleicht zweimal ein bisschen intensiver ziehen zu lassen, ansonsten aber in einer **schutzbeugung** zu bleiben.
+
+**aufmerksamkeit beim hebelausführenden**: bei einem Hebel setzt man einen gewissen Körperteil unter Spannung. diese Spannung überträgt sich vom gehäkelten Körperteil z.B Arm auf den gesamten Körper Punkt oft ist der Partner bemüht leichte Ausweichbewegung durchzuführen, um den Hebel abzumildern. diese Spannung kannst du wahrnehmen Punkt du siehst zum Beispiel wie sich die Hüfte des Partners hebt oder ein leichtes Eindrehen der Schulter erfolgt. neben dieser Zeichen, dass der Hebel bereits wirksam ist. zieh dann also nicht voll durch, sondern frag lieber zurück: "kommt der Hebel? kommt der Hebel?"
+
+**geschichte**: auf der submissao in Karlsruhe war es interessant, die Kämpfe schlechte spezifisch zu beobachten. auf den **frauenmatten** wurden Armstreckhebel gezogen. die Kämpferinnen sind (auch im größten Stress des Kampfes!) an diese Hebel äußerst vorsichtig herangegangen und haben sie langsam zugezogen. soweit ich mich erinnere, hat sich keine Kämpferin verletzt. alle hatten Zeit, **rechtzeitig abzuklopfen**, und tazen dies auch. auf der **männermatte** hatte ich das Gefühl, dass in jedem zweiten Kampf ein Arm gebrochen wurde. viele Leute sind von der Matte gelaufen und haben sich ihren **Ellenbogen** gehalten. ist es das Testosteron? was auch immer es ist, es ist kacke für den unterlegenen . überlege dir gut, ob du den Kampf gewinnen willst und den anderen für ein Jahr Trainingspause damit anmeldest.
+
 ## Drei-Punkt-Theorie
 
 ein Gelenk ist die Verbindung zwischen zwei Knochen. möchte man dieses Gelenk brechen, so gilt es beide Knochen zu kontrollieren und Armgelenk selbst Kraft auszuüben. man braucht also genau drei Punkte, um ein Gelenk zu brechen. das Einspannen der Knochen mit zwei einspann-Punkten, und einen dritten brech-punkt zur Krafteinwirkung direkt am gelenk. je weiter die einspannpunkte von Gelenk entfernt sind, um so eine größere Hebelwirkung erreicht man und umso leichter brichst du das Gelenk.
@@ -38,9 +58,21 @@ nun gilt es die Nomenklatur zu erklären:
 * Hebelschubpunkt: wir sind so weit unten ist das äußere Ende des geliebelten Arms  = das fixierte habdgelenk
 * Bruchvektor: die optimale Richtung, in welche der hebelpunkt bewegt werden muss, um Schaden am Gelenk zu erzeugen: in der Regel 90° zum Hebelpart abweichend der natürlichen Bewegungsrichtung des Gelenks
 
-## Bruchvektor
+## Bruchvektor und Verkantung
 
 Ein Gelenk ist oft nur in eine bestimmte Richtung brechbar. Daher benötigen Fix- und Hebelpunkt ebenfalls eine Vorgabe in der Richtung. Das heisst, das der Partner darf sich nicht "aus dem Hebel herauswinden" dürfen können.
+
+Die optimale Richtung, in welche der hebelpunkt bewegt werden muss, um Schaden am Gelenk zu erzeugen: in der Regel 90° zum Hebelpart abweichend der natürlichen Bewegungsrichtung des Gelenks.
+
+hier sind mehrere Fälle zu unterscheiden
+
+**beugende Hebel**: beim beugenden Hebel wird ein Gelenk gebeugt. dann wird Kraft ausgeübt und das Gelenk weiter in die Richtung gebeugt, obwohl es dafür kein Spiel hat.
+
+Beispiel: Hand beugehebel. die Hand ist zur Beruhigung von etwa 90° nach innen möglich. Winkel deine rechte Hand und 90°, drücke auf den Handrücken der rechten Hand und führe diese Beugung weiter. dabei entsteht eine Spannung auf der Außenseite der Hand. diese Spannung wird allmählich zum Schmerz.
+
+, z.B beim Handgelenk Hebel.
+
+**entgegen Gelenk**: 
 
 einfaches Beispiel: bei einem armstreckhebel dreht der Partner seinen Arm um 180 Grad. dadurch dadurch würde der "armstreckheabel" den Ellenbogen einfach nur beugen und nicht brechen. 
 
