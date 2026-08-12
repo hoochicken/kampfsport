@@ -14,7 +14,9 @@ Hebel wirken auf das feste körpergerüst des Partners(Skelett) bzw auch auf den
 
 in der Regel (aber nicht immer) kündigt sich diese Schädigung durch ein Schmerzempfinden an. daher ist beständig Kommunikation zwischen beiden Partnern grundlegend um die Gesundheit beider zu erhalten.
 
-**gehebelte person**: die Person, die gerade gehebelt wird, muss den Partner mitteilen, wenn der Hebel "drinnen" = wirksam ist. dies kann sie über:
+**gehebelte person**
+
+die Person, die gerade gehebelt wird, muss den Partner mitteilen, wenn der Hebel "drinnen" = wirksam ist. dies kann sie über:
 
 * tappen am Boden (laut, bitte!)
 * tappen am partner (wird sicher wahrgenommen
@@ -24,11 +26,15 @@ in der Regel (aber nicht immer) kündigt sich diese Schädigung durch ein Schmer
 
 das Tappen sollte dann erfolgen, wenn der Hebel sicher drin ist gleich wirksam. man muss **nicht** bis zur Schmerzgrenze abwarten. das ist sogar nicht ratsam. nimm mal an, ihr macht ein Abend langarmstrich Hebel und du bekommst hundertmal den armstrichhebel in großer Intensität gezogen. so machst du auf lange Sicht dein Ellenbogen kaputt. hier ist das ratsam, den Hebel ein vielleicht zweimal ein bisschen intensiver ziehen zu lassen, ansonsten aber in einer **schutzbeugung** zu bleiben.
 
-**aufmerksamkeit beim hebelausführenden**: bei einem Hebel setzt man einen gewissen Körperteil unter Spannung. diese Spannung überträgt sich vom gehäkelten Körperteil z.B Arm auf den gesamten Körper Punkt oft ist der Partner bemüht leichte Ausweichbewegung durchzuführen, um den Hebel abzumildern. diese Spannung kannst du wahrnehmen Punkt du siehst zum Beispiel wie sich die Hüfte des Partners hebt oder ein leichtes Eindrehen der Schulter erfolgt. neben dieser Zeichen, dass der Hebel bereits wirksam ist. zieh dann also nicht voll durch, sondern frag lieber zurück: "kommt der Hebel? kommt der Hebel?"
+**aufmerksamkeit beim hebelausführenden**
 
-**schmerzlose hebel bis zum **knack"**: besondere Vorsicht ist bei Hebel geboten, die nicht weh tun. beispielsweise bei einem Knie Drehhebel empfindet man zunächst keinen Schmerz. der Schmerz kommt erst, sobald alle Bänder gerissen sind. und dann ist das Knie so ziemlich zerstört. als Trainer: mache deine Trainees unbedingt darauf aufmerksam, dass Sie vorsichtig bei diesen Hebeln umgehen. als Trainee: über diese Techniken immer langsam und vorsichtig aus!
+bei einem Hebel setzt man einen gewissen Körperteil unter Spannung. diese Spannung überträgt sich vom gehäkelten Körperteil z.B Arm auf den gesamten Körper Punkt oft ist der Partner bemüht leichte Ausweichbewegung durchzuführen, um den Hebel abzumildern. diese Spannung kannst du wahrnehmen Punkt du siehst zum Beispiel wie sich die Hüfte des Partners hebt oder ein leichtes Eindrehen der Schulter erfolgt. neben dieser Zeichen, dass der Hebel bereits wirksam ist. zieh dann also nicht voll durch, sondern frag lieber zurück: "kommt der Hebel? kommt der Hebel?"
 
 **geschichte**: auf der submissao in Karlsruhe war es interessant, die Kämpfe schlechte spezifisch zu beobachten. auf den **frauenmatten** wurden Armstreckhebel gezogen. die Kämpferinnen sind (auch im größten Stress des Kampfes!) an diese Hebel äußerst vorsichtig herangegangen und haben sie langsam zugezogen. soweit ich mich erinnere, hat sich keine Kämpferin verletzt. alle hatten Zeit, **rechtzeitig abzuklopfen**, und tazen dies auch. auf der **männermatte** hatte ich das Gefühl, dass in jedem zweiten Kampf ein Arm gebrochen wurde. viele Leute sind von der Matte gelaufen und haben sich ihren **Ellenbogen** gehalten. ist es das Testosteron? was auch immer es ist, es ist kacke für den unterlegenen . überlege dir gut, ob du den Kampf gewinnen willst und den anderen für **ein Jahr Trainings"pause"** damit anmeldest.
+
+**schmerzlose hebel bis zum "knack"**
+
+besondere Vorsicht ist bei Hebel geboten, die nicht weh tun. beispielsweise bei einem Knie Drehhebel empfindet man zunächst keinen Schmerz. der Schmerz kommt erst, sobald alle Bänder gerissen sind. und dann ist das Knie so ziemlich zerstört. als Trainer: mache deine Trainees unbedingt darauf aufmerksam, dass Sie vorsichtig bei diesen Hebeln umgehen. als Trainee: über diese Techniken immer langsam und vorsichtig aus!
 
 ## Drei-Punkt-Theorie
 
@@ -53,6 +59,7 @@ nun gilt es die Nomenklatur zu erklären:
 
 **beispiel: armstreckhebel am boden** 
 
+* hebelziel: das Gliedmaß oder Körperteil, das gehäkelt werden
 * Fixpunkt: die am Boden liegende Schulter des gehebelten arms 
 * Fixpart: der Oberarm das gehäkelten arms, gegebenenfalls am Boden auflegen, wahrscheinlich eher ein bisschen in der Luft
 * Fulkrum: morgen früh das Ellenbogengelenk, im vorliegenden Fall am untersten Ende des Unterarms
@@ -92,7 +99,7 @@ die abweichende Hebel Richtung bezeichnet eine Richtung, für die das Gelenk üb
 
 **im Stand** hingegen, ist es schwer einen fixpart zu erzeugen. gerade an großen Gliedmaßen ist es schwer. hier entsteht der Fixpart oft durch Schwerkraft und Trägheit der Masse. eine wirkliche Fixierung des fixparts gibt es nicht. (oft könnte sich der Partner durch einen aus dem Stand gesprungenen Flic Flac sich befreien, theoretisch!) im Stand ist es wesentlich schwerer einen Hebel durchzuführen.
 
-## verletzungsgefahr
+## verletzungsgefahr im stand
 
 die Verletzungsgefahr im Stand ist wesentlich größer. denn grundsätzlich gibt es die Möglichkeit, dass ein oder beide Partner fallen und der Hebel sehr unglücklich wird und ein Bruch erfolgt. hingegwn: da man im Boden (fast) nicht mehr wirklich fallen kann, gibt es diese Gefahr dort nicht oder nur sehr selten.
 
@@ -124,9 +131,17 @@ Henka Vasa bezeichnet den Übergang von einer Technik in die andere Technik. es 
 
 ## hebel erarbeiten
 
-wenn man nicht traditionell trainiert, so muss man sich jeden Hebel erarbeiten. 
+wenn man flexibel und anwendungsbezogen trainiert, so muss man sich jeden Hebel erarbeiten. hierbei sind die folgenden prinzipien ausschlaggebend
 
-**isolation**: ein Hebel zu erarbeiten heißt ein Gliedmaß des Partners zu isolieren. diese Isolation erreicht man durch
+**position before submission**
+
+Sicherheit geht vor: zuerst wie die eigene Position sichergestellt Punkt ziel ist es, den Partner einigermaßen zu kontrollieren. erst danach denkt man darüber nach, den Partner zu besiegen.
+
+hintergrund: um einen Hebel zu ziehen oder eine andere submission durchzuführen, gilt es viele Details zu beachten. vor allem die Kontrolle des Körpers des Partners ist dabei wichtig. wenn man zu viel Eile hat, vergisst man wichtige Details. und jedes vergessene Detail ermöglicht eine escape. dann ist nicht nur der sicher geglaubte hebe verloren, sondern auch die Position. eine übereilte submission führt zum  Verlust der Position, und damit zu große Nachteil.
+
+**isolation des hebelziels**
+
+ein Hebel zu erarbeiten heißt ein Gliedmaß des Partners zu isolieren. diese Isolation erreicht man durch
 
 * Griffe
 * Scheinangriffe und Täuschungen
