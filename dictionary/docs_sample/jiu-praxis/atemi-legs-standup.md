@@ -41,6 +41,15 @@ beim Kampfsport haben Füße eine doppelte Aufgabe. zum einen denen sie der Fort
 
 wenn wir von der Balance reden, so ist es sinnvoll sich die physikalischen Hintergründe kurz zu vergegenwärtigen. ein Körper ist stabil, wenn das Gewicht über seinem Schwerpunkt sich befindet. konkret bedeutet dies: je weiter du ein Gliedmaß (Arm, Bein) von dir wegstreckst, umso wacklige wird dein Standpunkt bei der Ausführung eines Kicks, in sonders eines Warendorf Skills, führst du sehr viel Gewicht von dir von deinem Körperschwerpunkt weg um dein Gleichgewicht wieder zu finden bringe dein Bein wieder zurück zu dir, zu deinem Körperschwerpunkt lass dein Bein also nicht fallen und kommt irgendwie auf den Boden auf, ziehe dein Bein gezielt und kontrolliert zurück. so kannst du es dort absetzen wo du es absetzen möchtest, und deine Nächsten Aktionen zu planen
 
+**übung**
+
+* stehen Kampfstellung
+* ziehe ein Bein hoch
+* wie fühlt sich die Gewichtsverlagerung auf das Standbein an? 
+* wie viele Zentimeter macht diese Gewichtsverlagerung aus
+* Schwerpunkt: wie verändert sich dein Schwerpunkt?
+* Standfläche: stehst du auf der kompletten Fußfläche, auf Ballen
+
 ## eindrehen des Standbeins 
 
 beim allen kicks kannst du durch Drehen der Hüfte noch viel länge gut machen, sicherlich 10 cm. dies bedingt unter anderem
