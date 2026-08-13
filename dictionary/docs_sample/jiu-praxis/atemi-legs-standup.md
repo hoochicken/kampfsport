@@ -50,6 +50,10 @@ wenn wir von der Balance reden, so ist es sinnvoll sich die physikalischen Hinte
 * Schwerpunkt: wie verändert sich dein Schwerpunkt?
 * Standfläche: stehst du auf der kompletten Fußfläche, auf Ballen
 
+passe die Position im Stand so an, dass Du sicher und geschlossen (frame) stehst!
+
+stelle dir selbst Ziele: 10 Sekunden halten, 20 Sekunden halten, 30 ...
+
 ## eindrehen des Standbeins 
 
 beim allen kicks kannst du durch Drehen der Hüfte noch viel länge gut machen, sicherlich 10 cm. dies bedingt unter anderem
