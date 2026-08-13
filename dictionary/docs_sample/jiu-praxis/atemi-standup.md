@@ -1,4 +1,4 @@
-## Atemi allgemein
+# Atemi allgemein
 
 Üblicherweise nimmt ein Rechtshänder des rechte Bein nach hinten, ein Linkshänder das linke Bein.
 
@@ -7,7 +7,7 @@
 
 Hinweis: "-hand" bezeichnet hier sowohl das Körperteil als auch den Schlag selbst. "Mach 2 Führhände" = "Mach 2 Schläge mit der Führhand."
 
-### Trefffläche
+## Trefffläche
 
 Die Größe der Trefffläche beeinflusst Schmerz, Wirkung und Kraftübertragung eines Angriffs.
 
@@ -23,16 +23,32 @@ Die Wirkung ähnelt eher einem harten Schlag als einem Stoß. Kleine Trefffläch
 
 Je kleiner die Fläche, desto höher die Belastung auf das Ziel.
 
-### Übungen
+**Übungen**
 
 - Schläge mit großer und kleiner Trefffläche auf Pratze und vergleichen
 - Partner kontrolliert mit Handballen verschieben
 - Schmerzpunktwirkung bei Partner testen, z. B. auf der Mitte des Bizeps
 - Partner mit Fauststoss auf Brustbei schieben
 
-### Wirkungsweise
+## Trefftiefe
 
-Jede Atemi - sei es Kick oder Shclag - MUSS eine WQirkung zeigen. Andernfalls weglassen, denn es kostet dann nur Zeit.
+die trefftiefe bezeichnet der Weg den der Schlag nach Auftreffen auf der Oberfläche vollführt.
+
+**positive Trefftiefe**: der Schlag geht tief in die Oberfläche hinein. gehen wir von einem Schlag zur Nase aus, so würde man den Schlag etwa bis zur Mitte des Schädels ausführen. bei langsamer Ausführung wird der Kopf des Partners nach hinten geschoben, die Nase ein bisschen eingedrückt. bei schneller Ausführung hat der Kopf eine natürliche Möglichkeit zurückzuweichen. aufgrund der Trägheit der Masse wird dies aber nicht vollends gelingen. die Nase wird wahrscheinlich brechen Punkt bei einer positiven trefftiefe erzeugt man also schaden
+
+**trefftiefe 0**: bitte trefftive zero wird die Oberfläche berührt Punkt es kann kein Schaden entstehen Komma da ist quasi nur ein ablegen ist und kein Eindringen in den Körper des anderen . diese Variante erfordert höchste Präzision es ist das , was bei halbkontakt-Sportarten verwendet wird . Hinweis hier im Bild es sich nicht mit voller Kraft zu trainieren . denn wenn sich der Partner auch nur einen halben Zentimeter nach vorne bewegt Komma wird der Schaden bekommen
+
+**negative trefftiefe**: bei einer negativen trefftiefe besteht ein Abstand zwischen TreffFläche und trefferfläche. der Partner wird dadurch in keinster Weise beeinflusst .
+
+Hinweis : dein Schlag hat eine optimale Wirkungsweise in einem bestimmten Bereich . sie zu , dass diese optimale Distanz genau dort ist , wo du sie haben möchtest . dies hat natürlich Auswirkung auf deine Positionierung .   
+
+**Beispiel**: du trainierst eigentlich für vollkontakt. in einer Übung sollt ihr bewusst mit negativer trefftiefe trainieren , also auf abstand. die optimale Ausführung einer atemi-Technik ist gleichzeitig abhängig  von deiner Positionierung.  es ist nicht möglich in der halbdistanz-Vorgabe, beides korrekt für den Vollkontakt zu trainieren. daher musst du dich entscheiden ob du die Positionierung beibehältst, oder die Schlagtechnik. 
+
+mit anderen Worten: das Training in einer bestimmten Distanz mit einer bestimmten trefftiefe fusst auf deiner **bewussten Entscheidung**. lasse es nicht einfach so dahin-Plätschern und denken "das geht schon irgendwie." mache Dir bewusst Gedanken darüber, welchen Aspekt du trainierest 
+
+## Wirkungsweise
+
+Jede Atemi - sei es Kick oder Schlag - MUSS eine Wirkung zeigen. Andernfalls weglassen, denn es kostet dann nur Zeit.
 
 Wirkungsweise kann sein:
 
