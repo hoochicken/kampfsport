@@ -74,6 +74,7 @@ nav:
       - "Klein sein im Kampfsport": "jiu-theorie/klein-sein-im-kampfsport.md"
   - "Kampfsport - Praxis":
       - "Einleitung": "jiu-praxis/einleitung.md"
+      - "Überblick":"ueberblick.md"
       - "Fallschule": "jiu-praxis/fallschule.md"
       - "Stellungen": "jiu-praxis/stellungen.md"
       - "Positionen": "jiu-praxis/positionen.md"
@@ -91,7 +92,7 @@ nav:
       - "Würfe": "jiu-praxis/wuerfe.md"
       - "Kombinationen": "jiu-praxis/kombinationen.md"
       - "Waffen": "jiu-praxis/waffen.md"
-      - "Bewegungslehre Boden": "jiu-praxis/bewegungslehre-boden.md"
+      - "Bewegungslehre Boden": "jiu-praxis/bewegungslehre-boden.md"      - "Position Boden": "jiu-praxis/position-boden.md"
       - "Festlegetechniken": "jiu-praxis/festlegetechniken.md",
       - "Pratzentraining":
       - "Kata": "jiu-praxis/kata.md"
