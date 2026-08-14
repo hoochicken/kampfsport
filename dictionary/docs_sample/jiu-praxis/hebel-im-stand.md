@@ -222,7 +222,29 @@ beim armstreckhebel am Boden isolierst du z.B den Arm an dem Du hier bist. dabei
 * isolation: mit beiden armen den Arm des Partners ziehen = 2 gegen 1-situation; 2 arme gegen 1 arm
 * => der Arm des Gegners ist isoliert, langgestreckt und angreifbar
 
-## Hebel
+## gegentechniken
+
+* gliedmassen eng halten, keinen großen Hebel anbieten
+* nicht isolieren lassen
+frame aufbauen
+
+## skelett und Hebel
+
+schauen wir uns zunächst das Skelett an. tendenziell wir arbeiten uns nun durch Komma und bewegen uns durch den Körper durch, anschließend kommen wir zu Hals und Wirbelsäule
+
+* finger
+* handgelenk
+* ellenbogen
+* schulter
+* zehen
+* knie
+* hüftgelenk
+* hals
+* wirbelsäule
+
+## Finger
+
+## Handgelenk
 
 **kipphandhebel**
 
@@ -241,20 +263,24 @@ der kipphandhebel hat im Stand das Manko, dass es keinen fixspart gibt. die Schu
 **geschichte: boden**: bei einer deutschen judo-Meisterschaft (u16 UND U21) hat ein junges Mädchen (16 j.) alte Hasen reihenweise getappt, u. a. mit dieser Technik . in einem kampf zieht sie den armbar. die gegnerin beugt als gegentechnik ihren arm . das junge Mädel zieht weiter, nur eben als kipphandhebel. ( am Boden hat der kipphandel durchaus einen Fixpart => am Boden ist der kipphandhebel desaströs!) so schnell konnte die gegnerin gar nicht tappen ... hat das die junge Dame super gemacht. sie heisst 
 Jolina Reinhold;-)
 
-**armsrätrreckhebel**
+## ellenbogen
+
+## schulter
+
+
+## zehen
+
+## knie
+
+
+## hüftgelenk
+
+
+## hals
+
+
+## wirbelsäule
 
 
 
-Beispiel: 
-
-waki-gatame im Stand
-
-wak7-gatame am Boden
-
-
-## gegentechniken
-
-* gliedmassen eng halten, keinen großen Hebel anbieten
-* nicht isolieren lassen
-frame aufbauen
 
