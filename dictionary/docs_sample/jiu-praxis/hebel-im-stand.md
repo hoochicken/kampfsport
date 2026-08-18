@@ -248,6 +248,18 @@ schauen wir uns zunächst das Skelett an. tendenziell wir arbeiten uns nun durch
 
 ## Finger
 
+**daumen**
+
+daumenbeugehebel, griff lösen
+
+**finger**
+
+scharnieegelenk, einzelne finger, mehrere finger, in richtungsüberlastung, richtungsentgegen
+
+**kleiner finger** kleinster finger, mächtiger hebel, kinder, einzelner finger
+
+**erarbeitung via bewegungslehre**: 
+
 ## Handgelenk
 
 **kipphandhebel**
@@ -267,24 +279,88 @@ der kipphandhebel hat im Stand das Manko, dass es keinen fixspart gibt. die Schu
 **geschichte: boden**: bei einer deutschen judo-Meisterschaft (u16 UND U21) hat ein junges Mädchen (16 j.) alte Hasen reihenweise getappt, u. a. mit dieser Technik . in einem kampf zieht sie den armbar. die gegnerin beugt als gegentechnik ihren arm . das junge Mädel zieht weiter, nur eben als kipphandhebel. ( am Boden hat der kipphandel durchaus einen Fixpart => am Boden ist der kipphandhebel desaströs!) so schnell konnte die gegnerin gar nicht tappen ... hat das die junge Dame super gemacht. sie heisst 
 Jolina Reinhold;-)
 
+**handbeugehebel**
+
+hebelpunkt aussen, nicht zu weit aussen
+
+**handsperrhebel**
+
+
+
+**handdrehhebel**
+
+**handseithebel**
+
 ## ellenbogen
+
+**streckhebel**
+
+**varianten**
+
+**beugehebel**
+
+**varianten**
+
+**torsionshebel**: torsiononshebel sind am Ellenbogengelenk kaum möglich. denn sowohl Schulter als auch Handgelenk sind drehbare Gelenke. es gibt kaum eine Möglichkeit einer der Elemente(Unterarm oder Oberarm) als fixpart in eine Art zu fixieren, dass eine Drehung später ein Schaden am Ellenbogengelenk hinterlassen wird.
 
 ## schulter
 
+**überbeanspruchung nach hinten oben** verschiedene kreuzfessel, schulterhebel
+
+
+
+**torsionshebel** rechte winkel
+
+nomenklatur: armbeugehebel: hebel an der Schulter fallen traditionell 7n die familie der Armbeugehebel . hintergrund ist, dass bei der Ausführung eine schulterhebels in der Regel auch der Arm gebeugt ist, zumindest bei manchen Varianten. ich finde den Ausdruck Armbeuge Hebel aus dem genannten Grund ein bisschen unglücklich
+
+
+
+**kreuzfessel**
 
 ## zehen
 
+socken, schuhe
+
+**beugehebel**
+
+**streckhebel**
+
+**torsionshebel**: 
+
 ## knie
 
+**kniestreckhebel**
+
+**kniebeuge-/sprenghebel**??
+
+
+**torsionshebel**
 
 ## hüftgelenk
 
+**überbeanspruchung nach seitlich** 
+
+bananasplit
+
+**überbeanspruchung nach vorne hinten**
 
 ## hals
 
+**beugehebel**
+
+**varianten**
+
+**streckhebel**
+
+**torsionshebel**
+
+**kombinationen**
 
 ## wirbelsäule
 
+**twister**
+
+**weitere ws-hebel**
 
 
 
