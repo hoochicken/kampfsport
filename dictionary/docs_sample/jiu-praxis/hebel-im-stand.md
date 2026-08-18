@@ -224,9 +224,11 @@ beim armstreckhebel am Boden isolierst du z.B den Arm an dem Du hier bist. dabei
 
 ## gegentechniken
 
+natürlich kann man keine gegentechnik für alles anbieten. wohl aber Prinzipien, die meistens gelten . und dies sind:
+
 * gliedmassen eng halten, keinen großen Hebel anbieten
-* nicht isolieren lassen
-frame aufbauen
+* gliedmass nicht isolieren lassen
+* frame aufbauen
 
 ## skelett und Hebel
 
@@ -241,6 +243,8 @@ schauen wir uns zunächst das Skelett an. tendenziell wir arbeiten uns nun durch
 * hüftgelenk
 * hals
 * wirbelsäule
+
+**regelwerke**: im Kampfsportarten gibt es viele verschiedene Regelwerke diese erlauben gewisse Techniken und verbieten andere. dieses Kapitel erklärte nicht, in welcher Kampfsportart, was gilt. dafür sind die Regelwerke auch zu fluid Punkt hier geht es rein um die technischen Aspekte von Hebeln. informiere dich vor einem Wettkampf, wie üblich, welche Regeln genau in deinen Klassen gelten. es gibt durchaus Regel, die bei manchen Regelwerken erlaubt sind, an die aber niemand denkt. Das heißt lies dir Regelwerke genau durch. vielleicht machst du einen guten Fund, der dir dein spezialhebel durchaus erlaubt.
 
 ## Finger
 
