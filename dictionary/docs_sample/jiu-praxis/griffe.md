@@ -1,4 +1,4 @@
-# Griffe
+# Griffe im Stand
 
 * Griff = Kontrolle, Manipulation
 * Vorbereiting weiterer Techniken, z. B. Wurf
