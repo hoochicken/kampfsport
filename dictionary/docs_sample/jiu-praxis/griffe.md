@@ -33,6 +33,7 @@ Hinweis: willst du das verdeckt üben, so ist es besser wenn du lange Ärmel has
 ## Griffe am Körper des Partners
 
 * 2 gegen 1
+* Übergabe von einem Gliedmass zum anderen = Aufrechterhalten von Kontrolle
 * Grösse der Hand bestimmt
 * Kopfkontrolle
 * Druck
@@ -42,7 +43,7 @@ Hinweis: willst du das verdeckt üben, so ist es besser wenn du lange Ärmel has
 
 * knee on belly (top): griff nacken, ander trizeps, zug
 
-**geschichte**: bei der wunderschönen submissao in Karlsruhe lag die Gegnerin gegen Ende in meiner guard und ich habe versucht, eine Kimura zu ziehen.  durch die große Belastung der vorangegangenen fünf Minuten, war es mir nicht mehr möglich, ihren Arm zu greifen. meine Hände hatten keinerlei Kraft mehr. irgendwie habe ich es geschafft meine Unterarme mit ihren zu verschränken und erfolgreich die kimura zu ziehen und wortwörtlich in letzter Sekunde zu tappen.
+**geschichte**: bei der wunderschönen submissao in Karlsruhe lag die Gegnerin gegen Ende in meiner guard und ich habe versucht, eine Kimura zu ziehen. durch die große Belastung der vorangegangenen fünf Minuten, war es mir nicht mehr möglich, ihren Arm zu umgreifen. meine Hände hatten keinerlei Kraft mehr. irgendwie habe ich es geschafft meine Unterarme mit ihren zu verschränken und erfolgreich die kimura zu ziehen und wortwörtlich in letzter Sekunde zu tappen. mit 0 griff! moral: trainiere Technikeb auch bewusst, ohne dass du mit der hand greifst
 
 ## Griffe an sich selbst
 
