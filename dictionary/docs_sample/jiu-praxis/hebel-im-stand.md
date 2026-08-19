@@ -267,6 +267,8 @@ schauen wir uns zunächst das Skelett an. tendenziell wir arbeiten uns nun durch
 
 daumenbeugehebel, griff lösen
 
+streckhebel
+
 **finger**
 
 scharniergelenk, einzelne finger, mehrere finger, in richtungsüberlastung, richtungsentgegen
