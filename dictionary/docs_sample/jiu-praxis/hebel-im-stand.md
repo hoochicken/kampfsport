@@ -295,9 +295,14 @@ der torsionshebel dreht das Handgelenk entgegen seiner Ei-Richtung. im jiu jitsu
 
 * kipphandhebel, kote gaeshi
 * handdrehhebel, kote hineri
-* z-hebel, kuzure kote mawashi
+* z-hebel, kote mawashi???
+* umgedrehter z-hebel, kuzure kote mawashi???
 
- hat dieser hebel die bezeichnung Kipphandhebel. beim kipphandhebel greifst du das Handgelenk des Partners gleichseitig und führst dann dessen Handfläche zu seinem Gesicht ( als würdest due ihn in ein Spiegel gucken lassen)  und dann nach außen weg.
+schauen wir uns nun einfach mal den kipphandel als Beispiel an
+
+**kipphandhebel**
+
+beim kipphandhebel greifst du das Handgelenk des Partners gleichseitig und führst dann dessen Handfläche zu seinem Gesicht ( als würdest due ihn in ein Spiegel gucken lassen)  und dann nach außen weg.
 
 der Hebel funktioniert über eine abweichende Hebel Richtung. das Handgelenk ist ein eigelenk. es ist kegelartig beweglich aber nicht drehbar. der kipphandhebel rotiert das Handgelenk. dadurch wird eine Ausweichbewegung erwirkt. in gewissem Maße können kann die Beweglichkeit zwischen Elle und Speiche dieser Rotation abfangen. aber nur bis zu einem gewissen Grad. danach bricht entweder das Handgelenk oder der Halteapparat von Elle und Speiche geht kaputt.
 
