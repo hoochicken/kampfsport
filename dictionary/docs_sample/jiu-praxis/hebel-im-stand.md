@@ -70,29 +70,44 @@ nun gilt es die Nomenklatur zu erklären:
 
 *) "gib mir einen festen Punkt im Universum und ich bewege die Welt*, oder so ähnlich ...
 
-## Bruchvektor und Verkantung
+## Vektor und Verkantung
 
 Ein Gelenk ist oft nur in eine bestimmte Richtung brechbar. Daher benötigen Fix- und Hebelpunkt ebenfalls eine Vorgabe in der Richtung. Das heisst, das der Partner darf sich nicht "aus dem Hebel herauswinden" dürfen können.
 
 Die optimale Richtung, in welche der hebelpunkt bewegt werden muss, um Schaden am Gelenk zu erzeugen: in der Regel 90° zum Hebelpart abweichend der natürlichen Bewegungsrichtung des Gelenks.
 
+ihr seid noch erwähnen, das Hebel auf zwei Art wirken können sie können sich richten
+
+* gegen das Skelett , also gegen **Knochen**, den festen, stabilen Part des Körpers => **knochenbruch** möglich
+* gegen das **Körpergewebe**, also Muskulatur, Sehnen und  Bandapparat . dadurch erfolgt eine Überbelastung des umgebenden Gewebes => Sehenabriss, Kapselriss, Muskel(ab)riss
+
+( hier noch mal zur Klärung: ich bin medizinischer Laie, kein Arzt oder Physio oder Ostheo . Dies ist der Versuch, Hebetechniken begreifbar zu machen und dir medizinisch näher zu bringen)
+
 hier sind mehrere Fälle zu unterscheiden
 
 **beugende Hebel**
 
-beim beugenden Hebel wird ein Gelenk gebeugt. dann wird Kraft ausgeübt und das Gelenk weiter in die Richtung gebeugt, obwohl es dafür kein Spiel hat.
+beim beugenden Hebel wird ein Gelenk gebeugt. dann wird Kraft ausgeübt und das Gelenk weiter in die Richtung gebeugt, obwohl es dafür kein Spiel hat. dieser hebel bietet sich vor allem bei scharniergelenken an.
 
 **Beispiel**: Handbeugehebel. die Hand ist zur Beruhigung von etwa 90° nach innen möglich. Winkel deine rechte Hand und 90°, drücke auf den Handrücken der rechten Hand und führe diese Beugung weiter. dabei entsteht eine Spannung auf der Außenseite der Hand. diese Spannung wird allmählich zum Schmerz.
 
 **streckende hebel**
 
-beim streckenden Hebel wird ein Gelenk gestreckt. dann wird Kraft ausgeübt und das Gelenk weiter in die Richtung gestreckt. 
+beim streckenden Hebel wird ein Gelenk gestreckt. dann wird Kraft ausgeübt und das Gelenk weiter in die Richtung gestreckt. dieser hebel bietet sich vor allem bei scharniergelenken an.
 
 **Beispiel**: beim armstrichhebel wird der Arm gestreckt und der Ellenbogen als vollkommen verwendet. das Scharniergelenk des Ellenbogens wird über seine natürliche 180 Grad an Winkelung hinaus beansprucht. es erfolgt ein Bruch des Ellenbogens, exakter: der Elle im Bereich des Ellenbogens.
 
 **abweichende hebelrichtung = verkantung**
 
-die abweichende Hebel Richtung bezeichnet eine Richtung, für die das Gelenk überhaupt nicht vorgesehen ist. dies ist eher Scharniergelenk möglich weniger bei bei Kugelgelenken. ein Scharniergelenk bewegt sich um eine Achse herum. eine abweichenden Bewegung zieht man den Hebel nicht um die Achse herum, sondern in Richtung der Achse. wie? Beispiel fingerhebel die Finger sind zum Handrücken und zur Handfläche hin recht beweglich. bei einer abweichenden hebelichtung bewegst Du sie seitwärts. dies bezeichnet man auch als Verkantung. diese verkantungen sind vor allem  möglich bei Fingern, Ellenbogen (aufgrund der Beweglichkeit der Schulter etwas schwer zu arrangieren) und Kniegelenk. 
+die abweichende Hebel Richtung bezeichnet eine Richtung, für die das Gelenk überhaupt nicht vorgesehen ist. dies ist eher Scharniergelenk möglich weniger bei bei Kugelgelenken. ein Scharniergelenk bewegt sich um eine Achse herum. eine abweichenden Bewegung zieht man den Hebel nicht um die Achse herum, sondern in Richtung der Achse. wie? Beispiel fingerhebel die Finger sind zum Handrücken und zur Handfläche hin recht beweglich. bei einer abweichenden hebelrichtung bewegst Du sie seitwärts. dies bezeichnet man auch als Verkantung. bietet sich vor allem bei scharniergelenken an.
+
+diese verkantungen sind vor allem  möglich bei Fingern, Ellenbogen (aufgrund der Beweglichkeit der Schulter etwas schwer zu arrangieren) und Kniegelenk. 
+
+**torsionshebel**
+
+torsionshebel sind Hebel die man durch Drehen erwirkt. dieser hebel bietet sich vor allem bei kugel- und eigelenken an.
+
+dieser Hebel sind in der Regel etwas aufwendiger. denn bei den Kugelgelenken handelt es sich um die großen Gelenke des Körpers: Schulter und Hüftgelenke. die Herausforderung liegt darin, den fixen Part zu erzeugen und den hebelbad so Einflüssen zu können, dass man eine torsionsbewegung erreicht
 
 ## Unterschied von Hebeltechniken am Boden und im Stand
 
@@ -200,7 +215,7 @@ ein Hebel wird durch Druck auf zwei Punkte erzeugt.
 
 noch einmal möchte ich auf das  setzen das fulkrumTrägers zurückkommen.
 
-den fulkrumträger setzt du am zu hebelenden Gelenk an, am fulkrum. da der fulkrumpunkt in der Regel stabil sein muss, ist es ratsam, den gesamten Körper dorthin zu bewegen. beim Hebeln eines Gliedmaß lass dich also nicht davon ablenken, den kompletten Körper des partners irgendwie zu berühren. 
+den fulkrumträger setzt du am zu hebelenden Gelenk an, am fulkrum. da der fulkrumpunkt in der Regel stabil sein muss, ist es ratsam, deinen gesamten Körper dorthin zu bewegen. beim Hebeln eines Gliedmaß lass dich also nicht davon ablenken, den kompletten Körper des partners irgendwie zu berühren. 
 
 viel mehr krabbelst du zu dem gehäkelten körperteilchen. die Endstellung eines Hebels an einem Gliedmaß ist in der Regel asymmetrisch. eigentlich klebst du dich anders zu hebelnde Gliedmaß an.
 
