@@ -64,7 +64,7 @@ letztere Variante sieht man häufig, und die Leute kommen komplett mit dem Schul
 
 mit Gegenständen zu fallen, kann man das zweierlei sich betrachten. zum einen geht es z.B um Waffen und waffenaufnahme, zum anderen um Kleidungsstücke oder Ausrüstungsgegenstände
 
-** Fall mit Waffen**
+**Fall mit Waffen**
 
 fallen mit Waffen kann man einfach mal langsam beginnen Punkt z.B mit einem Stock. wichtig ist, das spitze oder scharfe Enden von Waffen immer vom Körper weg zeigen müssen. wie man also Rollen, so hält man den Stock quer vor sich und nicht mit der Spitze zum Bauch dann kann man darüber langsam rollen.
 
@@ -126,11 +126,11 @@ folgende Reihenfolge des Erlernens empfiehlt sich als eingangsdrill für anfäng
 
 ## nach dem Fall
 
-es gibt grundsätzlich zwei Möglichkeiten, wie es nach einem Fall weitergeht. 
+es gibt mehrere Möglichkeiten, wie es nach einem Fall weitergeht. 
 
 * ggf. Kick oder anderer Atemi am Boden
 * Bodenkampf: die Auseinandersetzung verbleibt am Boden. dann ist es dein Ziel, der dir eine möglichst gute Position zu arbeiten nach dem Fall 
-* technical stand-up: up du versuchst wieder aufzustehen Punkt und damit Rückkehr in den Standkampf
+* technical stand-up: up du versuchst wieder aufzustehen . und damit Rückkehr in den Standkampf
 
 PS: ich dachte dieses Kapitel wird ein kleines Kapitel
 
