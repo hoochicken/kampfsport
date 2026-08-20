@@ -47,16 +47,22 @@ da beide Partner sich in gleicher Weise kontrollieren und damit ein macht und kr
 
 gepi mal Daumenregel: man greift wo das Bein vorne ist, bzw die greifende Hand und der vordere Fuß befinden sich auf einer Seite.
 
-**seitenwechsel, griffspiel**: nun kann ein Wechsel erfolgen, so dass dann der linke Fuß vorne steht und die linke Hand am Nacken ist, entsprechend die rechte Hand am Trizeps des Partners die fifty fifty Position kann also immer wieder verlagert werden von links auf rechts und zurück. warum?, weil die die **Innenbahn vorteilhafter** ist. werde ihnen waren kontrolliert hat **bessere Angriffsmöglichkeiten**.
+**seitenwechsel, griffspiel**
 
-**innenbahn**: bei der innenbahnstellung hast du beide Hände hinter dem Nacken deines Partners. dadurch hast du volle Kontrolle über die Distanz die zwischen euch beiden herrscht. dadurch kannst du 
+nun kann ein Wechsel erfolgen, so dass dann der linke Fuß vorne steht und die linke Hand am Nacken ist, entsprechend die rechte Hand am Trizeps des Partners die fifty fifty Position kann also immer wieder verlagert werden von links auf rechts und zurück. warum?, weil die die **Innenbahn vorteilhafter** ist. werde ihnen waren kontrolliert hat **bessere Angriffsmöglichkeiten**.
+
+**innenbahn**
+
+bei der innenbahnstellung hast du beide Hände hinter dem Nacken deines Partners. dadurch hast du volle Kontrolle über die Distanz die zwischen euch beiden herrscht. dadurch kannst du 
 
 * den anderen hin und her bewegen und dessen stand manipulieren
 * atemi-techniken effektiver ausführen
 
 wenn ein Partner auf der Innenbahn ist, so befindet sich der andere Partner zwangsläufig auf der **Außenbahn**. das ist eine unvorteilhaftere Stellung. aber auch mit dieser lässt sich umgehen. 
 
-**verteidung gegen innenbahn**: der Partner hat sich deine Innenbahn mit beiden Armen geholt. bringe nun von außen deine Arme über die die Arme des Partners und halte ihm beide Fäuste ins Gesicht. damit kannst du dich auch von ihm wegstoßen.
+**verteidung gegen innenbahn**
+
+der Partner hat sich deine Innenbahn mit beiden Armen geholt. bringe nun von außen deine Arme über die die Arme des Partners und halte ihm beide Fäuste ins Gesicht. damit kannst du dich auch von ihm wegstoßen.
 
 Mini Detail: solltest Du ohne Handschuhe trainieren, achte unbedingt darauf dass der Daumen an die Hand angelegt ist. andernfalls droht Verletzungsgefahr des eigenen Auges durch den eigenen Daumen
 
@@ -78,9 +84,9 @@ dabei helfen folgende Bestandteile:
 
 davon gibt es unzählige Varianten . wichtig ist dass du den Partner bewegst, denn:
 
-ergebnis: durch die Fremden Manipulation des Gegners , wird dieserdesorientiert. er muss ein ausgleichsschritt machen. er ist also mit nicht hinfallen beschäftigt. dies eröffnet dir Angriffsmöglichkeiten
+ergebnis: durch die FremdManipulation des Gegners , wird dieser desorientiert. er muss ein ausgleichsschritt machen. er ist also mit nicht hinfallen beschäftigt. dies eröffnet dir Angriffsmöglichkeiten
 
-info: anders als bei der "normalen" Bewegungslehre im Stand mit atemi-techniken sind hier übersetzt Schritte an der Tagesordnung. denn dadurch arbeitest du mit der Kraft deines Körpergewichts
+info: anders als bei der "normalen" Bewegungslehre im Stand mit atemi-techniken sind hier übersetzSchritte an der Tagesordnung. denn dadurch arbeitest du mit der Kraft deines Körpergewichts
 
 **übung**
 
