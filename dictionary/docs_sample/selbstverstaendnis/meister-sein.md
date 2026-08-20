@@ -1,4 +1,4 @@
-## Meister sein
+# Meister sein
 
 Was ist ein Meister?
 
@@ -35,24 +35,15 @@ Solltest du bereits ein „Meister“ sein, helfen dir vielleicht folgende Gedan
 * **Lass dich korrigieren – auch von Anfängern.**
 * **Sei ein Vorbild.**
 
-**Geschichte:**
-Die glücklichste Zeit im Kampfsport hatte ich zwischen Weiß- und Blaugurt.
-
-Damals wusste ich noch nicht so viel und dachte, ich wüsste bereits eine Menge.
-
-Nach über 20 Jahren Kampfsport merke ich erst richtig, wie viel ich eigentlich nicht weiß.
-
-Ich glaube, die Kunst besteht darin, sich davon nicht entmutigen zu lassen.
-
-Oder wie es ein alter Satz ausdrückt:
+**Geschichte:** Die glücklichste Zeit im Kampfsport hatte ich zwischen Weiß- und Blaugurt. Damals wusste ich noch nicht so viel und dachte, ich wüsste bereits eine Menge. Nach über 20 Jahren Kampfsport merke ich erst richtig, wie viel ich eigentlich nicht weiß. Ich glaube, die Kunst besteht darin, sich davon nicht entmutigen zu lassen. Oder wie es ein alter Satz ausdrückt:
 
 > „Ich weiß, dass ich nichts weiß.“
 
-### Gurus
+## Gurus
 
 Hüte dich davor, ein Guru zu werden.
 
-In einem Kampfsportverein habe ich Dinge erlebt, die bis hin zu sexueller Belästigung gingen. Das war nicht schön.
+In einem Kampfsportverein habe ich Dinge erlebt, die bis hin zu sexueller Belästigung gingen. über einen befreundeten Verein munkelte man, dass mancher schwarzgürtelerwerb an Prostitution grente. war nicht schön.
 
 Wenn du dich selbst dabei ertappst, immer mehr Regeln aufzustellen, immer mehr Kontrolle auszuüben und deine Schüler nur noch zustimmend nicken, dann halte einen Moment inne.
 
@@ -64,12 +55,9 @@ Der schwarze Gürtel verleiht Einfluss. Menschen hören dir zu. Sie vertrauen di
 
 Nutze dieses Vertrauen mit Bedacht.
 
-Ein guter Meister macht seine Schüler stärker.
-
-Ein Guru macht seine Schüler abhängig.
+* Ein Guru macht seine Schüler abhängig.
+* Ein guter Meister macht seine Schüler stärker.
 
 Der Unterschied ist gewaltig.
-
-## Merkspruch
 
 „Der schwarze Gürtel macht dich nicht zu etwas Besonderem. Er erinnert dich daran, weiter zu lernen.“
