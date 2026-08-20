@@ -34,7 +34,7 @@ es gibt auch aufregende Phasen, es gibt langweilige Phasen. Du bleibst dabei, wa
 
 **Respekt**: in der Welt ist nichts selbstverständlich, und das gilt auch für Respekt . in der Gruppe erfährst du, wie man respektvoll miteinander umgeht. und du erfährst auch, wie es ist, wenn jemand dir Respekt entgegenbringt. ganz kleine Geschichte.
 
-ganz kleine Geschichte: an einem Lehrgang lag ein Bonbonpapier auf dem Boden, dass jemand achtlos hingeworfen hatte. der Meister hat daraufhin alle angesprochen und ermahnt, dass alles sauber bleiben soll. und die Geschichte an gehängt, das Hausmeister traditionelle Kampfsportler gerne in der Halle haben. denn die ist danach immer sauber.
+**ganz kleine Geschichte**: an einem Lehrgang lag ein Bonbonpapier auf dem Boden, dass jemand achtlos hingeworfen hatte. der Referent hat daraufhin alle angesprochen und ermahnt, dass alles sauber bleiben soll. und die Geschichte an gehängt, das Hausmeister traditionelle Kampfsportler gerne in der Halle haben. denn die ist danach immer sauber.
 
 ja, im Kampfsport achtet man aufeinander. denn man hat folgendes:
 
