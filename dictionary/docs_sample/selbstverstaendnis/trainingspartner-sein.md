@@ -37,7 +37,7 @@ Gerade als Erwachsener fällt es manchmal schwer, Kritik anzunehmen. Auf der Arb
 * **Sollte dich jemand ständig korrigieren, kannst du sagen:** „Heute bin ich etwas müde. Ich würde gerne etwas lockerer trainieren.“
 
 **Geschichte:**
-Die Gruppe bestand fast nur aus Männern, die größer und schwerer waren als ich. Als mir der fünfte Trainingspartner erklärt hat, wie ich die Technik machen sollte, habe ich irgendwann etwas genervt gesagt, dass ich einfach nur noch trainieren möchte. Besser wäre es gewesen, das ruhig anzusprechen. Der lustige Nebeneffekt: Offenbar wurde das weitererzählt. Seitdem habe ich die liebsten Trainingspartner der Welt.
+Die Gruppe bestand fast nur aus Männern, die größer und schwerer waren als ich. Dieser Zustand dauerte über Jahre an. Als mir der fünfte Trainingspartner dann an einem Abend dieselbe Technik erklärt wollte, wie ich die Technik machen sollte (nachdem er gespert hatte, was bei dem Gewichtsunterschied wirklich keine Kunst ist), habe ich irgendwann etwas genervt gesagt, dass ich einfach nur noch trainieren möchte. (Besser wäre es gewesen, das ruhig anzusprechen.) Der lustige Nebeneffekt: Offenbar wurde das weitererzählt. Seitdem habe ich die liebsten Trainingspartner der Welt. ihr seid aber darauf hingewiesen, dass es keineswegs Absicht war, mich nie dazu machen. es hat sich aber einfach so eingespielt gehabt
 
 ### Respekt
 
