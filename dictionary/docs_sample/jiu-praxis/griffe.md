@@ -1,15 +1,21 @@
 # Griffe im Stand
 
-* Griff = Kontrolle, Manipulation
-* Vorbereiting weiterer Techniken, z. B. Wurf
-* Atemi, je nach Regelwerk
-* vorwiegend an Oberkörper
+## grundsätzliches
+
+warum greifen wir in Kampfsport? was soll das bringen wenn du den Unterarm deines Gegners gepackt hast? bevor du weiter liest, mache dir selbst mal darüber Gedanken. überlege genau welche Möglichkeit dir dieser griff nun ermöglicht. schließe jetzt deine Augen und denke nach!
+
+so, deine Augen sind wieder auf Punkt mir sind folgende Begriffe eingefallen, vielleicht hast du ja noch eine Ergänzung dazu (wenn ja, notiere Sie doch einfach hier genau neben der Liste)
+
+* **kontrolle, sicherheit**: das Gliedmaß des anderen ist gebunden. er kann damit keinen eigenen Griff ausführen, dich nicht herum schubsen, und dich auch nicht schlagen. der Griff bedeutet also Sicherheit
+* **Vorbereitung** weiterer Techniken, z. B. Wurf, Take-down, Atemi; du kannst den anderen ziehen und schieben, und so einer weiteren technikwoche
+* Atemi (je nach Regelwerk): der gegriffene arm ist gebunden, der Gegner kann damit nicht mehr blocken. damit hast du eine neue geöffnete Angriffsmöglichkeit für einen Schlag oder Trick
+* take down: vorwiegend wenn du am Oberkörper gegriffen hast, ermöglicht dir dies ein taketer Punkt das ist zwar oben schon mal erwähnt, hier aber noch mal gesondert hervorzubringen
 
 **Gesundheit**
 
-* grosse belastung für hände
-* tapen bei judoka
-* hände passen sich an, hände wie Klodeckel
+ja, Gesundheit ist immer ein Thema. schau dir mal Videoaufzeichnungen von Judoka an in der Olympiade. viele haben komplett getapte Hände. Griffe griffkämpfe belastend massiv die Gelenke und Knorpel der Finger. besonders, wenn in Kleidung gegriffen wird, z. B. den harten festen Gi im judo oder bjj.
+
+denke daran dass du nicht ewig 20 bist. irgendwann musst du arbeiten und möchtest vielleicht einen Stift ohne Schmerzen halten können Punkt trainiere vernünftig. Kämpfe vernünftig . informiere dich bei Physiotherapeuten und oder Ärzten zum tapen der Gelenke
 
 **geschichte**: mein vater ist in der Landwirtschaft grosse geworden Zeit seines Lebens hat er viel gearbeitet, auch in unserem grissen Garten . er hatte Hände wie Klodeckel. jeder Finger war so dick wie mein Daumen. im Alter hat sich das dann zurückentwickelt. es hat mir ein bisschen weh, das zu sehen, wie seine Kraft schwindet und sich diese in seinem Körper abzeichnet Punkt nichtsdestotrotz ist es eine Lehre, dass ich die Größe der Hände an die Anforderungen anpasst die du ihn stellst - solange du sie nicht überforderst;-)
 
