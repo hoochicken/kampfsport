@@ -48,7 +48,7 @@ besonders bei der griffkraftübung gilt: alles ist Training!
 
 Hinweis: willst du das verdeckt üben, so ist es besser wenn du lange Ärmel hast. dann sieht man nicht die Anspannung in den Unterarmen
 
-## der weg in den griff
+## verwandte themen
 
 das bedeutet dass du dir die Nähe zum Gegner erstmal einmal erarbeiten musst in der Regel wird sich der Partner ja nicht einfach so hinstellen, damit du ihn irgendwie greifen kannst. das bedeutet, dass Du grundsätzlich einen steppschrittchen machen musst, um überhaupt den Arm des Partners zu erreichen. des Weiteren wird der Partner den Teufel tun, und dich diesen Griff einfach halten lassen. im Gegenteil: er wird sich herauswinden untersuchen seinerseits deinen Arm zu greifen. 
 
@@ -60,7 +60,17 @@ daher bestimmen folgende drei Elemente den Griffkampf:
 
 **distanzüberwindung** wird im Kapitel zur Positionierung behandelt. hier in diesem Kapitel geht es jetzt um die verschiedenen griffweisen und um die Möglichkeiten, den Griff zu lösen
 
-**griffweisen**: bei den Griffweisen bewegen wir uns nun von den schwachen griffweisen ( ein Gliedmaß ist an am unteren Ende gegriffen) zu den stärkeren griffweisen. 
+## griffweisen
+
+hier kann man drei verschiedene griffweisen unterscheiden: 
+
+**daumen-opp-griff**: der normale Griff das heißt, die Handfläche zieht von der einen Seite, der Daumen in Opposition greift von der anderen Seite. damit bildet die Hand so eine Art C. der Daumen oppositionsgriff muss mit viel Kraft gehalten werden. dein Arm kann schnell müde werden.
+
+**Affengriff**: Finger und Handfläche bilden eine Art Haken. diese werden an ein Gliedmaß eingehakt. der Daumen liegt seitlich an der Handfläche an.(er steht also nicht in Oppositionsstellung Punkt) dieser Griff ist erstmal gewöhnungsbedürftig hat aber ein handfesten Hintergrund. diese Haltung ist nicht anstrengend. sie funktioniert dank der großen **Reibungsfläche** die vom gesamten Handteller und der Unterseite aller Finger erzeugt wird. es wird er möglich sein, ein Griff sehr, sehr lange zu halten., denn dieser Griff ist nicht wirklich anstrengend. verwende wenn möglich immer den Affengriff wenn es sich irgendwie machen lässt. ( reibungsgriffe funktionieren besonders gut, bei einem trockenen Gegner oder bei einem Gegner mit nassgeschwitzter Kleidung.)
+
+**verschränkungen** erzeugst du, indem du ein Gliedmaß des Partners in seiner Bewegungsfreiheit einschränkst, indem du den dreidimensionalen Raum um es herum mit einer unmöglichen Konstruktion bedenkst. denke an Mikado Stäbchen, oder an die Aufgabe, die unterste Gabel in einem besteckfach herauszuholen, ohne dass etwas klappert. das geht nicht. typische verschränkungen sind die sogenannten "riegel" im jujutsu und die "fingure fours" im bjj. sie sind äußerst stabil und du kannst sie leicht halten. sie funktionieren unabhängig vom schweißaufkommen.
+
+(XXXXX **griffziel**: bei den Griffziel bewegen wir uns nun von den schlecht kontrollierbaren griffzielen ( ein Gliedmaß ist an am unteren Ende gegriffen) zu den stabilen griffziel.)
 
 ## griff am arm
 
