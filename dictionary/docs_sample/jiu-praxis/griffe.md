@@ -2,7 +2,7 @@
 
 ## grundsätzliches
 
-warum greifen wir in Kampfsport? was soll das bringen wenn du den Unterarm deines Gegners gepackt hast? bevor du weiter liest, mache dir selbst mal darüber Gedanken. überlege genau welche Möglichkeit dir dieser griff nun ermöglicht. schließe jetzt deine Augen und denke nach!
+warum greifen wir im Kampfsport? was soll das bringen wenn du den Unterarm deines Gegners gepackt hast? bevor du weiter liest, mache dir selbst mal darüber Gedanken. überlege genau welche Möglichkeit dir dieser griff nun ermöglicht. schließe jetzt deine Augen und denke nach!
 
 so, deine Augen sind wieder auf Punkt mir sind folgende Begriffe eingefallen, vielleicht hast du ja noch eine Ergänzung dazu (wenn ja, notiere Sie doch einfach hier genau neben der Liste)
 
@@ -11,20 +11,24 @@ so, deine Augen sind wieder auf Punkt mir sind folgende Begriffe eingefallen, vi
 * Atemi (je nach Regelwerk): der gegriffene arm ist gebunden, der Gegner kann damit nicht mehr blocken. damit hast du eine neue geöffnete Angriffsmöglichkeit für einen Schlag oder Trick
 * take down: vorwiegend wenn du am Oberkörper gegriffen hast, ermöglicht dir dies ein taketer Punkt das ist zwar oben schon mal erwähnt, hier aber noch mal gesondert hervorzubringen
 
+Griffe sind **nahdistanz**techniken. hierfür müsste also eine hautNähe aufweisen. Griffe sind anwendbar, unabhängig davon ob du dich im Stand befindest oder am Boden.
+
+um einen **Hebel** technisch sauber durchführen zu können, benötigt man in der Regel auch eine bestimmte Griffweise. daher empfehle ich dir auch mal das Kapitel Hebel zur Hand zu nehmen,. da wirst du vielleicht weitere Militärs finden, die dich interessieren.
+
 **Gesundheit**
 
-ja, Gesundheit ist immer ein Thema. schau dir mal Videoaufzeichnungen von Judoka an in der Olympiade. viele haben komplett getapte Hände. Griffe griffkämpfe belastend massiv die Gelenke und Knorpel der Finger. besonders, wenn in Kleidung gegriffen wird, z. B. den harten festen Gi im judo oder bjj.
+ja, Gesundheit ist immer ein Thema. schau dir mal Videoaufzeichnungen von Judoka an in der Olympiade. viele haben komplett getapte Hände. Griffe. griffkampf belastet massiv die Gelenke und Knorpel der Finger. besonders, wenn in Kleidung gegriffen wird, z. B. den harten festen Gi im judo oder bjj.
 
-denke daran dass du nicht ewig 20 bist. irgendwann musst du arbeiten und möchtest vielleicht einen Stift ohne Schmerzen halten können Punkt trainiere vernünftig. Kämpfe vernünftig . informiere dich bei Physiotherapeuten und oder Ärzten zum tapen der Gelenke
+denke daran dass du nicht ewig 20 bist. irgendwann musst du arbeiten und möchtest vielleicht einen Stift ohne Schmerzen halten können . trainiere vernünftig. Kämpfe vernünftig . informiere dich bei Physiotherapeuten und oder Ärzten zum tapen der Gelenke
 
 **geschichte**: mein vater ist in der Landwirtschaft grosse geworden Zeit seines Lebens hat er viel gearbeitet, auch in unserem grissen Garten . er hatte Hände wie Klodeckel. jeder Finger war so dick wie mein Daumen. im Alter hat sich das dann zurückentwickelt. es hat mir ein bisschen weh, das zu sehen, wie seine Kraft schwindet und sich diese in seinem Körper abzeichnet Punkt nichtsdestotrotz ist es eine Lehre, dass ich die Größe der Hände an die Anforderungen anpasst die du ihn stellst - solange du sie nicht überforderst;-)
 
-**übungen griffkraft**
+**übungen griffkraft (hand)**
 
 * 5x 15s den Stock fest umgreifen
 * 5x liegestütze auf finger, alles FingerGlieder sind leicht gebeugt, keine froschhand! geh gerne auf die Knie und spreize die Beine um die Belastung gering zu halten
 
-**alltagstraining**
+**alltagstraining (hand)**
 
 besonders bei der griffkraftübung gilt: alles ist Training!
 
@@ -36,9 +40,9 @@ besonders bei der griffkraftübung gilt: alles ist Training!
 
 Hinweis: willst du das verdeckt üben, so ist es besser wenn du lange Ärmel hast. dann sieht man nicht die Anspannung in den Unterarmen
 
-## griffeingänge und griffkampf
+## der weg in den griff
 
-das bedeutet dass du dir die Nähe zum Gegner erstmal einmal erarbeiten musst in der Regel wird sich der Partner ja nicht einfach so hinstellen, damit du ihn irgendwie greifen kannst. das bedeutet, dass Du grundsätzlich einen steppschrittchen machen musst, um überhaupt den Arm des Partners zu erreichen. des Weiteren wird der Partner den Teufel tun, und dich diesen Griff einfach halten lassen. im Gegenteil: er wird sich herausfinden untersuchen seinerseits deinen Arm zu greifen. 
+das bedeutet dass du dir die Nähe zum Gegner erstmal einmal erarbeiten musst in der Regel wird sich der Partner ja nicht einfach so hinstellen, damit du ihn irgendwie greifen kannst. das bedeutet, dass Du grundsätzlich einen steppschrittchen machen musst, um überhaupt den Arm des Partners zu erreichen. des Weiteren wird der Partner den Teufel tun, und dich diesen Griff einfach halten lassen. im Gegenteil: er wird sich herauswinden untersuchen seinerseits deinen Arm zu greifen. 
 
 daher bestimmen folgende drei Elemente den Griffkampf: 
 
@@ -46,13 +50,13 @@ daher bestimmen folgende drei Elemente den Griffkampf:
 * Griff 
 * Griff lösen
 
-die distanzüberwindung wird im Kapitel zur Positionierung behandelt. hier in diesem Kapitel geht es jetzt um die verschiedenen griffweisen und um die Möglichkeiten, den Griff zu lösen
+**distanzüberwindung** wird im Kapitel zur Positionierung behandelt. hier in diesem Kapitel geht es jetzt um die verschiedenen griffweisen und um die Möglichkeiten, den Griff zu lösen
 
-## griffweisen
-
-bei den Griff verweisen bewegen wir uns nun von den schwachen griffweisen( ein Gliedmaß ist an am unteren Ende gegriffen) zu den stärkeren griffweisen
+**griffweisen**: bei den Griffweisen bewegen wir uns nun von den schwachen griffweisen ( ein Gliedmaß ist an am unteren Ende gegriffen) zu den stärkeren griffweisen. 
 
 ## griff am arm
+
+
 
 ## Griffe am Körper des Partners
 
