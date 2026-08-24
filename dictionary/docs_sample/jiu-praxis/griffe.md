@@ -48,14 +48,14 @@ besonders bei der griffkraftübung gilt: alles ist Training!
 
 Hinweis: willst du das verdeckt üben, so ist es besser wenn du lange Ärmel hast. dann sieht man nicht die Anspannung in den Unterarmen
 
-## verwandte themen
+## der weg in den griff
 
 das bedeutet dass du dir die Nähe zum Gegner erstmal einmal erarbeiten musst in der Regel wird sich der Partner ja nicht einfach so hinstellen, damit du ihn irgendwie greifen kannst. das bedeutet, dass Du grundsätzlich einen steppschrittchen machen musst, um überhaupt den Arm des Partners zu erreichen. des Weiteren wird der Partner den Teufel tun, und dich diesen Griff einfach halten lassen. im Gegenteil: er wird sich herauswinden untersuchen seinerseits deinen Arm zu greifen. 
 
 daher bestimmen folgende drei Elemente den Griffkampf: 
 
 * Distanzüberwindung 
-* Griff 
+* Griff greifen
 * Griff lösen
 
 **distanzüberwindung** wird im Kapitel zur Positionierung behandelt. hier in diesem Kapitel geht es jetzt um die verschiedenen griffweisen und um die Möglichkeiten, den Griff zu lösen
