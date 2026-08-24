@@ -2,9 +2,9 @@
 
 ## grundsätzliches
 
-warum greifen wir im Kampfsport? was soll das bringen wenn du den Unterarm deines Gegners gepackt hast? bevor du weiter liest, mache dir selbst mal darüber Gedanken. überlege genau welche Möglichkeit dir dieser griff nun ermöglicht. schließe jetzt deine Augen und denke nach!
+warum greifen wir im Kampfsport? was soll das bringen wenn du den Unterarm deines Gegners gepackt hast? bevor du weiter liest, mache dir selbst mal darüber Gedanken. überlege genau welche Möglichkeit dir dieser griff nun ermöglicht. schließe jetzt deine Augen und denke nach.
 
-so, deine Augen sind wieder auf Punkt mir sind folgende Begriffe eingefallen, vielleicht hast du ja noch eine Ergänzung dazu (wenn ja, notiere Sie doch einfach hier genau neben der Liste)
+so, deine Augen sind wieder auf . mir sind folgende Begriffe eingefallen. diese stehen alle in Zusammenhang mit Immobilisierung , also mit dem unterbinden von Bewegungen des anderen. vielleicht hast du ja noch eine Ergänzung dazu (wenn ja, notiere Sie doch einfach hier genau neben der Liste)
 
 * **kontrolle, sicherheit**: das Gliedmaß des anderen ist gebunden. er kann damit keinen eigenen Griff ausführen, dich nicht herum schubsen, und dich auch nicht schlagen. der Griff bedeutet also Sicherheit
 * **Vorbereitung** weiterer Techniken, z. B. Wurf, Take-down, Atemi; du kannst den anderen ziehen und schieben, und so einer weiteren technikwoche
@@ -13,7 +13,7 @@ so, deine Augen sind wieder auf Punkt mir sind folgende Begriffe eingefallen, vi
 
 Griffe sind **nahdistanz**techniken. hierfür müsste also eine hautNähe aufweisen. Griffe sind anwendbar, unabhängig davon ob du dich im Stand befindest oder am Boden.
 
-um einen **Hebel** technisch sauber durchführen zu können, benötigt man in der Regel auch eine bestimmte Griffweise. daher empfehle ich dir auch mal das Kapitel Hebel zur Hand zu nehmen,. da wirst du vielleicht weitere Militärs finden, die dich interessieren.
+um einen **Hebel** technisch sauber durchführen zu können, benötigt man in der Regel auch eine bestimmte Griffweise. daher empfehle ich dir auch mal das Kapitel Hebel zur Hand zu nehmen,. da wirst du vielleicht weitere Minidetails finden, die dich interessieren.
 
 **Gesundheit**
 
@@ -78,6 +78,8 @@ daher bestimmen folgende drei Elemente den Griffkampf:
 **gablegrip**
 
 **s-grip**
+
+**figure four (hand)**
 
 ## Griffe an Kleidung des Partners
 
