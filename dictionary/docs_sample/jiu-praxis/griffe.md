@@ -13,7 +13,15 @@ so, deine Augen sind wieder auf . mir sind folgende Begriffe eingefallen. diese 
 
 Griffe sind **nahdistanz**techniken. hierfür müsste also eine hautNähe aufweisen. Griffe sind anwendbar, unabhängig davon ob du dich im Stand befindest oder am Boden.
 
-um einen **Hebel** technisch sauber durchführen zu können, benötigt man in der Regel auch eine bestimmte Griffweise. daher empfehle ich dir auch mal das Kapitel Hebel zur Hand zu nehmen,. da wirst du vielleicht weitere Minidetails finden, die dich interessieren.
+um einen **Hebel** technisch sauber durchführen zu können, benötigt man in der Regel auch eine bestimmte Griffweise. daher empfehle ich dir auch mal das Kapitel Hebel zur Hand zu nehmen. da wirst du vielleicht weitere Minidetails finden, die dich interessieren.
+
+damit das nicht im Fließtext untergeht, ist hier noch mal nur für dich eine kurze Zusammenfassung zu verwandten Themen, vor allem was den Stand betrifft: 
+
+* positionierung
+* distanzüberwindung 
+* hebelTechniken 
+* Clinch
+* würfe
 
 **Gesundheit**
 
