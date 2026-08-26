@@ -68,9 +68,27 @@ hier kann man drei verschiedene griffweisen unterscheiden:
 
 **Affengriff**: Finger und Handfläche bilden eine Art Haken. diese werden an ein Gliedmaß eingehakt. der Daumen liegt seitlich an der Handfläche an.(er steht also nicht in Oppositionsstellung Punkt) dieser Griff ist erstmal gewöhnungsbedürftig hat aber ein handfesten Hintergrund. diese Haltung ist nicht anstrengend. sie funktioniert dank der großen **Reibungsfläche** die vom gesamten Handteller und der Unterseite aller Finger erzeugt wird. es wird er möglich sein, ein Griff sehr, sehr lange zu halten., denn dieser Griff ist nicht wirklich anstrengend. verwende wenn möglich immer den Affengriff wenn es sich irgendwie machen lässt. ( reibungsgriffe funktionieren besonders gut, bei einem trockenen Gegner oder bei einem Gegner mit nassgeschwitzter Kleidung.)
 
-**verschränkungen** erzeugst du, indem du ein Gliedmaß des Partners in seiner Bewegungsfreiheit einschränkst, indem du den dreidimensionalen Raum um es herum mit einer unmöglichen Konstruktion bedenkst. denke an Mikado Stäbchen, oder an die Aufgabe, die unterste Gabel in einem besteckfach herauszuholen, ohne dass etwas klappert. das geht nicht. typische verschränkungen sind die sogenannten "riegel" im jujutsu und die "fingure fours" im bjj. sie sind äußerst stabil und du kannst sie leicht halten. sie funktionieren unabhängig vom schweißaufkommen.
+**klemme** (ein neu konstruierte wort): mit einer Klemme klemmst du einfach nur ein Körperteil ein . der Partner kann mit ein bisschen anstrengung herausziehen oder -winden. reine klemmen werden umso schwieriger zu halten, je mehr Schweiß im Spiel ist. klemmen eignen sich daher besonders zur *vorübergehenden* immobilisierung das Partners oder als griffübergang .
 
-(XXXXX **griffziel**: bei den Griffziel bewegen wir uns nun von den schlecht kontrollierbaren griffzielen ( ein Gliedmaß ist an am unteren Ende gegriffen) zu den stabilen griffziel.)
+**verschränkungen** sind klemmen mit verriegelung. eine verschränkung erzeugst du, indem du ein Gliedmaß des Partners in seiner Bewegungsfreiheit einschränkst, indem du den dreidimensionalen Raum um es herum mit einer unmöglichen Konstruktion bedenkst. denke an Mikado Stäbchen, oder an die Aufgabe, die unterste Gabel in einem besteckfach herauszuholen, ohne dass etwas klappert. das geht nicht. Oder auch keltische Flechtmuster.  typische verschränkungen sind die sogenannten "riegel" im jujutsu und die "figure fours" im bjj. sie sind äußerst stabil und du kannst sie leicht halten. sie funktionieren unabhängig vom schweißaufkommen.
+
+Verschränkungen können mit Armen und mit Beinen gleichermaßen umgesetzt werden. "Reine" Griffe sind natürlich nur mit greifenden Gliedmaßen (an) Umsetzung
+
+**griffziel**: das griffziel ist der Körperteil, welcher ge-oder umgriffen wird. bei den Griffziel bewegen wir uns nun von oben nach unten durch den Körper.
+
+## griff am kopf
+
+um den Kopf gibt es verschiedene Griffe. die wichtigsten sind:
+
+* Chin Strap = Griff am Kinn zur Richtungsmanipulation des Partners
+* schwitzkasten von vorne (klemme)
+* schwitzkasten von der seite (klemme)
+* schwitzkasten von vorne, verriegelt (Guillotine)
+
+**erarbeitung im stand**: um den kopf zu erreichen, muss man in der Regel den Partner nach unten bringen. sei es Durchzug oder eine atemitechnik z.B zum Bauch oder zum bein
+
+ansatz für würfe
+mögliche verletzungsgefahr durch nacken
 
 ## griff am arm
 
