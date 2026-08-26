@@ -23,11 +23,13 @@ damit das nicht im Fließtext untergeht, ist hier noch mal nur für dich eine ku
 * Clinch
 * würfe
 
-**Gesundheit**
+## Gesundheit
 
 ja, Gesundheit ist immer ein Thema. schau dir mal Videoaufzeichnungen von Judoka an in der Olympiade. viele haben komplett getapte Hände. Griffe. griffkampf belastet massiv die Gelenke und Knorpel der Finger. besonders, wenn in Kleidung gegriffen wird, z. B. den harten festen Gi im judo oder bjj.
 
-denke daran dass du nicht ewig 20 bist. irgendwann musst du arbeiten und möchtest vielleicht einen Stift ohne Schmerzen halten können . trainiere vernünftig. Kämpfe vernünftig . informiere dich bei Physiotherapeuten und oder Ärzten zum tapen der Gelenke
+denke daran dass du nicht ewig 20 bist. irgendwann musst du arbeiten und möchtest vielleicht einen Stift ohne Schmerzen halten können . trainiere vernünftig. Kämpfe vernünftig . informiere dich bei Physiotherapeuten und oder Ärzten zum tapen der Gelenke.
+
+darüber hinaus ist zu erwähnen, dass gerade Verschränkungen innerhalb von Würfen schwer zu kontrollieren sind. hier kann es zur Verletzungen wie Brüchen und Dislokation kommen. findet also vernünftig und schaut dass ihr gesund bleibt!
 
 **übungen griffkraft (hand)**
 
