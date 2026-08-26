@@ -29,8 +29,6 @@ ja, Gesundheit ist immer ein Thema. schau dir mal Videoaufzeichnungen von Judoka
 
 denke daran dass du nicht ewig 20 bist. irgendwann musst du arbeiten und möchtest vielleicht einen Stift ohne Schmerzen halten können . trainiere vernünftig. Kämpfe vernünftig . informiere dich bei Physiotherapeuten und oder Ärzten zum tapen der Gelenke
 
-**geschichte**: mein vater ist in der Landwirtschaft grosse geworden Zeit seines Lebens hat er viel gearbeitet, auch in unserem grissen Garten . er hatte Hände wie Klodeckel. jeder Finger war so dick wie mein Daumen. im Alter hat sich das dann zurückentwickelt. es hat mir ein bisschen weh, das zu sehen, wie seine Kraft schwindet und sich diese in seinem Körper abzeichnet Punkt nichtsdestotrotz ist es eine Lehre, dass ich die Größe der Hände an die Anforderungen anpasst die du ihn stellst - solange du sie nicht überforderst;-)
-
 **übungen griffkraft (hand)**
 
 * 5x 15s den Stock fest umgreifen
@@ -47,6 +45,8 @@ besonders bei der griffkraftübung gilt: alles ist Training!
 * 5x 10s eigene kleidung greifen, fest, Achtung: sieht nachher verknittert aus
 
 Hinweis: willst du das verdeckt üben, so ist es besser wenn du lange Ärmel hast. dann sieht man nicht die Anspannung in den Unterarmen
+
+**geschichte**: mein vater ist in der Landwirtschaft grosse geworden Zeit seines Lebens hat er viel gearbeitet, auch in unserem grissen Garten . er hatte Hände wie Klodeckel. jeder Finger war so dick wie mein Daumen. im Alter hat sich das dann zurückentwickelt. es hat mir ein bisschen weh, das zu sehen, wie seine Kraft schwindet und sich diese in seinem Körper abzeichnet . nichtsdestotrotz ist es eine Lehre, dass ich die Größe der Hände an die Anforderungen anpasst die du ihn stellst - solange du sie nicht überforderst;-)
 
 ## der weg in den griff
 
