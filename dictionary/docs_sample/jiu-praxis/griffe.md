@@ -90,8 +90,9 @@ um den Kopf gibt es verschiedene Griffe. die wichtigsten sind:
 
 **erarbeitung im stand**: um den kopf zu erreichen, muss man in der Regel den Partner nach unten bringen. sei es Durchzug oder eine atemitechnik z.B zum Bauch oder zum bein
 
-ansatz für würfe
-mögliche verletzungsgefahr durch nacken
+Griffe am Kopf eignen sich sowohl als wurfvorbereitung bzw. -durchführung als auch direkt zur Submission.
+
+grundsätzlich ist bei Griffen und den Hals Vorsicht geboten. der Hals ist in der Regel ein nicht sehr muskulöses Körperteil. es kann hier zu massiven Verletzungen des rückgrades kommen die große Folgen haben. arbeitet miteinander, damit ihr beide gesund bleibt!
 
 ## griff am arm
 
