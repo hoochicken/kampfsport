@@ -66,14 +66,17 @@ daher bestimmen folgende drei Elemente den Griffkampf:
 
 hier kann man verschiedene griffweisen unterscheiden. diese Kategorisierung ist neu. sie ist ein Versuch, die Begriffe wie Chris Schwitzkasten Riegel anders zu kategorisieren. unter Beachtung physikalischer Begebenheiten, sei es wie Reibungsfläche und dreidimensionale Raum. möge dir diese Kategorisierung helfen, dein Griff effektiver zu gestalten, escapes des Partners zu verhindern, bzw deine eigenen escapes effektiver zu gestalten
 
-
 die Griff weisen sind wie folgt
 
 **daumen-opp-griff**
 
-der normale Griff das heißt, die Handfläche zieht von der einen Seite, der Daumen in Opposition greift von der anderen Seite. damit bildet die Hand so eine Art C. der Daumen oppositionsgriff muss mit viel Kraft gehalten werden. dein Arm kann schnell müde werden. dieser Daumen obgriff ist das, was man in der allgemeinen Sprache als Griff bezeichnet. deine Hand umgreift einen gegenstand/gliedmaß. dieser Griff ist sehr davon abhängig, wie stark deine handbedienende Muskulatur ausgeprägt ist und vom schweißaufkommen der Oberflächen. grundsätzlich ist der Griff schwach
+der normale Griff das heißt, die Handfläche zieht von der einen Seite, der Daumen in Opposition greift von der anderen Seite. damit bildet die Hand so eine Art C. 
 
-**Hafte**: Finger und Handfläche bilden eine Fläche. diese werden an ein Gliedmaß oder am Körper des partners angelegt. der Daumen liegt dabei seitlich an der Handfläche an, was man auch "affengriff" nennt. (der daumen steht also nicht in Oppositionsstellung ). dieser Griff ist erstmal gewöhnungsbedürftig hat aber ein handfesten Hintergrund. diese Haltung ist nicht anstrengend. sie funktioniert dank der großen **Reibungsfläche** die vom gesamten Handteller und der Unterseite aller Finger erzeugt wird. es wird er möglich sein, ein Griff sehr, sehr lange zu halten. denn dieser Griff ist ebenso effektiv wie kräfteschonend. verwende wenn möglich immer den Affengriff wenn es sich irgendwie machen lässt. ( reibungsgriffe funktionieren besonders gut, bei einem trockenen Gegner oder bei einem Gegner mit nassgeschwitzter Kleidung.)
+der Daumen oppositionsgriff muss mit viel Kraft gehalten werden. dein Arm kann schnell müde werden. dieser Daumen obgriff ist das, was man in der allgemeinen Sprache als Griff bezeichnet. deine Hand umgreift einen gegenstand/gliedmaß. dieser Griff ist sehr davon abhängig, wie stark deine handbedienende Muskulatur ausgeprägt ist und vom schweißaufkommen der Oberflächen. grundsätzlich ist der Griff schwach in Richtung Daumen und Fingerspitzen hin.
+
+**Hafte**
+
+Finger und Handfläche bilden eine Fläche. diese werden an ein Gliedmaß oder am Körper des partners angelegt. der Daumen liegt dabei seitlich an der Handfläche an, was man auch "affengriff" nennt. (der daumen steht also nicht in Oppositionsstellung ). dieser Griff ist erstmal gewöhnungsbedürftig hat aber ein handfesten Hintergrund. diese Haltung ist nicht anstrengend. sie funktioniert dank der großen **Reibungsfläche** die vom gesamten Handteller und der Unterseite aller Finger erzeugt wird. es wird er möglich sein, ein Griff sehr, sehr lange zu halten. denn dieser Griff ist ebenso effektiv wie kräfteschonend. verwende wenn möglich immer den Affengriff wenn es sich irgendwie machen lässt. ( reibungsgriffe funktionieren besonders gut, bei einem trockenen Gegner oder bei einem Gegner mit nassgeschwitzter Kleidung.)
 
 **Haken**: die hand formt einen haken. diese werden an ein Gliedmaß eingehakt. die betroffenen Gliedmaße sind in der Regel klein meist Unterarm, Oberarm oder Nacken.
 
