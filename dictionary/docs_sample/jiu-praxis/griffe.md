@@ -101,6 +101,8 @@ Finger und Handfläche bilden eine Fläche. diese werden an ein Gliedmaß oder a
 
 die hand formt einen haken. diese werden an ein Gliedmaß eingehakt. die betroffenen Gliedmaße sind in der Regel klein meist Unterarm, Oberarm oder Nacken.
 
+funktionieren aucj mit boxhandschuhen
+
 ## klemme
 
 (ein neu konstruiertes wort): mit einer Klemme klemmst du einfach nur ein Körperteil ein . der Partner kann sein gliedmass mit ein bisschen anstrengung herausziehen oder -winden. reine klemmen werden umso schwieriger zu halten, je mehr Schweiß im Spiel ist. klemmen eignen sich daher besonders zur *vorübergehenden* immobilisierung das Partners oder als griffübergang .
