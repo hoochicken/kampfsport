@@ -144,6 +144,15 @@ grundsätzlich ist bei Griffen und den Hals Vorsicht geboten. der Hals ist in de
 
 **verteidigung**
 
+am Hals sind anführungszeichen gefährlich anführungszeichen Ende . in der Regel bist du bereits gebeugt damit der Partner überhaupt an dein Kopf heran kommt Klammer zu . außerdem ist dein Hals irgendwie gegriffen . da du bereits zu tief ist, hast du das Problem, dass mehrere Gefahren drohen:
+
+* würger
+* genickhebel
+* atemis, vor allem kneekick zum gesicht oder bauch
+
+mit anderen Worten Doppelpunkt einen Griff und dem um den Hals willst du eigentlich gar nicht erst haben! jetzt ist er aber da , und du musst damit umgehen ...
+
+* angreifenden arm sichern**: der Arm Komma der um den Hals geht , greife ihn mit beiden Händen . so kannst du gut gegen Kraft aufbauen ( 2-gegen-1-prinzio) 
 
 
 **übungen** 
