@@ -101,7 +101,8 @@ Finger und Handfläche bilden eine Fläche. diese werden an ein Gliedmaß oder a
 
 die hand formt einen haken. diese werden an ein Gliedmaß eingehakt. die betroffenen Gliedmaße sind in der Regel klein meist Unterarm, Oberarm oder Nacken.
 
-funktionieren aucj mit boxhandschuhen
+* funktionieren auch mit boxhandschuhen
+* haken + frame mit unterarm
 
 ## klemme
 
@@ -114,6 +115,8 @@ bei einer umbindung ist der Körperteil vollkommen umschlossen von deinem Gliedm
 ## verschränkungen
 
 sind klemmen mit verriegelung. eine verschränkung erzeugst du, indem du ein Gliedmaß des Partners in seiner Bewegungsfreiheit einschränkst, indem du den dreidimensionalen Raum um es herum mit einer unmöglichen Konstruktion bedenkst. denke an Mikado Stäbchen, oder an die Aufgabe, die unterste Gabel in einem besteckfach herauszuholen, ohne dass etwas klappert. das geht nicht. Oder auch keltische Flechtmuster.  typische verschränkungen sind die sogenannten "riegel" im jujutsu und die "figure fours" im bjj. sie sind äußerst stabil und du kannst sie leicht halten. sie funktionieren unabhängig vom schweißaufkommen.
+
+Verschränkungen zeichnen sich dadurch aus, dass sie nur zum Teil durch Muskelkraft gehalten werden eine Verschränkung ist quasi eine Verriegelung. das heißt, durch Zug alleine kann man das Körperteil nicht entfernen. zuerst muss man das "Schloss" lösen, um herauszukommen. Verschränkungen um den Hals sind in der Regel Würger = submissions.
 
 Verschränkungen können mit Armen und mit Beinen gleichermaßen umgesetzt werden. "Reine" Griffe sind natürlich nur mit greifenden Gliedmaßen (an) Umsetzung
 
@@ -128,15 +131,27 @@ um den Kopf gibt es verschiedene Griffe. die wichtigsten sind:
 * affengriff am kinn = Chin Strap, zur Richtungsmanipulation des Partners
 * klemme mit armen von vorne = schwitzkasten von vorne
 * klemme mit den armen von der seite = schwitzkasten von der seite
-* verschränkung von vorne =  Guillotine
+* verschränkung von vorne =  Guillotine, ggf. mit oberarm-einschluss
 * affengriff am genick, z. b. zum runzerziehen des partners in einen kneekick odee zur halte beim knee-on-belly
 * haken an nacken: um den Gegner herunter zu ziehen und beispielsweise eine kneekick am bauch oder Kopf zu platzieren
+* umgreifung am hals, seitlich, gablegrip
 
 **erarbeitung im stand**: um den kopf zu erreichen, muss man in der Regel den Partner nach unten bringen. sei es Durchzug oder eine atemitechnik z.B zum Bauch oder zum bein
 
 Griffe am Kopf eignen sich sowohl als wurfvorbereitung bzw. -durchführung als auch direkt zur Submission.
 
 grundsätzlich ist bei Griffen und den Hals Vorsicht geboten. der Hals ist in der Regel ein nicht sehr muskulöses Körperteil. es kann hier zu massiven Verletzungen des rückgrades kommen die große Folgen haben. arbeitet miteinander, damit ihr beide gesund bleibt!
+
+**verteidigung**
+
+
+
+**übungen** 
+
+diese Übungen sind besonders effektiv mit Partner. denn hier hast du eine haptische Rückmeldung und fühlst wie sich ein anderer Körper wirklich verhält. wenn du keinen Partner hast, dann bleibt er in diesem Fall dass solo-schattentraining.
+
+* wähle einen griff am hals, z. b. klemme / schwitzkasten von vorne
+    * 
 
 ## griff am arm
 
