@@ -68,27 +68,56 @@ hier kann man verschiedene griffweisen unterscheiden. diese Kategorisierung ist 
 
 die Griff weisen sind wie folgt
 
-**daumen-opp-griff**
+## daumen-opp-griff
 
 der normale Griff das heißt, die Handfläche zieht von der einen Seite, der Daumen in Opposition greift von der anderen Seite. damit bildet die Hand so eine Art C. 
 
 der Daumen oppositionsgriff muss mit viel Kraft gehalten werden. dein Arm kann schnell müde werden. dieser Daumen obgriff ist das, was man in der allgemeinen Sprache als Griff bezeichnet. deine Hand umgreift einen gegenstand/gliedmaß. dieser Griff ist sehr davon abhängig, wie stark deine handbedienende Muskulatur ausgeprägt ist und vom schweißaufkommen der Oberflächen. grundsätzlich ist der Griff schwach in Richtung Daumen und Fingerspitzen hin.
 
-**Hafte**
+**übungen griffkraft (hand)**
+
+* 5x 15s den Stock fest umgreifen
+* 5x liegestütze auf finger, alles FingerGlieder sind leicht gebeugt, keine froschhand! geh gerne auf die Knie und spreize die Beine um die Belastung gering zu halten
+
+**alltagstraining (hand)**
+
+besonders bei der griffkraftübung gilt: alles ist Training!
+
+* 5x 30s: mache eine feste Faust /affengriff, wieder lösen
+* 5x 30s: greife beim bahnfahren an den eigenen unterarm und umgreife diesen fest 
+* 5x 30s: umgreife fest deine stabile kaffeetasse
+* 5x 10s: greife den kugelschreiber nur mit den fingerdpitzen, gib druck - halte das letzte Fingerglied gebeugt, keine Frosch-Hand
+* 5x 10s eigene kleidung greifen, fest, Achtung: sieht nachher verknittert aus
+
+Hinweis: willst du das verdeckt üben, so ist es besser wenn du lange Ärmel hast. dann sieht man nicht die Anspannung in den Unterarmen
+
+**geschichte**: mein vater ist in der Landwirtschaft grosse geworden Zeit seines Lebens hat er viel gearbeitet, auch in unserem grissen Garten . er hatte Hände wie Klodeckel. jeder Finger war so dick wie mein Daumen. im Alter hat sich das dann zurückentwickelt. es hat mir ein bisschen weh, das zu sehen, wie seine Kraft schwindet und sich diese in seinem Körper abzeichnet . nichtsdestotrotz ist es eine Lehre, dass ich die Größe der Hände an die Anforderungen anpasst die du ihn stellst - solange du sie nicht überforderst;-)
+
+## Hafte
 
 Finger und Handfläche bilden eine Fläche. diese werden an ein Gliedmaß oder am Körper des partners angelegt. der Daumen liegt dabei seitlich an der Handfläche an, was man auch "affengriff" nennt. (der daumen steht also nicht in Oppositionsstellung ). dieser Griff ist erstmal gewöhnungsbedürftig hat aber ein handfesten Hintergrund. diese Haltung ist nicht anstrengend. sie funktioniert dank der großen **Reibungsfläche** die vom gesamten Handteller und der Unterseite aller Finger erzeugt wird. es wird er möglich sein, ein Griff sehr, sehr lange zu halten. denn dieser Griff ist ebenso effektiv wie kräfteschonend. verwende wenn möglich immer den Affengriff wenn es sich irgendwie machen lässt. ( reibungsgriffe funktionieren besonders gut, bei einem trockenen Gegner oder bei einem Gegner mit nassgeschwitzter Kleidung.)
 
-**Haken**: die hand formt einen haken. diese werden an ein Gliedmaß eingehakt. die betroffenen Gliedmaße sind in der Regel klein meist Unterarm, Oberarm oder Nacken.
+## Haken
 
-**klemme** (ein neu konstruiertes wort): mit einer Klemme klemmst du einfach nur ein Körperteil ein . der Partner kann sein gliedmass mit ein bisschen anstrengung herausziehen oder -winden. reine klemmen werden umso schwieriger zu halten, je mehr Schweiß im Spiel ist. klemmen eignen sich daher besonders zur *vorübergehenden* immobilisierung das Partners oder als griffübergang .
+die hand formt einen haken. diese werden an ein Gliedmaß eingehakt. die betroffenen Gliedmaße sind in der Regel klein meist Unterarm, Oberarm oder Nacken.
 
-**umwindung**: bei einer umbindung ist der Körperteil vollkommen umschlossen von deinem Gliedmaßen. bei einer Umarmung des Rumpfes gegeben. (es kööönnten auch andere Körperteile betroffen sein.)
+## klemme
 
-**verschränkungen** sind klemmen mit verriegelung. eine verschränkung erzeugst du, indem du ein Gliedmaß des Partners in seiner Bewegungsfreiheit einschränkst, indem du den dreidimensionalen Raum um es herum mit einer unmöglichen Konstruktion bedenkst. denke an Mikado Stäbchen, oder an die Aufgabe, die unterste Gabel in einem besteckfach herauszuholen, ohne dass etwas klappert. das geht nicht. Oder auch keltische Flechtmuster.  typische verschränkungen sind die sogenannten "riegel" im jujutsu und die "figure fours" im bjj. sie sind äußerst stabil und du kannst sie leicht halten. sie funktionieren unabhängig vom schweißaufkommen.
+(ein neu konstruiertes wort): mit einer Klemme klemmst du einfach nur ein Körperteil ein . der Partner kann sein gliedmass mit ein bisschen anstrengung herausziehen oder -winden. reine klemmen werden umso schwieriger zu halten, je mehr Schweiß im Spiel ist. klemmen eignen sich daher besonders zur *vorübergehenden* immobilisierung das Partners oder als griffübergang .
+
+## umwindung
+
+bei einer umbindung ist der Körperteil vollkommen umschlossen von deinem Gliedmaßen. bei einer Umarmung des Rumpfes gegeben. (es kööönnten auch andere Körperteile betroffen sein.)
+
+## verschränkungen
+
+sind klemmen mit verriegelung. eine verschränkung erzeugst du, indem du ein Gliedmaß des Partners in seiner Bewegungsfreiheit einschränkst, indem du den dreidimensionalen Raum um es herum mit einer unmöglichen Konstruktion bedenkst. denke an Mikado Stäbchen, oder an die Aufgabe, die unterste Gabel in einem besteckfach herauszuholen, ohne dass etwas klappert. das geht nicht. Oder auch keltische Flechtmuster.  typische verschränkungen sind die sogenannten "riegel" im jujutsu und die "figure fours" im bjj. sie sind äußerst stabil und du kannst sie leicht halten. sie funktionieren unabhängig vom schweißaufkommen.
 
 Verschränkungen können mit Armen und mit Beinen gleichermaßen umgesetzt werden. "Reine" Griffe sind natürlich nur mit greifenden Gliedmaßen (an) Umsetzung
 
-**griffziel**: das griffziel ist der Körperteil, welcher ge-oder umgriffen wird. bei den Griffziel bewegen wir uns nun von oben nach unten durch den Körper.
+## griffziel
+
+das griffziel ist der Körperteil, welcher ge-oder umgriffen wird. bei den Griffziel bewegen wir uns nun von oben nach unten durch den Körper.
 
 ## griffe an kopf und Hals
 
