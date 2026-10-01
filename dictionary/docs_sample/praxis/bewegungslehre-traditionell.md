@@ -1,0 +1,109 @@
+# bewegundslehre traditionell
+
+die traditionelle Bewegungslehre basiert auf den traditionellen Stellungen. also auf dem Übergang zwischen unter anderem folgenden Stellungen
+
+* große pferdestellung, kiba dachi
+* zenkutsu dachi, große drachenstellung
+* kleine drachenstellung
+* kleine pferdestellung
+* Neko Ashi dachi,  katzenfussstellung
+
+der Übergang von einer zur anderen Stellung mit Schritt soll kontrolliert erfolgen. aus dieser Kontrolle und Langsamkeit, wird mit der Zeit eine stabile Schnelligkeit erwachsen.
+
+Tipp schon vorab: trainiere langsam und kontrolliert. Schnelligkeit kommt von allein.
+
+bevor wir zur eigentlichen Praxis kommen, lass uns noch einen Blick auf die physikalischen Hintergründe der Stabilität werfen
+
+## Stabilität
+
+Stabilität geht doch folgendes Prinzip zurück
+
+**raumverhältnis von Körperschwerpunkt und Standfläche** der Schwerpunkt sollte sich irgendwo innerhalb der Standfläche befinden. so dass die Schwerkraft den Körper am Boden hält. geht der Schwerpunkt des Körpers über die Standfläche hinaus, wird der Körper von alleine umfallen des Körpers über seiner Standfläche befindet.
+
+dieses Prinzip ist abhängig von zwei Parametern
+
+**Größe der Standfläche**: die Standfläche befindet sich zwischen den Standpunkten eines Körpers Punkt in der Regel sind dies deine beiden Füße, genauer noch deine beiden Fußflächen zwischen denen sich die Standfläche aufspannt. stell dir ein Gummiband vor dass du genau um die Standfläche herum führst das heißt um den linke und um den rechten Fuß. das was innerhalb des Gummibandes ist, ist genau deine Standfläche.
+
+je größer die Standfläche ist, umso einfacher ist es, dass obige Prinzip des raumverhältnisses einzuhalten. kleiner Test: stelle dich auf beiden Beinen hin. das ist stabil für dich. stelle dich jetzt hin, aber nur mit einem Bein und auf dem Ball, oder sogar nur auf dem C jetzt hast du die Standfläche so verringert, dass es Arbeit ist, die Stabilität zu behalten und stehen zu bleiben.
+
+**Abstand des körperschwerpunkts von der Standfläche**: geht tiefer der Schwerpunkt eines Körpers liegt, desto stabiler ist dessen Lage. stelle dir ein breites Wasserglas vor Punkt das steht stabil auf den Tisch. sehr instabil hingegen sind gefüllte Weingläser. sie fallen leicht und bei der geringsten Bewegung um. auch dies hat einen physikalischen Hintergrund: es ist natürlich die Hebelwirkung, die der hochgelegene Schwerpunkt ausüben kann
+
+## Drehungen
+
+bei Drehungen wird ein Bein angehoben, so dass es andere Bein das grow an Gewicht trägt. während das hintere Bein schwingt dreht sich das vordere Bein einfach mit. üblich sind folgende Winkel zum drehen
+
+* 90 °
+* 180 °
+* 270 ° <= seltener
+
+eine Drehung führt man dann aus, wenn man entweder seinen Winkel zum Partner verändern möchte oder bei einem Angriff ausweichen möchte. auch dann verändert sich natürlich der Winkel , in der Regel zum eigenen Vorteil
+
+**Beispiel** der Gegner stürmt heran du machst einen 90 Grad Drehung nach hinten das heißt dein vorderes Bein bleibt stehen und ein hinteres Bein schwingt zur Seite dann führt die Angriffsrichtung des Gegners an dir vorbei du selbst hast aber die Chance noch einen Schlag zu setzen oder Einen wurf anzusetzen
+
+**kleiner punkt als Drehpunkt**: achte bei Drehungen auf Verringerung der Standfläche, damit du möglichst nur ein Punkt zum Drehen hast drehe also nicht, wenn deine deine ganze Fußsohle auf dem Boden steht, sondern drehe über möglichst ein Punkt, also den Ballen oder das grosszehGrundgelenk
+
+für die nerds unter uns: probier mal auf dem kleinenzeh-Grundgelenk zu drehen. dadurch machst du genau eine Fußbreite mehr ausweichen gut. nicht verstanden? ausprobieren und drüber nachdenken!
+
+## schritt
+
+beim Ausführen eines Schrittes, spricht man in der Regel beim traditionellen Bewegungslehre von übersetzschritten.
+
+das bedeutet wir sprechen hier von einem Hundsnormalen Schritt: zuerst ist der linke Fuß vorne und dann der rechte. die Bewegung dazwischen ist der Schritt, der aber speziell ausgeführt wird.
+
+im Kampfsport ist es wichtig eine möglichst große Stabilität zu allen Zeiten aufzuweisen. so wird man Angriffen entgegen. daher wird auch beim Schritt darauf geachtet, dass dieser eine maximale Stabilität aufweist.
+
+der Clou beim traditionellen bewegen ist, dass man beim Schritt sein Schwerpunkt mitnimmt. dieser reicht man dadurch dass man das Bein nicht direkt von hinten nach vorne setzt, sondern zuerst an das Standbein heranzieht und dann in die Endposition bringt. man hat also beim Schritt immer mehrere Möglichkeiten, wie man ihn voll fühlt:
+
+**hundsnormaler schritt**, hinteres Bein bewegt sich geradlinig von hinteren Standpunkt zum vorderen Standpunkt. daher muss schnell ausgeführt werden, sonst fällt man um
+
+**kampfsportschritt**: der Fuß wird nicht in gerader Richtung nach vorne gesetzt, sondern wird zum Standbein herangeführt und dann zu seinem vorderen Standpunkt bewegt. dabei kann die Bewegung erfolgen:
+
+* direkt und in geraderlinie oder eher in geschwungener Linie.
+* mit Bodenberührung(man hört dann das Schleifen des Fußes auf dem Boden) oder ohne Bodenberührung (das ist lautlos)
+
+## typische schritte
+
+im Folgenden findest du einige bewegungsvorschläge. natürlich gibt es unzählige Varianten!
+
+**übersetzschritt**: z.B von großer Spracheinstellung mit links vorne in große Straßenstellen mit rechts vorne, mit anderen Worten ein sehr breiter großer Schritt wobei beim Stand der Schwerpunkt eher auf dem vorderen Bein ist, das gebeugt ist
+
+**seitliches bewegen**: wird vor allem aus dem kibadatsch vollführt. dabei stehst du im kieferdatsch große pferdestellung). um dich nun seitwärts zu bewegen, hast du traditionell betrachtet folgende Möglichkeiten
+
+* gleitschritt , das heißt durch ansteppende hinteren Beines und das weiterschreiten des vorderen Beines
+* Drehung 180° nach vorne: du führst das hintere Bein zum Standbein und drehst dann auf dem Standbein (am besten auf den Ballen oder dem seegrundgelenk) um 180 Grad nach vorne Punkt nach dieser Drehung führst du das jetzt vordere beiden zu seinem Standpunkt
+* Drehung 180 Grad nach hinten: du führst das hintere Bein zum Standbein und drehst dann auf dem Standbein (am besten auf den Ballen oder dem seegrundgelenk) um 180 Grad nach hinten über den rücken. nach dieser Drehung führst du das jetzt vordere beiden zu seinem Standpunkt
+
+wie oben beschrieben gibt es hierzu unzählige Varianten. beachte beim Trainieren folgende zentralen Aspekte:
+
+**tiefer Schwerpunkt**, das heißt halte die Knie gebeugt, sehr gebeugt bewege deinen schrittfuß langsam zum Standfuß und dann weiter zum wünschen Standpunkt. mache also keine instabilen übersetzt Schritte, sondern kontrollierte Schritte.
+
+**hüfte eindrehen** es macht einen großen Unterschied ob du den Schritt einfach nur ausführst, oder ob du den Schritt mit Artemia ausführst. eine Artemis (schlag oder kicktechnik) beeinflusst massiv die notwendige Hüftbewegung. bei einem normalen Schritt kann die Hüfte relativ gleich bleibend gerade bleiben. bei einem Schritt mit Schlag bleibt die Hüfte auf der schlaghand in der Regel ein bisschen hinten und wird erst mit der artemitechnik nach vorne geführt dadurch wird die schlagkraft erheblich erhöht weil sich dort das Gewicht des Armes und die Kraft Komma sondern das Gewicht des kompletten Körpers mit in den Schlag hineingegeben werden können Punkt
+
+**blickrichtung** die 180° Drehung sind sowohl ein Drehung als auch ein Schritt Punkt beachte hierbei die Blickrichtung. bei normalen Schritten oder Drehungen nach vorne verbleibt immer Blickkontakt. bei Drehungen über 180 Grad nach hinten gibt es einen Zeitpunkt wo du den Kopf entsprechend wenden musst um den Gegner im Blick zu halten. mach es da wie im Ballett. schaue den Gegner möglichst lange an und wende den Kopf schnell so dass du ihn direkt nach der Drehung wieder im Blick hast
+
+## übungen
+
+beginne in einer traditionellen Stellung, und gehe dann in weitere traditionelle Stellungen über, hier ein paar Vorschläge
+
+* grosse pferdestellung, 180°-Drehungen
+* grosse pfedestellung, große drachenstellung nach vorne in große Fertigstellung Komma große drachenstellung nach vorne mit anderen Beinen
+* große drachenstellung(links vorne) übersetzSchritt zur großen drachenstellung ( rechtes Bein vorne)
+* große drachenstellung(links vorne) Neko Ashi dachi durch Rückzug des vorderen Beines (links vorne), auslagenwechsel wie du willst, dann alles rechts vorne
+
+## atemis und bewegung
+
+sobald eine artemidechnik zu einem Schritt hinzu kommt, passt sich gegebenenfalls die Standfläche, die fußsohlenbelastung, die Hüftbewegung, die Blickrichtung etc an diese zusätzliche Anforderungen an. achte bei Artemis darauf, dass du sie sicher und mit Kraft ausfüllen kannst und und dass du danach sicher stehst. beobachte ganz folgende Parameter
+
+* fußsohlenbelastung welcher Teil deiner
+* Fußsohle ist besonders belastet
+* Knöchel welche Bewegung führt dein Knöchel aus
+* Hüfte: schiebt die Hüfte optimal in die Richtung der atemitechnik
+* Schulter: ist die Schulter so locker oder so fest du sie haben möchtest
+* treffzeitpunkt: trifft die Atemtechnik korrekt mit der Hüftbewegung oder mit dem Schritt (dem Absetzen des Fußes) zusammen
+
+hinweis: idealerweise führst du mit jeder atemitechnik auch einen Schritt aus, und sei er nur einen halben Zentimeter selbst ein halber Zentimeter deiner Körpermasse wird deinem Schlag mehr Kraft verleihen.
+
+
+
+
+
