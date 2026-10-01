@@ -1,0 +1,142 @@
+# Project information
+site_name: "Kampfsport"
+site_description: "Kampfsport, Exposee"
+site_author: "hoochicken"
+site_url: "http://127.0.0.1:8000"
+
+# Copyright
+copyright: "&copy; 2024 Mareike Riegel"
+
+# Repository
+repo_name: "GitHub"
+repo_url: "https://github.com/hoochicken/dan-iv/dictionary"
+edit_uri: "https://github.com/hoochicken/dan-iv/dictionary/edit/main/docs_sample"
+
+# Configuration
+docs_dir: "docs_sample"
+theme:
+  name: "readthedocs"
+  language: "en"
+  shortcuts:
+    help: 191 # ?
+    next: 78 # n
+    previous: 80 # p
+    search: 83 # s
+  palette:
+    scheme: slate
+    toggle:
+      icon: material/brightness-4
+      name: Switch to light mode
+  features:
+    - tabs
+  #font:
+  #text: 'Ubuntu'
+  #code: 'Ubuntu Mono'
+  #icon:
+  #logo: 'images/logo.svg'
+  #favicon: 'assets/images/favicon.ico'
+
+plugins:
+  - search:
+      separator: '[\s\-\.]+'
+      lang:
+        - en
+
+# Customization
+extra_javascript:
+  - "https://cdnjs.cloudflare.com/ajax/libs/mathjax/2.7.6/MathJ2ax.js?config=TeX-MML-AM_CHTML"
+  - "assets/js/body-quotient-calculator.js"
+extra_css:
+  - "assets/css/custom.css"
+markdown_extensions:
+  - markdown_include.include:
+      base_path: docs_sample
+
+extra:
+  manifest: "manifest.json"
+  social:
+    - icon: "fontawesome/brands/github-alt"
+      link: "https://github.com/peaceiris"
+    - icon: "fontawesome/brands/twitter"
+      link: "https://twitter.com/piris314en"
+
+# Page tree
+nav:
+  - "Einleitung": "index.md"
+  - "Prompts Init": "prompts.md"
+  - "_hon1kampfsportler":
+      - "Einleitung": "_hon1kampfsportler/einleitung.md"
+      - "Geschichte": "_hon1kampfsportler/theorie/geschichte.md"
+      - "Erscheinungsformen": "_hon1kampfsportler/theorie/erscheinungsformen.md"
+      - "Selbstverständnis":
+          - "Schüler sein": "_hon1kampfsportler/selbstverstaendnis/schueler-sein.md"
+          - "Trainingspartner sein": "_hon1kampfsportler/selbstverstaendnis/trainingspartner-sein.md"
+          - "Kampfsportler sein": "_hon1kampfsportler/selbstverstaendnis/kampfsportler-sein.md"
+          - "Kämpfer sein": "_hon1kampfsportler/selbstverstaendnis/kaempfer-sein.md"
+          - "Trainer sein": "_hon1kampfsportler/selbstverstaendnis/trainer-sein.md"
+          - "Meister sein": "_hon1kampfsportler/selbstverstaendnis/meister-sein.md"
+          - "Mensch sein": "_hon1kampfsportler/selbstverstaendnis/mensch-sein.md"
+      - "Solo-Optimierung":
+          - "Einleitung": "_hon1kampfsportler/solo-optimierung/einleitung.md"
+          - "Training &amp; Disziplin, Tagestraining": "_hon1kampfsportler/solo-optimierung/training-disziplin-tagestraining.md"
+          - "Wiederholung &amp; Memorierung": "_hon1kampfsportler/solo-optimierung/wiederholung-memorierung.md"
+          - "Fehlerbehebung": "_hon1kampfsportler/solo-optimierung/fehlerbehebung.md"
+          - "Kleine Schritte &amp; Einen Plan haben": "_hon1kampfsportler/solo-optimierung/kleine-schritte-einen-plan-haben.md"
+          - "Trainingsplan": "_hon1kampfsportler/solo-optimierung/trainingsplan.md"
+          - "Trainingsplan im Jahreslauf": "_hon1kampfsportler/solo-optimierung/trainingsplan-im-jahreslauf.md"
+          - "Weiterbildung": "_hon1kampfsportler/solo-optimierung/weiterbildung.md"
+          - "Fokus": "_hon1kampfsportler/solo-optimierung/fokus.md"
+          - "Solo-Drills": "_hon1kampfsportler/solo-optimierung/solo-drills.md"
+          - "Kata": "_hon1kampfsportler/solo-optimierung/kata.md"
+          - "Meditation": "_hon1kampfsportler/solo-optimierung/meditation.md"
+          - "Intervalltraining / Tabatas": "_hon1kampfsportler/solo-optimierung/intervalltraining-tabatas.md"
+          - "Schattenboxen": "_hon1kampfsportler/solo-optimierung/schattenboxen.md"
+          - "Randori &amp; Sparring": "_hon1kampfsportler/solo-optimierung/randori-sparring.md"
+          - "Kampf": "_hon1kampfsportler/solo-optimierung/kampf.md"
+          - "Mentales Trainings": "_hon1kampfsportler/solo-optimierung/mentales-training.md"
+      - "Prüfungen": "_hon1kampfsportler/pruefungen.md"
+      - "Lehrsätze & Anleitung": "lehrsaetz-anleitung.md"
+      - "Literatur": "literatur.md"
+      - "Zusammenfassung": "zusammenfassung.md"
+  - "Praxis":
+      - "Einleitung": "praxis/einleitung.md"
+      - "Fallschule": "praxis/fallschule.md"
+      - "Stellungen": "praxis/stellungen.md"
+      - "Positionen": "praxis/positionen.md"
+      - "Bewegungslehre &amp; Distanzlehre": "praxis/bewegungslehre-stand-distanzlehre.md"
+      - "Bewegungslehre &amp; Distanzlehre": "praxis/bewegungslehre-boden.md"
+      - "Atemi &amp; Standup": "praxis/atemi-standup.md"
+      - "Atemi &amp; Standup - Arme": "praxis/atemi-arms-standup.md"
+      - "Atemi &amp; Standup - Beine": "praxis/atemi-legs-standup.md"
+      - "Finten": "praxis/finten.md"
+      - "Verteidigung": "praxis/verteidigung.md"
+      - "Hebel im Stand": "praxis/hebel-im-stand.md"
+      - "Würfe": "praxis/wuerfe.md"
+      - "Kombinationen": "praxis/kombinationen.md"
+      - "Waffen": "praxis/waffen.md"
+      - "Kata": "praxis/kata.md"
+      - "Prompts": "prompts.md"
+  - "Selbstverteidigung":
+      - "Einleitung &amp; Gesetzlage": "selbstverteidigung/einleitung-gesetzlage.md"
+      - "Flucht": "selbstverteidigung/flucht.md"
+      - "Distanzlehre": "selbstverteidigung/distanzlehre.md"
+      - "Gefahrenerkennung": "selbstverteidigung/gefahrenerkennung.md"
+      - "Sexuelle Belästigung": "selbstverteidigung/sexuelle-belaestigung.md"
+      - "Trainings-Inspirationen": "selbstverteidigung/trainings-vorschlaege.md"
+  - "Trainingslehre":
+      - "Einleitung": "trainingslehre/einleitung.md"
+      - "Anforderungsprogil Jiu": "trainingslehre/anforderungsprogil-jiu.md"
+      - "Prinzipien": "trainingslehre/prinzipien.md"
+      - "Kommunikation, klare Sprache, Zeigen, Korrekturen": "trainingslehre/kommunikation-klare-sprache-zeigen-korrekturen.md"
+      - "Lernen, Motivation, Spass": "trainingslehre/lernen-motivation-spass.md"
+      - "Vorbild": "trainingslehre/vorbild-sein-nicht-davon-reden.md"
+      - "Aufwärmen": "trainingslehre/aufwaermen.md"
+      - "Feedback-Runde": "trainingslehre/feedback-runde.md"
+      - "Intervalltraining": "trainingslehre/intervalltraining.md"
+      - "Randori &amp; Sparring": "trainingslehre/randori-sparring.md"
+      - "Randori &amp; Sparring": "trainingslehre/randori-sparring.md"
+      - "Trainingsplan": "trainingslehre/trainingsplan.md"
+      - "Trainingsplan im Jahreslauf": "trainingslehre/trainingsplan-im-jahreslauf.md"
+      - "'Mein' Trainingsplan Begrüssung und Minimeditation": "trainingslehre/mein-trainingsplanm-begruessung-und-minimeditation.md"
+  - "Zusammenfassung": "zusammenfassung.md"
+  - "Prompts": "prompts.md"
