@@ -59,38 +59,38 @@ Hinweis vor allem für Anfänger: beim erlern einer Kata wirst du kaum ins Schwi
 
 ## Lebenslange Begleiterin
 
-* Wiederholung: die Kata ist eine optimale Schulung. durch die häufige Wiederholung werden die Techniken eingeschleift. 
-* intensives Training: es ist keine extensive Auseinandersetzung mit Jutsu, sondern eine intensive, die fokussiert ist auf eine sehr begrenzte Anzahl von Techniken. 
-* memorisierung: durch die Wiederholung bzw das Erlernen einer Kata bzw das Erlernen einer Kata wird wird die Erinnerungsfähigkeit geschult Detail und Fokussierung durch die intensive Beschäftigung mit einer begrenzten Anzahl von Techniken können diese Techniken bis hin zur (fast) Perfektion trainiert werden 
-* bungo / imagination: wichtig ist die Vorstellung, was diese Technik genau tut. dadurch wird die Imagination gesteigert. es macht einen Unterschied ob die Technik gerade ein geradeausschlag ist oder eine Block 
-* Kräftigung: durch den Zimmer ist tiefen stand und weitere ungewöhnliche Techniken, wird die Muskulatur direkt gefördert 
+* Wiederholung: die Kata ist eine optimale Schulung. durch die häufige Wiederholung werden die Techniken eingeschleift.
+* intensives Training: es ist keine extensive Auseinandersetzung mit Jutsu, sondern eine intensive, die fokussiert ist auf eine sehr begrenzte Anzahl von Techniken.
+* memorisierung: durch die Wiederholung bzw das Erlernen einer Kata bzw das Erlernen einer Kata wird wird die Erinnerungsfähigkeit geschult Detail und Fokussierung durch die intensive Beschäftigung mit einer begrenzten Anzahl von Techniken können diese Techniken bis hin zur (fast) Perfektion trainiert werden
+* bunkai / imagination: wichtig ist die Vorstellung, was diese Technik genau tut. dadurch wird die Imagination gesteigert. es macht einen Unterschied ob die Technik gerade ein geradeausschlag ist oder eine Block
+* Kräftigung: durch den Zimmer ist tiefen stand und weitere ungewöhnliche Techniken, wird die Muskulatur direkt gefördert
 * lebenslanges Lernen: eine Kata ist kein überflüssiger balast, sondern ermöglicht dir, lebenslang an gewissen Techniken zu verfeinern. es ist eines der größten Geschenke des Kampfsports. wo immer du bist, wenn du dich langweilst kannst du gewisse Kombinationen von der Karte herausgreifen und üben. oder sogar die Kata im gesamten. die Kata ist dein lebenslanger Freund und Begleiter
 
 ## Kata-Erwerb
 
-die Kata besteht häufig aus einer sehr langen Abfolge von Bewegungen. gerade für Anfänger sind diese Bewegungen nicht nachvollziehbar und in der Abfolge sehr unübersichtlich. 
+die Kata besteht häufig aus einer sehr langen Abfolge von Bewegungen. gerade für Anfänger sind diese Bewegungen nicht nachvollziehbar und in der Abfolge sehr unübersichtlich.
 
-**Unterteile** die kata in einzelne kombinationstechniken. Bünde ein bis fünf Techniken zu einem kombinationsblock und verfahre so mit der gesamten Kata. 
+**Unterteile** die kata in einzelne kombinationstechniken. Bünde ein bis fünf Techniken zu einem kombinationsblock und verfahre so mit der gesamten Kata.
 
-dadurch trainierst du nicht 70 Bewegungen, die irgendwie miteinander verflochten sind, sondern du trainierst **gezielt fünf Techniken**, und das schaffst du locker. anschließend setzt du die Blöcke zusammen. 
+dadurch trainierst du nicht 70 Bewegungen, die irgendwie miteinander verflochten sind, sondern du trainierst **gezielt fünf Techniken**, und das schaffst du locker. anschließend setzt du die Blöcke zusammen.
 
-mein persönlicher Favorit ist, dass ich die Karte von vorne in Blöcke Unterteile, so kann ich auch gleichzeitig mit dem Training der Bewegungsabfolge beginnen Punkt und lerne so ganz allmählich die Kater kennen. es gibt aber auch die Möglichkeit - und das kann bisweilen auch sinnvoll sein - die Kata nicht vom Anfang herzugeben, sondern eine zentrale, vielleicht sehr herausfordernde Technik, isoliert zu trainieren. 
+mein persönlicher Favorit ist, dass ich die Karte von vorne in Blöcke Unterteile, so kann ich auch gleichzeitig mit dem Training der Bewegungsabfolge beginnen Punkt und lerne so ganz allmählich die Kater kennen. es gibt aber auch die Möglichkeit - und das kann bisweilen auch sinnvoll sein - die Kata nicht vom Anfang herzugeben, sondern eine zentrale, vielleicht sehr herausfordernde Technik, isoliert zu trainieren.
 
 ## trainung einzelner techniken
 
-eine Kata sollte gewandt und kraftvoll ausgeführt werden. nimm Dich selbst auf Video auf oder Frage andere, wie die Techniken aussehen. 
+eine Kata sollte gewandt und kraftvoll ausgeführt werden. nimm Dich selbst auf Video auf oder Frage andere, wie die Techniken aussehen.
 
-überprüfe jede Technik 
+überprüfe jede Technik
 
 * im Spiegel
-* vom Gefühl her, ist die Technik "rund"? 
-* nimm dich auf Video auf 
+* vom Gefühl her, ist die Technik "rund"?
+* nimm dich auf Video auf
 * Frage Außenstehende nach Tipps
 
-einzelne Techniken kannst du auch ganz gezielt durch solodrills trainieren. 
+einzelne Techniken kannst du auch ganz gezielt durch solodrills trainieren.
 
-**Beispiel**: Schlaghand oder gyaku-zuki . das ist eine herausfordernde Technik weil Armbewegung schulterbewegung Hüfte stand etc zusammenkommen. 
+**Beispiel**: Schlaghand oder gyaku-zuki . das ist eine herausfordernde Technik weil Armbewegung schulterbewegung Hüfte stand etc zusammenkommen.
 
-um eine kraftvolle Hüftbewegung zu erreichen bietet es sich an, einen Medizinball zu werfen. denn der Medizinball zwingt einen dazu kraftvoll mit dem körper/der Hüfte zu arbeiten. 
+um eine kraftvolle Hüftbewegung zu erreichen bietet es sich an, einen Medizinball zu werfen. denn der Medizinball zwingt einen dazu kraftvoll mit dem körper/der Hüfte zu arbeiten.
 
-so kannst du einzelne Techniken herausgreifen und gezielt die komplette Bewegungsabfolge dieser einen Technik. 
+so kannst du einzelne Techniken herausgreifen und gezielt die komplette Bewegungsabfolge dieser einen Technik.

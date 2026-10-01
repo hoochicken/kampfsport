@@ -2,9 +2,9 @@
 
 auch vor dem Bildschirm kannst du wunderbar Üben. der Fokus ist dann weniger auf Koordination als auf Kraft und langsamer Bewegung. die volle Wirksamkeit entfaltet das Training natürlich ohne Ablenkung. wenn du aber mal was Gemütliches machen willst helfen dir diese Übungen, die einen statischen Blick nach vorne haben und nicht zu sehres Gehoppel sind.
 
-grundsätzlich gibt es zwei Positionen bei Bildschirm: 
+grundsätzlich gibt es zwei Positionen bei Bildschirm:
 
-* vertikal an der Wand dir gegenüber 
+* vertikal an der Wand dir gegenüber
 * horizontal vor dir auf dem Boden liegt
 
 ## vertikaler Bildschirm
@@ -15,14 +15,14 @@ der vertikale Bildschirm ist ideal, um die Bewegungslehre zu trainieren. gleichz
 
 die folgenden Übungen jeweils 10 Wiederholungen durchführen, davon insgesamt 5 Sets; für ein schnelles Workout nimm fünf Wiederholungen in fünf Sätzen
 
-* arme kreisen 
+* arme kreisen
 * beine svhwingen
-* Bein schwingen zum Diagonalen Hand 
+* Bein schwingen zum Diagonalen Hand
 * Scapula-Pushups = Liegestützen mit Schulterkreisen*
 * laangsames anfroschen* (vor und zurückspringen)
 * Bergsteigen*
 
-*) diese übungen auf dem Boden langsam unkontrolliert ausführen, gewicht eher auf händen zur Kräftigung des Oberkörpers 
+*) diese übungen auf dem Boden langsam unkontrolliert ausführen, gewicht eher auf händen zur Kräftigung des Oberkörpers
 
 **atemi**
 
@@ -45,7 +45,7 @@ jab, punch, hokk-FH, hook-SH, Uppercut-FH, uppercut-SH
 führe deine lieblingskombination aus in 5 Wiederholungen auf beiden Seiten zu 5 Sets
 
 * lieblingskombination "normal"
-* lieblingkombi mit bungo
+* lieblingkombi mit bunkai
 
 
 

@@ -2,11 +2,11 @@
 
 was ist wichtiger als Gewinnen? die Antwort ist klar: nicht verlieren.
 
-was ist der Unterschied zwischen gewinnen und nicht verlieren? 
+was ist der Unterschied zwischen gewinnen und nicht verlieren?
 
-verlieren heißt: du bist vielleicht verletzt oder schwer verletzt. und da du gesund bleiben willst sollte das immer deine Prämisse sein : ich will gesund aus diesem Kampf hervorgehen. ob du gewinnst oder nicht ist meines Erachtens sekundär. 
+verlieren heißt: du bist vielleicht verletzt oder schwer verletzt. und da du gesund bleiben willst sollte das immer deine Prämisse sein : ich will gesund aus diesem Kampf hervorgehen. ob du gewinnst oder nicht ist meines Erachtens sekundär.
 
-die folgenden Techniken und ich nahen Weise helfen dir dabei, ein optimale Verteidigung zu haben, damit du gesund bleibst und dein Lieblingssport ganz ganz lange ausführen kannst. 
+die folgenden Techniken und ich nahen Weise helfen dir dabei, ein optimale Verteidigung zu haben, damit du gesund bleibst und dein Lieblingssport ganz ganz lange ausführen kannst.
 
 und vielleicht auch, um bei dem Gegner bei möglichst viel für möglichst viel frust zu sorgen:-D die folgenden Verteidigungsmöglichkeiten sind geordnet wieder nach ihrer Distanz von der weites möglichen Distanz bis hin zur größten Nähe
 
@@ -16,22 +16,22 @@ Hinweis: dieses Kapitel ist mal wieder etwas ausführlicher geraten. greife dir 
 
 in einem Kampf ist Bewegung jeglicher Art von immenser Wichtigkeit in einem Typ zusammengefasst: nach einem Angriff sei es eine artemis-technik oder ein Wurfversuch für unbedingt eine verteidigungsbewegung auf aus dadurch wird dem Gegner erschwert
 
-durch die Bewegung zur Seite wird zusätzlich der Gegner irritiert. denn sein Ziel ist nicht mehr statisch sondern bewegt sich. dadurch können geplante Schläge nicht mehr so treffen, wie der es sich eigentlich wünscht. die angriffsarbeit des Gegners wird dadurch erschwert 
+durch die Bewegung zur Seite wird zusätzlich der Gegner irritiert. denn sein Ziel ist nicht mehr statisch sondern bewegt sich. dadurch können geplante Schläge nicht mehr so treffen, wie der es sich eigentlich wünscht. die angriffsarbeit des Gegners wird dadurch erschwert
 
 alle diese verteidigungsübungen lohnt es sich daher, sie auch zwischendurch im Kampf ohne Anlass durchzuführen. beispielsweise kannst du dir vornehmen, nach jedem deiner eigenen Angriffe, eine Verteidigungs handlung durchzuführen.
- 
+
 ## blickausrichtung
 
 bei einer Auseinandersetzung muss man den Gegner im Blick behalten. am geschicktesten ist es etwa auf die Höhe der Schlüsselbeine zu schauen.   dadurch siehst du:
 
-*  schulterbewegungen, die Angriffe mit den Armen vorbereiten 
-* Gewichtsverlagerungen, Angriffe mit den Beinen vorbereiten 
+*  schulterbewegungen, die Angriffe mit den Armen vorbereiten
+* Gewichtsverlagerungen, Angriffe mit den Beinen vorbereiten
 
 aber den Gegner nicht in die Augen. die Augen des Gegners können Lügen. er schaut nach unten schlägt nach oben er schaut nach oben und nach deinen Logik. seine Augen lügen. schaue nur auf Brustbein und Schlüsselbein. dann hast du den gesamten Körper des Gegners im Blick
 
 und nun zu der Herausforderung:
 
-wenn man angegriffen wird ist es die natürlichste Reaktion des Körpers, den Kopf zu senken, die Arme vor das Gesicht zu halten zum Schutz. der Körper schützt automatisch, das was am wichtigsten ist Gehirn und Gesicht, oder auch die Organe. durch das Einrollen der Schultern und vielleicht der ganzen Wirbelsäule rutscht der Blick automatisch nach unten. wenn der Blick unten ist, nicht mehr was dagegen macht. 
+wenn man angegriffen wird ist es die natürlichste Reaktion des Körpers, den Kopf zu senken, die Arme vor das Gesicht zu halten zum Schutz. der Körper schützt automatisch, das was am wichtigsten ist Gehirn und Gesicht, oder auch die Organe. durch das Einrollen der Schultern und vielleicht der ganzen Wirbelsäule rutscht der Blick automatisch nach unten. wenn der Blick unten ist, nicht mehr was dagegen macht.
 
 wenn man nun effektiv kämpfen will, muss man diese natürliche Reaktion des Körpers umprogrammieren. und das ist natürlich eine Herausforderung. ein Programm das über Millionen von Jahren geschrieben wurde, dass dazu beiträgt dass du überlebst . das musst du nun überschreiben.
 
@@ -39,22 +39,22 @@ dieser reichst du, durch folgende Maßnahmen
 
 * solotraining: lasse den Blick nach vorn, stelle dir den Gegner vor dir wirklich vor. auch wenn Du beispielsweise in den Doppelblock gehst
 * pratzenTraining achte hier auf deine Blicke Richtung Punkt bitte deinen Partner auf deine Blickrichtung zu achten Punkt er soll dir sagen wo du den Blick abwendest
-* sparring: bitte den Partner, oben sanft zu schlagen. erkläre ihm dass du immer nach unten schaust und dass du dies gezielt abtrainieren möchtest 
+* sparring: bitte den Partner, oben sanft zu schlagen. erkläre ihm dass du immer nach unten schaust und dass du dies gezielt abtrainieren möchtest
 
 **geschichte**: wenn ich mit einem Partner trainiere dann Blick immer abwendet, erkläre ich in kurz und bündig dass er auf mein Schlüsselbein schauen soll, und dass er mich anlächeln soll. dadurch Grinsen wir uns die ganze Zeit und Sparring oder im Pratzentraining ab dadurch Grinsen wir uns die ganze Zeit und Sparring oder im Pratzentraining. das macht Laune
 
 ## ausweichrichtungen
 
-grundsätzlich gibt es folgende Bewegungsrichtungen beim Ausweichen: 
+grundsätzlich gibt es folgende Bewegungsrichtungen beim Ausweichen:
 
-* nach hinten 
-* zur Seite 
-* nach unten 
+* nach hinten
+* zur Seite
+* nach unten
 * Kombinationen aus diesen Richtungen
 
 eine ausweich Richtung nach vorne ist auch denkbar, um z.B einen langen Cross zu unterlaufen und in den Nahdistanz zu kommen . wird aber eher dieselben Sicherheit sein
 
-**übung** 
+**übung**
 
 der schulterbreit in kampfstellung, lasse deine Beine stehen, bewege nur den Oberkörper habe die Deckung
 
@@ -66,44 +66,44 @@ der Blick immer nach vorne bleibt und die Rumpfmuskulatur angespannt
 
 ## ausweicharten
 
-beim Ausweichen kann man sich folgender Bewegungsarten bedienen: 
+beim Ausweichen kann man sich folgender Bewegungsarten bedienen:
 
-* nur mit dem Oberkörper, der aufrecht verbleibt oder der gebeugt wird 
-* drehung 
+* nur mit dem Oberkörper, der aufrecht verbleibt oder der gebeugt wird
+* drehung
 * Schritt in die ausweichrichtung - Gleitschritt oder Übersetzschritt
 * beifußige Sprung in die ausweichrichtung = federn
 
 schau dir die Liste noch einmal an überlege dir Komma warum diese ausweicharten genau dieser Reihenfolge aufgeführt sind und nicht in einer anderen.
 
-## ausweichen nach hinten 
+## ausweichen nach hinten
 
-nach hinten auszuweichen ist die einfachste und natürliche Art sich vor Gefahr zu schützen. durch Umdrehen ermöglicht sich dann auch die Flucht. 
+nach hinten auszuweichen ist die einfachste und natürliche Art sich vor Gefahr zu schützen. durch Umdrehen ermöglicht sich dann auch die Flucht.
 
 befindest du dich in einem Ring, so ist der Raum natürlich begrenzt. das heißt du kannst nicht ewig nach hinten ausweichen. es ist eine Notlösung, die dich schützt. aber keine nachhaltige Strategie
 
-Nachteil ist, dass man dann zumeist ein so großen Abstand hat, dass ein eigener Angriff nicht möglich ist. außerdem wird der Gegner im Kampf nachsetzen . das heißt dann reicht mal wieder aus und es entsteht eine Art rückwärtsflucht. 
+Nachteil ist, dass man dann zumeist ein so großen Abstand hat, dass ein eigener Angriff nicht möglich ist. außerdem wird der Gegner im Kampf nachsetzen . das heißt dann reicht mal wieder aus und es entsteht eine Art rückwärtsflucht.
 
-Hintergrund ist der , dass man in diesem Moment in der angriffslinie des Gegners bleibt . der Gegner hat einen Plan der in seiner angriffslinie liegt und den kann er ungehindert weiter verfolgen . dadurch unterstützt man du den Gegner dabei , dass man selbst unter Druck gesetzt wird man kann 
+Hintergrund ist der , dass man in diesem Moment in der angriffslinie des Gegners bleibt . der Gegner hat einen Plan der in seiner angriffslinie liegt und den kann er ungehindert weiter verfolgen . dadurch unterstützt man du den Gegner dabei , dass man selbst unter Druck gesetzt wird man kann
 
 dieses Phänomen auch dafür nutzen dass man den Gegner quasi lockt / pullt . das heisst du gibst dich absichtlich passiv  und im richtigen Moment eine Technik ausführt, in der der Gegner in seine Vorwärtsbewegung komplett reinrennt. z.B einen backgrounders Kick nach einem kleinen Schrittchen zur Seite
 
 mit anderen Worten: bewusst kannst du den Gegner locken, um eine Kontertechnik vorzubereiten, wie dieses Beispiel dir Zeit
 
-* du wartet bis der Gegner eine führHand bringt 
-* du machst einen beidseitigen feder-Sprung zurück 
+* du wartet bis der Gegner eine führHand bringt
+* du machst einen beidseitigen feder-Sprung zurück
 * springe der zurückgezogenen Führhand direkt hinterher und ...
 * bringe gleichzeitig einen eigenen Angriff, z. b. mit der Schlaghand auf der innenbahn
 
 dadurch hast du einen sehr schnellen distanzwechsel, weichst der führHand aus und kann danach direkt deine eigenen Techniken bringen
 
-**übung** 
+**übung**
 
-stehe in Kampfstellung 
+stehe in Kampfstellung
 
-* oberkörper: weiche 5x nach hinten aus, nur mit dem Oberkörper 
-* mini schritt: weiche 5x nach hinten aus, mach einen Mini Schritt mit deinem hinteren Bein nach hinten und stoße dich dann wieder nach vorne ab 
+* oberkörper: weiche 5x nach hinten aus, nur mit dem Oberkörper
+* mini schritt: weiche 5x nach hinten aus, mach einen Mini Schritt mit deinem hinteren Bein nach hinten und stoße dich dann wieder nach vorne ab
 * gleitschritt nach hinten, 5x, und zurück un ausgangsposition
-* springe beidseitig zurück und wieder rein 
+* springe beidseitig zurück und wieder rein
 * mache einen Doppelsprung zurück, 5x,  und springe wieder an deine Ausgangsposition
 * mache das gleiche mit dem auslagenwechsel
 
@@ -113,20 +113,20 @@ bestimme die Distanz des Schrittes oder des Sprungs so genau wie möglich. nimm 
 
 Ausweichbewegung zur Seite sind:
 
-* Gleitschritt mit vorderen Fuß nach außen gegebenenfalls danach Hüfte zum Gegner drehen 
-* übersetzSchritt mit hinterem Fuß nach außen gegebenenfalls danach Hüfte zum Gegner 
-* 90°-Drehung auf vorderen Fuß nach vorne 90°-Drehung nach hinten auf hinteren Fuß 
+* Gleitschritt mit vorderen Fuß nach außen gegebenenfalls danach Hüfte zum Gegner drehen
+* übersetzSchritt mit hinterem Fuß nach außen gegebenenfalls danach Hüfte zum Gegner
+* 90°-Drehung auf vorderen Fuß nach vorne 90°-Drehung nach hinten auf hinteren Fuß
 * beidseitiges springen nach  nach links oder rechts = "raus hoppeln"
 
 an diese grundlegende Ausweichbewegung können weitere Bewegungen angeschlossen werden, zumeist ein oder zwei. z.B das erneute Ausrichten der eigenen Position, der Kampfstellung in Richtung zum Gegner.
 
 betrachten wir noch kurz, wozu dies führt. der Gegner hat eine Angriffslinie . aus dieser bewegen wir uns hinaus, und behalten dabei eine schlagfähige Distanz ein . das heißt:
 
-du bist danach in der noblen Position, dass du eine oder mehrere Techniken (hatte nie, Wurf) setzen kannst. der Gegner hingegen musste dich erstmal suchen. 
+du bist danach in der noblen Position, dass du eine oder mehrere Techniken (hatte nie, Wurf) setzen kannst. der Gegner hingegen musste dich erstmal suchen.
 
-Tipp: erfahrenen Gegnern wird es leicht fallen, dir zu folgen 
+Tipp: erfahrenen Gegnern wird es leicht fallen, dir zu folgen
 
-* **Kombination von Ausweichbewegungen** kombiniere daher Ausweichbewegungen einfach miteinander . so erreichst du einen größeren Winkel auf die der Gegner nicht sofort eingestellt ist. 
+* **Kombination von Ausweichbewegungen** kombiniere daher Ausweichbewegungen einfach miteinander . so erreichst du einen größeren Winkel auf die der Gegner nicht sofort eingestellt ist.
 * **blenden des gegners**:  wenn du mit dafür Hand gleichzeitig blendest, wird der Gegner der nicht sofort folgen können, weil er abgelenkt wird
 
 **beachte die Ausrichtung der Kampfstellung des Gegners**
@@ -185,7 +185,7 @@ der T-Schritt ist eine Verbindung von Schritte rückwärts und einer Seitwärtsb
 
 Drehungen werden immer auf einem Fuß als Achse ausgefüllt dies kann der vordere oder der hintere Fuß sein. wenn du dir dies vergegenwärtigst so wird es sicherlich gleich auffallen, dass mit einer kleinen 90° Drehung, du nicht nur eine Drehung vollführst, sondern dass du gleichzeitig aus der Angriffslinie des Angreifers herausdrehst.
 
-bei einer Drehung verändert sich ebenfalls der Winkel und deine Position massiv. durch eine Drehung erarbeitest du dir also neue Angriffsmöglichkeiten. da eine Drehung eben auch dazu führt, dass du aus der angreiferlinie heraus kommst, sag ich es wieder für eine Irritation des Gegners. 
+bei einer Drehung verändert sich ebenfalls der Winkel und deine Position massiv. durch eine Drehung erarbeitest du dir also neue Angriffsmöglichkeiten. da eine Drehung eben auch dazu führt, dass du aus der angreiferlinie heraus kommst, sag ich es wieder für eine Irritation des Gegners.
 
 jede Irritation führt dazu, dass der Gegner sich an die neue Situation anpassen muss. der Angriff des Gegners verzögert sich dadurch und du hast nun mehr Möglichkeiten und kannst auch schneller eingreifen, weil du diese Positionsveränderung selbst geplant hast und natürlich auch Dich darauf vorbereitet hast
 
@@ -199,9 +199,9 @@ Konkretisierung zu gerade gerichteter Fußstoß: damit ist sowohl der gerade Fu�
 
 diese Technik ist für folgendes gedacht: der Gegner befindet sich in einer Vorwärtsbewegung, oft in Kombination mit einer artemi-technik, also er schlägt oder versucht einen dritt anzusetzen. der stofffußstoß stoppt die Vorwärtsbewegung des Gegners abrupt und unterbricht damit dessen Angriff.
 
-## schubsen 
+## schubsen
 
-ein schubsen am Brustkorb des gegners, unterhalb des Schlüsselbeins. dort ist der Brustkorb fest. dadurch kannst du den Gegner von dir weg bewegen. 
+ein schubsen am Brustkorb des gegners, unterhalb des Schlüsselbeins. dort ist der Brustkorb fest. dadurch kannst du den Gegner von dir weg bewegen.
 
 im clinch ergibt diese Technik ebenfalls Sinn. auch hier wird der Gegner nach dem Clinch einfach weggestoßen. auch wenn du Boxhandschuhe trägst, kannst du den Gegner von dir wegstoßen. durch das schubsen ergibt sich eine Erhöhung der Distanz und du kannst danach zum Beispiel
 
@@ -213,9 +213,9 @@ nach einem Team oder um sich gerade aus einer anderen sehr engen Positionierung 
 
 **blöcke und fegen**
 
-## block, passiv 
+## block, passiv
 
-passivblöcke zeichnen sich dadurch aus dass sie nur eine Art Schutzrahmen erzeugen es wird keine Bewegung entgegen eines bestimmten Angriffs ausgeführt sondern nur ein Schutz aufgebaut. entsprechend ist ein passiver Block in der Regel eine minimale Bewegung die einen Schutzrahmen aufbaut 
+passivblöcke zeichnen sich dadurch aus dass sie nur eine Art Schutzrahmen erzeugen es wird keine Bewegung entgegen eines bestimmten Angriffs ausgeführt sondern nur ein Schutz aufgebaut. entsprechend ist ein passiver Block in der Regel eine minimale Bewegung die einen Schutzrahmen aufbaut
 
 der passive Block ist die technische Weiterentwicklung der natürlichen Abwehrreaktion die bei einem Angriff erfolgt: kleine werden und irgendetwas zwischen sich und die Gefahr bringen
 
@@ -225,7 +225,7 @@ damit schützt dieser Block den Kopf von der Seite. da passive Block eignet sich
 
 der passive Block ist die technische Verfeinerung der natürlichen Abwehrbewegung des Menschen
 
-**übungen solo** 
+**übungen solo**
 
 **übungen partner**
 
@@ -233,7 +233,7 @@ der passive Block ist die technische Verfeinerung der natürlichen Abwehrbewegun
 
 ## helmchen (sv)
 
-eine Variante des passiven Blockes ist das Helmchen bzw das bewegte helmchen/sich durch die Haare fahren. vor allem in der Selbstverteidigung ist diese Block sinnvoll denn er schützt den Schädel vor Angriffen aus vielen verschiedenen Richtungen 
+eine Variante des passiven Blockes ist das Helmchen bzw das bewegte helmchen/sich durch die Haare fahren. vor allem in der Selbstverteidigung ist diese Block sinnvoll denn er schützt den Schädel vor Angriffen aus vielen verschiedenen Richtungen
 
 ein Helmchen erhältst du, wenn du deine Arme um deinen Kopf herumfaltest. dabei lässt
 
@@ -258,17 +258,17 @@ die doppeldecken ist eine Deckung, die dir hilft, schnell gesichert zu sein. sie
 
 ## haare richten (sv)
 
-dies ist eine Helmchen Variante. der Helm ist statisch und sehr nützlich. durch die Statik könnte der Gegner aber verstehen, dass es bestimmte Bereiche deine Schädels gibt dir dennoch erreichen kann. hier hilft das"Haare richten" 
+dies ist eine Helmchen Variante. der Helm ist statisch und sehr nützlich. durch die Statik könnte der Gegner aber verstehen, dass es bestimmte Bereiche deine Schädels gibt dir dennoch erreichen kann. hier hilft das"Haare richten"
 
 * beim Haare richten fährst du dir mit der rechten Hand von der Stirn ab bis zum Hinterhaupt durch die Haare.
-* danach folgt direkt die linke Hand. 
+* danach folgt direkt die linke Hand.
 * der Ellenbogen zeigt dabei immer nach vorne .
 
 das Ergebnis ist eine Art wandelhhelmchen. die Löcher des helmchens durch die der Gegner angreifen kann, verschieben sich ständig. die Wahrscheinlichkeit, dass ein Schlag des Gegners auf einem der Arme hängen bleibt, ist sehr hoch
 
 ## fegen
 
-beim Fegen wischt man den Angriff des Gegners ein bisschen zur Seite. dabei berührst du mit der Hand die ankommende Faust oder Unterarm des Partners und führst diesen an deinem Gesicht vorbei. 
+beim Fegen wischt man den Angriff des Gegners ein bisschen zur Seite. dabei berührst du mit der Hand die ankommende Faust oder Unterarm des Partners und führst diesen an deinem Gesicht vorbei.
 
 Ziel des Gegners ist es z.B dein Gesicht zu treffen. deswegen für diesen Angriff einfach ein bisschen an den Kopf vorbei.
 
@@ -282,9 +282,9 @@ Ziel des Gegners ist es z.B dein Gesicht zu treffen. deswegen für diesen Angrif
 
 ## block aktiv
 
-als blocken bezeichnet man das Abstoppen des feindlichen Angriffs. beispielsweise für der Gegner eine Gerade Schlaghand und du blockst mit der gleichseitigen Hand dagegen. 
+als blocken bezeichnet man das Abstoppen des feindlichen Angriffs. beispielsweise für der Gegner eine Gerade Schlaghand und du blockst mit der gleichseitigen Hand dagegen.
 
-erinnere dich: beim Fegen findet eine richtungsablenkung statt hier hast du ein bewegungsstopp . 
+erinnere dich: beim Fegen findet eine richtungsablenkung statt hier hast du ein bewegungsstopp .
 
 das Blocken muss mit ein bisschen mehr Kraft ausgeführt werden. (es kommt natürlich auch auf die Stärke des Angriffs an. im lockeren Sparring ist ist das blocken leicht.) in ernsthaften kämpfen, kann es etwas anstrengender sein.
 
@@ -295,7 +295,7 @@ blocken kannst du z.B anwenden wie folgt
 
 ## atemi-kombination danach
 
-wenn du eine eine erfolgreich eine Verteidigung durchführst, so ist es großartig! gratulation! sei jedes Mal froh wenn dir das gelingt. 
+wenn du eine eine erfolgreich eine Verteidigung durchführst, so ist es großartig! gratulation! sei jedes Mal froh wenn dir das gelingt.
 
 der nächste Schritt ist es, diese Verteidigungen im Voraus zu planen. kombiniere die Verteidigung mit einer anschließenden artemitechnik. z.B
 
@@ -309,14 +309,14 @@ anstatt einen direkten Block zu setzen, dass du alternativ auf eine artemikomina
 
 ## ebgagierterr konzer - u.a. Gegnerfrustration
 
-um den Gegner zu frustrieren, ist es sinnvoll jedes Mal einen Konter zu schlagen. das Wort Konter meint nichts anderes als Gegenangriff. je zeitnaher der Gegenangriff wird verfolgt, desto eher wird der Gegner aus dem Konzept gebracht. 
+um den Gegner zu frustrieren, ist es sinnvoll jedes Mal einen Konter zu schlagen. das Wort Konter meint nichts anderes als Gegenangriff. je zeitnaher der Gegenangriff wird verfolgt, desto eher wird der Gegner aus dem Konzept gebracht.
 
-du kannst das auch auf die Spitze treiben. 
+du kannst das auch auf die Spitze treiben.
 
-* du wählst eine Kombination, die dir sehr leicht fällt das ist deine kontokombination. es kann eine ganz einfache Kombination sein, z.B Jeff Punch Lowkick. 
-* jedes Mal wenn der Gegner auch nur zuckt und auch nur denkt anzureifen, bringst du diese Kombination, mit voller Härte. 
+* du wählst eine Kombination, die dir sehr leicht fällt das ist deine kontokombination. es kann eine ganz einfache Kombination sein, z.B Jeff Punch Lowkick.
+* jedes Mal wenn der Gegner auch nur zuckt und auch nur denkt anzureifen, bringst du diese Kombination, mit voller Härte.
 
-im Gehirn des Gegners wird dann sein eigener Angriff mit Schmerzen assoziiert. in der Folge wird dazu Grübeln anfangen: "will ich jetzt wirklich diese Person angreifen denn jedes mal an wenn ich angreife kriege ich Schmerzen." 
+im Gehirn des Gegners wird dann sein eigener Angriff mit Schmerzen assoziiert. in der Folge wird dazu Grübeln anfangen: "will ich jetzt wirklich diese Person angreifen denn jedes mal an wenn ich angreife kriege ich Schmerzen."
 
 dadurch lebt der Gegner in permanente Angst, und diese Angst und Vorsicht bringt mit sich, dass er anfangen zu zögern. das heißt es bringt dir ein zeitverteil.
 
@@ -324,14 +324,14 @@ das mit dem Schmerzen ist natürlich relativ. time Sparring trotzdem entsprechen
 
 ## schattenboxen
 
-wenn du ausweichen solo, also alleine trainierst (samdsack, Schattenboxen) und Verteidigung, würde ich dir folgendes empfehlen. trainiere mit Bungo! das heißt 
+wenn du ausweichen solo, also alleine trainierst (samdsack, Schattenboxen) und Verteidigung, würde ich dir folgendes empfehlen. trainiere mit Bunkai! das heißt
 
-* stelle dir den Gegner vor 
-* welchen Angriff er genau bringt. 
-* mache dann die passende Abwehr genau für diesen Angriff. 
+* stelle dir den Gegner vor
+* welchen Angriff er genau bringt.
+* mache dann die passende Abwehr genau für diesen Angriff.
 * wiederhole dies OFT für denselben Angriff
 
-was dir die Vorstellung erleichtert, dass ein Gegner da ist, ist ein Gegenstand den du z.B auf den Boden legst oder ein Möbelstück. ein Stuhl im Raum repräsentiert den Stand des Gegners. bewege dich um diesen Stuhl herum. 
+was dir die Vorstellung erleichtert, dass ein Gegner da ist, ist ein Gegenstand den du z.B auf den Boden legst oder ein Möbelstück. ein Stuhl im Raum repräsentiert den Stand des Gegners. bewege dich um diesen Stuhl herum.
 
 so hast dein Gehirn einen 3d-Bezugspunkt im raum, den er mit dem Gegner vermerken kann.
 

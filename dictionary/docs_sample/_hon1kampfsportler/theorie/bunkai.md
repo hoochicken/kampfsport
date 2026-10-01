@@ -1,18 +1,18 @@
-# Bungo
+# Bunkai
 
 ## Herkunft des Begriffs unklar
 
-Der Begriff *Bungo* ist mir nur aus dem Training bekannt, das ich selbst besuche. Mein Trainer verwendet diesen Begriff regelmäßig.
+Der Begriff *Bunkai* ist mir nur aus dem Training bekannt, das ich selbst besuche. Mein Trainer verwendet diesen Begriff regelmäßig.
 
 Es ist mir bisher nicht gelungen, ihn in Büchern oder im Internet zu finden. Natürlich kann ich auch keine Volltextsuche durch alle Kampfsportbücher dieser Welt durchführen. Dennoch habe ich mich entschieden, den Begriff in dieses Buch aufzunehmen, denn mit ihm ist ein sehr wichtiges Konzept verbunden.
 
 ## Definition
 
-Bungo lässt sich als die wahre Vorstellung dessen beschreiben, was du gerade tust.
+Bunkai lässt sich als die wahre Vorstellung dessen beschreiben, was du gerade tust.
 
 Es ist die Bedeutung einer Technik. Die Absicht hinter der Bewegung. Die Vorstellung davon, was diese Technik am Körper des Gegners bewirkt.
 
-### Ohne Bungo
+### Ohne Bunkai
 
 Nehmen wir den Jab als Beispiel.
 
@@ -24,9 +24,9 @@ Der Fauststoß wird ausgeführt, weil der Trainer gesagt hat, dass man den Arm s
 
 Die Technik besitzt Form, aber noch keine Bedeutung.
 
-### Mit Bungo
+### Mit Bunkai
 
-Erst das Bungo macht aus der Bewegung eine Technik.
+Erst das Bunkai macht aus der Bewegung eine Technik.
 
 Der Arm wird nicht einfach ausgestreckt. Schulter, Hüfte und Hara bewegen sich gemeinsam nach vorne. Die Faust wird im richtigen Moment gedreht. Die Knöchel treffen das Jochbein des Gegners.
 
@@ -46,9 +46,9 @@ Aus einer Bewegung wird eine Idee.
 
 Aus einer Idee wird eine Technik.
 
-## Fragen des Bungo
+## Fragen des Bunkai
 
-Bungo beantwortet unter anderem folgende Fragen:
+Bunkai beantwortet unter anderem folgende Fragen:
 
 * **Was ist die exakte Trefferfläche?**
 * **Wo und wann treffe ich den Gegner?**
@@ -75,7 +75,7 @@ Er war eine Waffe.
 
 Ich hoffe natürlich, dass ich ihn niemals auf diese Weise einsetzen muss.
 
-## Bungo in der Kata
+## Bunkai in der Kata
 
 Nehmen wir eine Bewegung aus einer Kata.
 
@@ -87,19 +87,19 @@ Eine scheinbar einfache Hakenbewegung kann verschiedene Bedeutungen besitzen:
 
 Äußerlich sieht die Bewegung ähnlich aus. Innerlich handelt es sich um völlig unterschiedliche Techniken. Deshalb solltest du bei einer Kata wissen, welche Bedeutung eine Bewegung für dich besitzt.
 
-Wenn du dies nicht weißt, bleiben die Bewegungen leer. Erst das Bungo macht aus einer Bewegung eine klare Absicht.
+Wenn du dies nicht weißt, bleiben die Bewegungen leer. Erst das Bunkai macht aus einer Bewegung eine klare Absicht.
 
 ## Wachstum
 
-Dein Bungo wächst mit jeder Wiederholung.
+Dein Bunkai wächst mit jeder Wiederholung.
 
-Je häufiger du eine Technik trainierst, desto mehr Feinheiten erkennst du. Das Bungo einer Technik ist niemals abgeschlossen.
+Je häufiger du eine Technik trainierst, desto mehr Feinheiten erkennst du. Das Bunkai einer Technik ist niemals abgeschlossen.
 
 Mit jeder Erfahrung wird es größer. Mit jedem Fehler wird es genauer. Mit jeder Wiederholung wird es schärfer.
 
 ## Das Schwert
 
-> Bungo ist wie ein Schwert.
+> Bunkai ist wie ein Schwert.
 > Unachtsamkeit und Faulheit lassen es stumpf werden.
 > Jede Wiederholung schärft die Klinge.
 > Beständiges Üben erhält ihre Schärfe.
@@ -117,4 +117,4 @@ Es ist völlig in Ordnung, Techniken manchmal einfach nur zu wiederholen und ein
 
 ## Merkspruch
 
-„Die Bewegung ist die Form. Das Bungo ist die Bedeutung.“
+„Die Bewegung ist die Form. Das Bunkai ist die Bedeutung.“

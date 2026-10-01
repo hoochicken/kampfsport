@@ -1,11 +1,11 @@
 ## wahre traningssätzè
 
-**gesundheot** wir wollen alle gesund bleiben. passt aufeinander auf 
+**gesundheot** wir wollen alle gesund bleiben. passt aufeinander auf
 
-**ein Zahnschutz** ist billiger als ein Zahnarzt 
+**ein Zahnschutz** ist billiger als ein Zahnarzt
 
 **respektiere (möglichst) jeden partner** der Kampf ist nicht auf der Matte manche stellen sich tausende Mond schon vor dem Training( sie überwinden eine depressive Phase und stehen trotzdem auf und gehen trotzdem zum Training.) ehre  jeden der im Training auftaucht
-* jede Technik trägt zur Sicherheit bei 
+* jede Technik trägt zur Sicherheit bei
 
 
 **jede Technik muss Wirkung haben** . das bedeutet, sie muss einen sichtbare Auswirkung auf dem Partner haben. sie muss nicht schmerzhaft sein, auch eine Gewichtsverlagerung ist mindestens gleichwertig
@@ -18,9 +18,9 @@
 
 ** gesund** wir alle wollen gesund von der Matte laufen. keiner bekommt 100000 €, keine ein Pokal . bleibt gesund!
 
-**schritt zur seite** gehe aus der Angriffslinie des Partners hinaus. weiche aus! 
+**schritt zur seite** gehe aus der Angriffslinie des Partners hinaus. weiche aus!
 
-**bungo** trainiere immer mit Bungo
+**bunkai** trainiere immer mit Bunkai
 
 **kennen heißt nicht können**
 
@@ -30,4 +30,4 @@
 
 **trainiere so viele** Kampfsportarten wie möglich: schaue Institut zu rein ins Boxen ins Kickboxen und in MMA. denn: deine Auswahl an wirksam Techniken vergrößert sich
 
-**selbst-bewusstes sparring** beim Sparring ist es unerheblich Wert "gewinnt". fokussiere dich auf deine Weiterentwicklung und deine Fähigkeit Techniken anzuwenden. 
+**selbst-bewusstes sparring** beim Sparring ist es unerheblich Wert "gewinnt". fokussiere dich auf deine Weiterentwicklung und deine Fähigkeit Techniken anzuwenden.
