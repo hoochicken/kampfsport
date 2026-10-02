@@ -3,4 +3,4 @@
 * Selbstverteidigung
 * Kampfkunst
 * Kampfsport
-* Berufskampf
+* Ernstfall- und Berufskampf
