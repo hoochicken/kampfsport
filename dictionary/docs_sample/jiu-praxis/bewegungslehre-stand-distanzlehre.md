@@ -60,9 +60,9 @@ wenn man von oben auf die ausgeführte Bewegung schaut, so ergibt sich eben ein 
 
 wie immer bewegen wir uns vom einfachen zum komplexen
 
-## null-bewegung - schlecht
+## .-null-bewegung - schlecht
 
-**.-Bewegung**: die punktbewegung ist keine Bewegung. es ist der Stand auf genau einer Stelle. das ist die unglücklichste Position, die man haben kann. denn so bietet man ein unbewegliches Ziel für den Gegner Punkt der Gegner kann einen leicht anvisieren während man selbst als ob das Opfer ist. alles ist besser als der **.**.
+die punktbewegung ist keine Bewegung. es ist der Stand auf genau einer Stelle. das ist die unglücklichste Position, die man haben kann. denn so bietet man ein unbewegliches Ziel für den Gegner Punkt der Gegner kann einen leicht anvisieren während man selbst als ob das Opfer ist. alles ist besser als der **.**.
 
 ( ja der Punkt ist kein lateinischer Buchstabe, ignore)
 
@@ -75,13 +75,42 @@ bevor wir uns mit der eigentlichen Bewegung auseinandersetzen mache dich vorher 
 
 ### i-bewegung
 
-die Bewegung ist eine Gerade Bewegung hin zum Partner und dann entfernt man sich wieder daraus. wichtig ist hier das distanzspiel . du befindest dich außerhalb der Reichweite des Gegners. durch gleitschritte vorwärts kommst du in deine Schlagweite. dann bringst du deine standardkombi z.B 1 2 LK2 . 
+die Bewegung ist eine Gerade Bewegung hin zum Partner und dann entfernt man sich wieder daraus. wichtig ist hier das distanzspiel . 
 
-Danach gehst du wieder aus der Distanz heraus. 
+* du befindest dich außerhalb der Reichweite des Gegners
+* durch gleitschritte vorwärts kommst du in deine Schlagweite. dann bringst du deine standardkombi z.B 1 2 LK2 . 
+* Danach gehst du wieder aus der Distanz heraus. dabei **löst** du dich mit einer **geraden führhand** vom Gegner
 
 Am ende hast du also wieder eine sichere Position außerhalb der Schlagweite deines Gegners
 
-**lösen
+die i-bewegung und die j-bewegung haben beide als Nachteil, dass du als Angreifer in der Orientierungslinie des Gegners verbleibst. das heißt der Gegner hat dich immer fest im Blick, ähnlich wie bei der .- Null-Bewegung
 
+### j-bewegung
 
+die j-bewegung ist genau wie die i-bewegung mit einem kleinen Unterschied. der Haken vom j steht hier für eine Schlagkombination in der Nahdistanz. das heißt konkret
+
+* du befindest dich außerhalb der Reichweite des Gegners
+* durch gleitschritte vorwärts kommst du in deine Schlagweite bzw. die nahdistanz. dann bringst du deine standardkombi z.B 1 2 LK2 . 
+* nahdistanz, hier ist der untere Haken vom j, hier bringst du viele nahdistanztechniken, z.B apakatsharken oder auch Ellenbogen . mache eine kleine Kombination aus 3, 4Techniken
+* Danach gehst du wieder aus der Distanz heraus. dabei **löst** du dich mit einer **geraden führhand** vom Gegner
+
+Am ende hast du also wieder eine sichere Position außerhalb der Schlagweite deines Gegners
+
+die i-bewegung und die j-bewegung haben beide als Nachteil, dass du als Angreifer in der Orientierungslinie des Gegners verbleibst. das heißt der Gegner hat dich immer fest im Blick, ähnlich wie bei der .- Null-Bewegung
+
+genau dies ändert sich mit den folgenden Bewegung, die eine 90° Drehung mitbringen
+
+### v-bewegung
+
+die v-bewegung beschreibt eine 90° Drehung. wichtigstes Merkmal ist, dass man hier die Orientierungslinie des Gegners verlässt. der Gegner muss entweder nach links oder nach rechts schauen oder sich sogar umdrehen, um dich im Blick zu behalten. stelle dir das V bitte als ein ganz weites 90° V vor. das heißt konkret: die lösebewegung ist ein Haken mit einer gleichzeitigen 90° Drehung in die gleiche Richtung
+
+* du befindest dich außerhalb der Reichweite des Gegners
+* durch gleitschritte vorwärts kommst du in deine Schlagweite. dann bringst du deine standardkombi z.B 1 2 LK2 . 
+* Danach gehst du wieder aus der Distanz heraus. dabei **löst** wie folgt
+    * haken links, gleichzeitiger schritt links vor und bisschen nach aussen, plus drehunh auf diesem vorderen bein nach links um 90° 
+     * ODER daselbe nach **rechts** (Haken rechts, schritt rechts aussen, drehung nach rechts)
+
+dabei ist es erst einmal nicht von Belang ob du dich nach links oder nach rechts löst Punkt wichtig ist dass du aus dieser Orientierungslinie des Gegners herauskommst. dadurch wird der desorientiert und muss ich erstmal wieder neu finden, bevor er dich angreifen kann. 
+
+pro-Tipp: im späteren Verlauf ist es natürlich sehr wichtig in welche Richtung du raus gehst. bei einem Rechtsausleger bietet es sich an nach links rauszugehen. gegen einen Linksausleger eben nach rechts. denn dann bewegt man sich in die quasi blinde Seite des Gegners hinein in den toten Winkel.
 
