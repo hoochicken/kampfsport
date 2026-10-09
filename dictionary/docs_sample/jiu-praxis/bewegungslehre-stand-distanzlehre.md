@@ -52,5 +52,36 @@ damit du eine Technik, eine Kombination wieder optimalen Wirkung   am Partner au
 
 wie man das macht, das erklärt die Bewegungslehre Bewegungslehre 
 
+## Buchstaben-Bewegungen
+
+es gibt viele Abhandlungen zu Bewegungslehre, von denen ich viele überhaupt nicht gelesen habe. vor allem habe ich mich mit traditioneller bewegungslehrer beschäftigt, und die ist irgendwie Mittel. auf Basis von kickboxeinheiten habe ich folgendes System entwickelt, dass auch für Anfänger leicht umzusetzen ist. diese Bewegungslehre orientiert sich an einfachen lateinischer Großbuchstaben. 
+
+wenn man von oben auf die ausgeführte Bewegung schaut, so ergibt sich eben ein lateinischer Großbuchstabe. da die allermeisten Leute lesen können, ist es eine sehr griffige Art und Weise, Bewegungslehre beizubringen. die Bewegungsform leuchtet sofort ein, weil man die Buchstaben kennt
+
+wie immer bewegen wir uns vom einfachen zum komplexen
+
+## null-bewegung - schlecht
+
+**.-Bewegung**: die punktbewegung ist keine Bewegung. es ist der Stand auf genau einer Stelle. das ist die unglücklichste Position, die man haben kann. denn so bietet man ein unbewegliches Ziel für den Gegner Punkt der Gegner kann einen leicht anvisieren während man selbst als ob das Opfer ist. alles ist besser als der **.**.
+
+( ja der Punkt ist kein lateinischer Buchstabe, ignore)
+
+## lösen
+
+bevor wir uns mit der eigentlichen Bewegung auseinandersetzen mache dich vorher mit Möglichkeiten vertraut, wie du dich von der nadistanz wieder löst. und das geht grundsätzlich auf zwei Arten: 
+
+* **lösen gerade**: Schritt zurück, dabei die für Hand den Partner entgegen werfen. diese für Hand muss nicht unbedingt treffen. sie verhindert, dass ein engagierter Gegner dir folgt und dir eine folgetechnik reindrückt 
+* **lösen 90 Grad**: einen Haken mit der für Hand oder mit der Schlaghand und gleichzeitigem ausweichen in dieselbe Richtung des Hakens um 90 Grad
+
+### i-bewegung
+
+die Bewegung ist eine Gerade Bewegung hin zum Partner und dann entfernt man sich wieder daraus. wichtig ist hier das distanzspiel . du befindest dich außerhalb der Reichweite des Gegners. durch gleitschritte vorwärts kommst du in deine Schlagweite. dann bringst du deine standardkombi z.B 1 2 LK2 . 
+
+Danach gehst du wieder aus der Distanz heraus. 
+
+Am ende hast du also wieder eine sichere Position außerhalb der Schlagweite deines Gegners
+
+**lösen
+
 
 
