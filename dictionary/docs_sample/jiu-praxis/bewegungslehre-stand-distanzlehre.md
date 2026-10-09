@@ -73,6 +73,8 @@ bevor wir uns mit der eigentlichen Bewegung auseinandersetzen mache dich vorher 
 * **lösen gerade**: Schritt zurück, dabei die für Hand den Partner entgegen werfen. diese für Hand muss nicht unbedingt treffen. sie verhindert, dass ein engagierter Gegner dir folgt und dir eine folgetechnik reindrückt 
 * **lösen 90 Grad**: einen Haken mit der für Hand oder mit der Schlaghand und gleichzeitigem ausweichen in dieselbe Richtung des Hakens um 90 Grad
 
+90°?! ist das nicht etwas viel? ja das ist viel. trainiere im Training auf 90°. später unter Druck und unter Schnelligkeit im Kampf, hast du Glück, wenn 45 Grad rauskommen. über trainiere übertrieben, damit du einen guten outcome unter Druck hast
+
 ### i-bewegung
 
 die Bewegung ist eine Gerade Bewegung hin zum Partner und dann entfernt man sich wieder daraus. wichtig ist hier das distanzspiel . 
@@ -124,3 +126,35 @@ die u-bewegung ist wie die v-bewegung. mit dem Unterschied dass mit dem Erreiche
 * Danach gehst du wieder aus der Distanz heraus. dabei **löst** wie folgt
     * haken links, gleichzeitiger schritt links vor und bisschen nach aussen, plus drehunh auf diesem vorderen bein nach links um 90° 
      * ODER daselbe nach **rechts** (Haken rechts, schritt rechts aussen, drehung nach rechts)
+
+### w-bewegung
+
+ein W besteht grafisch aus zwei Faust, und genau das kannst du machen das heißt: du machst einfach zwei v-bewegungen hintereinander. danach hast du entweder einen Grad von 180 Grad erreicht (wenn du zweimal in die gleiche Seite ausweist, oder von 0 Grad eben weil du wieder zurück ist. 
+
+natürlich kannst du ein wenig bauen (im englischen heißt es wir ja auch Double-U).
+
+### t-bewegung
+
+die teebewegung unterscheidet sich von den bisherigen Bewegungen dadurch, dass das Abweichen von der Orientierungslinie des Gegners nicht in der Nahdistanz erfolgt sondern wieder in der ferndistanz. das sieht dann so aus:
+
+* du befindest dich außerhalb der Reichweite des Gegners
+* durch gleitschritte vorwärts kommst du in deine Schlagweite. dann bringst du deine standardkombi z.B 1 2 LK2 . 
+* Danach gehst du wieder aus der Distanz heraus. dabei **löst** mit einer Geraden führhand
+* jetzt stehst du wieder entferntestanz und kannst entweder nach links oder nach rechts dich fortbewegen. (dadurch entsteht der obere Balken des "T".)
+
+**geschichte**: die teebewegung ist die erste Bewegung die ich kennengelernt habe. im Sparring hat mir der Trainer einfach gesagt mach die tierbewegung und mir das kurz erklärt. mein Sparring war sofort viel besser. ausgehend von dieser tierbewegung habe ich dann einfach die anderen Buchstaben hinzugefügt. und deshalb kannst du jetzt auch das folgende machen:
+
+### buchstabieren
+
+nun kannst du beginnen, Wörter und Abkürzungen zu buchstabieren dein Partner darf dann raten, welche Abkürzung du gerade gemacht hast. folgende Abkürzung bieten sich z.B an
+
+* vw
+* tüv (tuv)
+* uv
+* und so weiter
+
+**Info für dich als Trainer**: das ist ein schönes Spiel, der eine diktiert, der Partner muss erraten welche Buchstaben gerade gemacht wurden. das ist natürlich total skurril, mit Bewegungsformen wie eine Biene beim honigtanz) Buchstaben zu schreiben. und genau das setzt unglaublich viel Lerneifer und Motivation bei den Trainierenden in Gang. es ist einfach spannend sie stehen nicht nur dumm als Partner rum, sondern sie müssen aktiv sich mit dem Bewegungsmuster des Angreifers auseinandersetzen
+
+
+
+   
