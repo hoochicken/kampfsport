@@ -58,9 +58,9 @@ es gibt viele Abhandlungen zu Bewegungslehre, von denen ich viele überhaupt nic
 
 wenn man von oben auf die ausgeführte Bewegung schaut, so ergibt sich eben ein lateinischer Großbuchstabe. da die allermeisten Leute lesen können, ist es eine sehr griffige Art und Weise, Bewegungslehre beizubringen. die Bewegungsform leuchtet sofort ein, weil man die Buchstaben kennt
 
-wie immer bewegen wir uns vom einfachen zum komplexen
+wie immer bewegen wir uns vom einfachen zum komplexen. die bewegungen/buchstaben bauen aufeinander auf Punkt daher lohnt es sich die Bewegungsformen in der hier angegolbenen gegebenen Folge zu erlernen.
 
-## .-null-bewegung - schlecht
+### .-null-bewegung - schlecht
 
 die punktbewegung ist keine Bewegung. es ist der Stand auf genau einer Stelle. das ist die unglücklichste Position, die man haben kann. denn so bietet man ein unbewegliches Ziel für den Gegner Punkt der Gegner kann einen leicht anvisieren während man selbst als ob das Opfer ist. alles ist besser als der **.**.
 
@@ -91,7 +91,7 @@ die j-bewegung ist genau wie die i-bewegung mit einem kleinen Unterschied. der H
 
 * du befindest dich außerhalb der Reichweite des Gegners
 * durch gleitschritte vorwärts kommst du in deine Schlagweite bzw. die nahdistanz. dann bringst du deine standardkombi z.B 1 2 LK2 . 
-* nahdistanz, hier ist der untere Haken vom j, hier bringst du viele nahdistanztechniken, z.B apakatsharken oder auch Ellenbogen . mache eine kleine Kombination aus 3, 4Techniken
+* nahdistanz, hier ist der untere Haken vom j, hier bringst du viele nahdistanztechniken, z.B uppercut, haken, oder auch Ellenbogen . mache eine kleine Kombination aus 3, 4Techniken
 * Danach gehst du wieder aus der Distanz heraus. dabei **löst** du dich mit einer **geraden führhand** vom Gegner
 
 Am ende hast du also wieder eine sichere Position außerhalb der Schlagweite deines Gegners
@@ -114,3 +114,13 @@ dabei ist es erst einmal nicht von Belang ob du dich nach links oder nach rechts
 
 pro-Tipp: im späteren Verlauf ist es natürlich sehr wichtig in welche Richtung du raus gehst. bei einem Rechtsausleger bietet es sich an nach links rauszugehen. gegen einen Linksausleger eben nach rechts. denn dann bewegt man sich in die quasi blinde Seite des Gegners hinein in den toten Winkel.
 
+### U-bewegung
+
+die u-bewegung ist wie die v-bewegung. mit dem Unterschied dass mit dem Erreichen der Nahdistanz hier wieder weitere Techniken geworfen werden, sie bilden damit quasi den Bogen des U. weiter wird natürlich wieder in 90 Grad gelöst
+
+* du befindest dich außerhalb der Reichweite des Gegners
+* durch gleitschritte vorwärts kommst du in deine Schlagweite. dann bringst du deine standardkombi z.B 1 2 LK2 . 
+* nahdistanz, hier ist der untere Haken vom j, hier bringst du viele nahdistanztechniken, z.B uppercut, haken, oder auch Ellenbogen . mache eine kleine Kombination aus 3, 4Techniken
+* Danach gehst du wieder aus der Distanz heraus. dabei **löst** wie folgt
+    * haken links, gleichzeitiger schritt links vor und bisschen nach aussen, plus drehunh auf diesem vorderen bein nach links um 90° 
+     * ODER daselbe nach **rechts** (Haken rechts, schritt rechts aussen, drehung nach rechts)
