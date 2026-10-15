@@ -104,7 +104,7 @@ Wenn du dies nicht weißt, bleiben die Bewegungen leer. Erst das Bunkai macht au
 
 Dein Bunkai wächst mit jeder Wiederholung.
 
-Je häufiger du eine Technik trainierst, desto mehr Feinheiten erkennst du. Das Bunkai einer Technik ist niemals abgeschlossen.
+Je häufiger du eine Technik trainierst, desto mehr Feinheiten erkennst du. Das Bunkai deiner Technik ist niemals abgeschlossen.
 
 Mit jeder Erfahrung wird es größer. Mit jedem Fehler wird es genauer. Mit jeder Wiederholung wird es schärfer.
 
@@ -126,6 +126,4 @@ Es ist völlig in Ordnung, Techniken manchmal einfach nur zu wiederholen und ein
 
 * Erst dann wird aus einer Bewegung Verständnis.
 
-## Merkspruch
-
-„Die Bewegung ist die Form. Das Bunkai ist die Bedeutung.“
+**Frage dich**: Wie trainierst? Mit Bunkai oder ohne? Was lässt dich das Bunkai veröieren? Was lässt dich dein Bunkei wiederfinden? Wann kann es sinnvoll sein, ohne Bunkai zu trainieren (ja, auch das gibt es)? Was war dein Initialerlebnis?
