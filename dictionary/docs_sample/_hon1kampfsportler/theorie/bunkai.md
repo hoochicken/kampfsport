@@ -1,16 +1,25 @@
 # Bunkai
 
-## Herkunft des Begriffs unklar
-
-Der Begriff *Bunkai* ist mir nur aus dem Training bekannt, das ich selbst besuche. Mein Trainer verwendet diesen Begriff regelmäßig.
-
-Es ist mir bisher nicht gelungen, ihn in Büchern oder im Internet zu finden. Natürlich kann ich auch keine Volltextsuche durch alle Kampfsportbücher dieser Welt durchführen. Dennoch habe ich mich entschieden, den Begriff in dieses Buch aufzunehmen, denn mit ihm ist ein sehr wichtiges Konzept verbunden.
-
 ## Definition
 
 Bunkai lässt sich als die wahre Vorstellung dessen beschreiben, was du gerade tust.
 
 Es ist die Bedeutung einer Technik. Die Absicht hinter der Bewegung. Die Vorstellung davon, was diese Technik am Körper des Gegners bewirkt.
+
+## Herkunft
+
+Das Wort Bunkai setzt sich aus zwei japanischen Schriftzeichen (Kanji) zusammen:
+
+* 分 (bun): teilen, trennen, Minute oder Verständnis = Auseinandernehmen einer komplexen Sache.
+• 解 (kai): lösen, erklären, auflösen oder verstehen.
+
+Zusammen beschreiben die Zeichen ein tiefgründiges Studium einer komplizierten Angelegenheit durch das Auseinandernehmen und anschließende Wiederzusammenfügen.
+
+Im Karate bezeichnet Bunkai die praktische Interpretation und Anwendung der Bewegungen einer Kata mit einem Trainingspartner.
+
+Dabei werden die einzelnen Bewegungen untersucht und auf mögliche Anwendungen in der Selbstverteidigung übertragen. Ein vermeintlicher Block kann beispielsweise auch als Hebel, Wurf oder andere Technik verstanden werden.
+
+Ziel ist es, die Bedeutung der Kata zu verstehen und ihre Bewegungen in konkrete Handlungsmöglichkeiten zu übersetzen.
 
 ### Ohne Bunkai
 
@@ -22,7 +31,7 @@ In diesem Verständnis trainieren viele Anfänger. Sie lernen zunächst die rein
 
 Der Fauststoß wird ausgeführt, weil der Trainer gesagt hat, dass man den Arm so bewegen soll.
 
-Die Technik besitzt Form, aber noch keine Bedeutung.
+Die Technik besitzt Form, aber noch keine Bedeutung. Dieses oberflächliche Level heisst Omote (表).
 
 ### Mit Bunkai
 
@@ -42,9 +51,11 @@ Man versteht:
 * Welche Reaktion beim Gegner wahrscheinlich ist.
 * Welche Folgetechniken sich dadurch ergeben.
 
-Aus einer Bewegung wird eine Idee.
+Aus einer Bewegung wird eine Idee. Aus einer Idee wird eine Technik.
 
-Aus einer Idee wird eine Technik.
+Dieses tiefere Level heisst dann 	zunächst Ura (裏). Verfeinert sich das Verständnis weiter, kommt man zum 
+Honto (本当)	 genannten Level: der fundamentalen Bedeutung / Ausführung, die ihren Ursprung in der Regel in der oft  Selbstverteidigung hat.
+
 
 ## Fragen des Bunkai
 
