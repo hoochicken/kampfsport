@@ -11,7 +11,7 @@ Es ist die Bedeutung einer Technik. Die Absicht hinter der Bewegung. Die Vorstel
 Das Wort Bunkai setzt sich aus zwei japanischen Schriftzeichen (Kanji) zusammen:
 
 * 分 (bun): teilen, trennen, Minute oder Verständnis = Auseinandernehmen einer komplexen Sache.
-• 解 (kai): lösen, erklären, auflösen oder verstehen.
+* 解 (kai): lösen, erklären, auflösen oder verstehen.
 
 Zusammen beschreiben die Zeichen ein tiefgründiges Studium einer komplizierten Angelegenheit durch das Auseinandernehmen und anschließende Wiederzusammenfügen.
 
@@ -53,16 +53,16 @@ Man versteht:
 
 Aus einer Bewegung wird eine Idee. Aus einer Idee wird eine Technik.
 
-Dieses tiefere Level heisst dann 	zunächst Ura (裏). Verfeinert sich das Verständnis weiter, kommt man zum 
-Honto (本当)	 genannten Level: der fundamentalen Bedeutung / Ausführung, die ihren Ursprung in der Regel in der oft  Selbstverteidigung hat.
+Dieses tiefere Level heisst dann 	zunächst Ura (裏). 
 
+Verfeinert sich das Verständnis weiter, kommt man zum Honto (本当)	 genannten Level: der fundamentalen Bedeutung / Ausführung, die ihren Ursprung in der Regel in der oft  Selbstverteidigung hat.
 
 ## Fragen des Bunkai
 
 Bunkai beantwortet unter anderem folgende Fragen:
 
 * **Was ist die exakte Trefferfläche?**
-* **Wo und wann treffe ich den Gegner?**
+* **Wo und wann treffe ich den Gegner?** - bzgl. Timing und Lokalität
 * **Wo endet meine Bewegung?**
 * **Welche Wirkung hat die Technik?**
 * **Wie manipuliert die Technik den Gegner?**
@@ -82,9 +82,9 @@ Mir wurde bewusst, was ein Schlag an der Schläfe bewirken kann. Was ein Stoß i
 
 Von diesem Moment an war der Stock für mich keine Übung mehr.
 
-Er war eine Waffe.
+Er war eine Waffe. Er ist meine Waffe.
 
-Ich hoffe natürlich, dass ich ihn niemals auf diese Weise einsetzen muss.
+Von diesem Tag an beachte ich beim Stocktraining viel besser, Trefffläche, Drehmoment, Blickrichtung, Greifposition, Standfläche, Hüftrotation ...
 
 ## Bunkai in der Kata
 
