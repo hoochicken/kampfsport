@@ -36,11 +36,15 @@ zeige eine Technik **immer auf einer Seite**. so können sich die Trainees leich
 
 richte die Gruppe so aus, dass sie die Technik optimal sehen können. also drehst du dich mit deinem Partner entsprechend oder lässt die Gruppe auf eine Seite laufen.
 
-**karrikative fehlerübertreibung** es gibt die allgemeine Meinung, dass man Techniken niemals fehlerhaft zeigen soll. ich bin definitiv anderer Meinung. es ist so wichtig, dass man Trainees auch eine typische fehlerhafte Ausführung zeigt und genau darauf hinweist. die Trainee sind ja nicht dumm . die sind intelligent und wollen was lernen: und da gehört Verarbeitung von typischen Fehlern dazu!
+**karrikative fehlerübertreibung** kann durchaus sinnvoll sein. es bedeutet eine Technik bewusst fehlerhaft zu zeigen Punkt einen Fehler ganz bewusst herauszustellen. das kann z.B sein ein verdrehtes Handgelenk oder die falsche Stellung des Ellenbogens oder ein Stand mit durchgedrückten Knien. und dann verdeutlicht man dieses Fehlers welche Folgeprobleme daraus entstehen. anschließend zeigt man natürlich die richtige Variante und erklärt welche Probleme genau diese Variante löst 
 
-im kindertraining würde ich mir überlegen Komma ob ich den Fehler direkt zeige . denn ich könnte mir vorstellen Komma das Kinder dies anders im Kopf verarbeiten.
+diese karitative viele Übertreibung ist vergleichbar mit dem Anschauen eines Videos Punkt auf auch auf Videos sieht man Fehler und kann daraus lernen natürlich kann der Trainee auch daraus lernen wenn du ihn direkt diese Fehler und zwar noch in Übertreibung zeigst, was ist das grandios es sieht genau in Zeitlupe welchen Fehler er macht Punkt und er sieht dann auch und bekommt die Erklärung wie man diesen Fehler beheben kann das ist toll.
 
-**in der individualkorrektur** ist dies sogar extrem nützlich. denn hier kann man den Fehler. es ist **wie eine Videoaufnahme**. dadurch mit dem Training über deutlich, welchen Fehler er macht und auch wie er ihn dann beheben kann <= denn nach dem Aufzeigen des Fehlers des Trainings erfolgt natürlich das korrekte zeigen, wenn dies notwendig ist
+Es gibt die allgemeine Meinung, dass man Techniken niemals fehlerhaft zeigen soll. ich bin definitiv anderer Meinung. es ist so wichtig, dass man Trainees auch eine typische fehlerhafte Ausführung zeigt und genau darauf hinweist. die Trainee sind ja nicht dumm . die sind intelligent und wollen was lernen: und da gehört Verarbeitung von typischen Fehlern dazu!
+
+**einschränkung: Im kindertraining** würde ich mir überlegen . ob ich den Fehler direkt zeige . denn ich könnte mir vorstellen , das Kinder dies anders im Kopf verarbeiten.
+
+**in der individualkorrektur** ist die übertriebene Fehlerkarikatur sogar extrem nützlich. denn hier kann man den Fehler. es ist **wie eine Videoaufnahme**. dadurch mit dem Training über deutlich, welchen Fehler er macht und auch wie er ihn dann beheben kann <= denn nach dem Aufzeigen des Fehlers des Trainings erfolgt natürlich das korrekte zeigen, wenn dies notwendig ist
 
 das korrekte zeigen einer Technik ist selbstverständlich. die allgemeine Körpersprache des Trainers wahrgenommen. das bedeutet: 
 
@@ -55,7 +59,7 @@ ein kleiner Satz, den du auch gerne sagen kannst ist folgender
 
 "passt mal auf. wenn ich das langsam zeige, dann kann ich die Technik wirklich korrekt machen. bei der schnellen Ausführung passieren mir auch Fehler und Ungereimtheiten. haltet euch an das, was ich langsam vorzeige, denn da seht ihr alle Details ganz genau"
 
-Perfektion: keiner ist perfekt. auch du musst das nicht sein, auch wenn du ein hören Gürtel um hast. gehe mit dieser Tatsache verantwortungsbewusst um Punkt sei deinen Schülern ein gutes Vorbild an Selbsteinschätzung und Selbstwahrnehmung
+Perfektion: keiner ist perfekt. auch du musst das nicht sein, auch wenn du ein höheren Gürtel um hast. gehe mit dieser Tatsache verantwortungsbewusst um . sei deinen Schülern ein gutes Vorbild an Selbsteinschätzung und Selbstwahrnehmung
 
 sei sicher in der Unsicherheit!
 
