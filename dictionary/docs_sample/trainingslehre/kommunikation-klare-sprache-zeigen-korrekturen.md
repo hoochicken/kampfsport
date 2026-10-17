@@ -136,19 +136,19 @@ besteht kein Notstand, sondern es geht nur um die Schönheit der Technik, kann d
 
 beachte: je größer der zeitliche Abstand ist, desto schwerer ist es diese Korrektur umzusetzen. je näher die Korrektur zeitlich erfolgt, dass du einfacher wird der Trainee diese auch setzen können. 
 
-**fokussierung der korrektur**
+**fokussierung der einzelnen korrektur**
 
 um eine Korrektur umsetzen zu können, das heißt eine Technik ohne einen bestimmten Fehler ausführen zu können, braucht es Fokus. diese reichst du durch die zeitliche Nähe und durch  Kürze Korrektur. daher empfehle ich dir dringend, nur eine einzige Korrektur anzubringen, ein kleines Detail, was diese Technik anbelangt. 
 
-gerade Anfänger machen oft so viele Fehler, dass einem die Auswahl was man gerade korrigieren sollte, schwer fällt. mäßige dich trotzdem Punkt sei mit der mäßige dich trotzdem Punkt sei mit der Grundform zufrieden. das heißt: wenn der Training den Fußball setzt die falsche Trefferfläche hat instabil da steht ständig die Deckung fallen lässt und falsch atmet, so korrigiere das, was ihn am weitesten bringt. auf der anderen Seite hast du ein Mensch, von dem du nicht weißt, wie geil oder wie beschissen sein Tag war. gehe stets liebevoll mit dem anderen um, gib ihm Wertschätzung und Zeit.
+gerade Anfänger machen oft so viele Fehler, dass einem die Auswahl was man gerade korrigieren sollte, schwer fällt. mäßige dich trotzdem . sei mit der mäßige dich trotzdem . sei mit der Grundform zufrieden. das heißt: wenn der Training den Fußball setzt die falsche Trefferfläche hat instabil da steht ständig die Deckung fallen lässt und falsch atmet, so korrigiere das, was ihn am weitesten bringt. denn: auf der anderen Seite hast du ein Mensch, von dem du nicht weißt, wie geil oder wie beschissen sein Tag war. gehe stets liebevoll mit dem anderen um, gib ihm Wertschätzung und Zeit.
 
 hier zwei verdeutlichen die Beispiele
 
-korrektur a la so nicht: oh Mann das habe ich dir doch jetzt schon zehnmal gesagt du musst den rechten Fuß nach vorne setzen wegen der Gewichtsverteilung und dann schau mal hier lang hier etwas beherzt dazu, dann kannst du mehr Druck aufüben das ganze passiert übrigens ohne Kraft aber wenn man natürlich die Hüfte nicht so gut eindreht dann kann das nichts werden weil du so leicht ist musst du auf deine Hüfte achten schau hier jetzt hast du wieder den Schritt vergessen behalte dabei den Gegner im Auge wenn du immer rumguckst verfliegt dein Fokus schon wieder alles falsch
+korrektur a la so nicht: oh Mann das habe ich dir doch jetzt schon zehnmal gesagt du musst den rechten Fuß nach vorne setzen wegen der Gewichtsverteilung und dann schau mal hier lang hier etwas beherzt dazu, dann kannst du mehr Druck aufüben das ganze passiert übrigens ohne Kraft aber wenn man natürlich die Hüfte nicht so gut eindreht dann kann das nichts werden weil du so leicht ist musst du auf deine Hüfte achten schau hier jetzt hast du wieder den Schritt vergessen behalte dabei den Gegner im Auge wenn du immer rumguckst verfliegt dein Fokus ... NEIN, schon wieder alles falsch
 
 motivierende Korrektur, genau so (oder so ähnlich): das sieht schon super aus. setze den linken Fuß nach vorne während des Schlages . genau gleichzeitig. ja genauso. dann hast du viel mehr Kraft. super gemacht. genauso weiter
 
-wenn ihr aufgepasst habt, dann ist das ein **Shit-Sandwich**. das heißt: ein Lob dann die Korrektur, dann wieder Lob.
+wenn ihr ganz genau aufgepasst habt, dann ist das ein **Shit-Sandwich**. das heißt: ein Lob dann die Korrektur, dann wieder Lob.
 
 alle Korrektur so ausnehmen wichtig ist, was diese Aufzählung noch mal das wichtigste für dich zusammen:
 
@@ -158,6 +158,20 @@ alle Korrektur so ausnehmen wichtig ist, was diese Aufzählung noch mal das wich
 * immer motivierend
 
 Motivation und Wertschätzung sind dein Werkzeug und den Trainee zu Spaß zu verhelfen und ihn zu Leistungen anzuspornen.
+
+**fokussierung deiner korrektur während dr trainingseinheit**
+
+was für die einzelne Korrektur gilt, gilt auch für die globale Korrektur innerhalb einer Trainingseinheit hin zu einem Trainee . 
+
+wenn du einen Trainee hast, der Anfänger ist , so wird er sehr viele Fehler machen. beschränke Dich auf ein bis zwei Fehler während des gesamten der gesamten Trainingseinheit. das heißt: korrigiere Anspannung des Handgelenks (damit er sich nicht verletzt) und den Stand .
+
+gerne kannst Du das dem Jamie auch genauso sagen: fokussiere dich heute auf deinen stand =>  stehe bisschen mit den Knien gebeugt . damit weiß der Trainee genau, worauf er achten muss in diesem Training
+
+mach nicht so viele Baustellen auf: korrigiere nicht den Stand die Handhaltung das fallen die Kopfhaltung die Hüftbewegung die Rotation der Hüfte die Rotation des Körpers die Idee des kampfdreiecks und das Prinzip des Hara. das ist einfach zu viel.
+
+**gleichnis: bällebad**: zu trainieren ist es, wie 100 Bälle zu fangen. am Anfang fängt man einen Ball Punkt über diesen einen Ball freut man sich, man ist Anfänger und kennt vielleicht auch nur den einen Ball Punkt als Trainer ist es deine Aufgabe zu sagen du da da ist ein grüner Ball. kannst du den bitte auch fangen Punkt und der Training wird empfangen. natürlich weißt du dass der 100 Bälle sind wenn du den Trainee aber sagst dass du ein gelber grüner moosgrüner lila blass blauer blauer Violetta lilafarbener und ultravioletta Ball ist, die alle ganz ganz wichtig sind, so wird er den Fokus verlieren und wahrscheinlich keinen einzigen Ball mehr fangen. stell dir mal vor, wie das ist, wenn dir jedes mal jemand sagt dass du den braunen Ball nicht gefangen hast oder den besenball oder das zitronengelbe Bällchen vergessen hast. das ist jedes Mal ein kleiner Vorwurf, dass er etwas vergessen hat, was er eigentlich gar nicht vergessen konnte, was weil er es noch gar nicht wusste. das führt zu einer extrem frustrierenden Situation. ein ständiges: Nein zu hören, weil man 98 Bälle nicht gefallen hat lass ihn wie ein Kind lernen: super du hast den weißen Ball gefangen da ist ein grüner Ball jetzt hast du den Grünen Ball gefangen achte jetzt auf den weißen und den Grünen Ball. seid ihr bewusst: du bist der Trainer und du kennst alle 100 Bälle und du kennst alle Farben und Größen dieser 100 Bälle Punkt und deshalb kannst du auch sofort sehen, welchen Ball der Training als nächstes fangen sollte damit er besser wird ich weiß das ist hart: in deinem Kopf ist eine Technik, die zu 100% funktioniert wenn man 100% der Anweisungen befolgt. diese 100% Anweisung sind aber die 100 Bälle. du wirst dich der Training kann sich nur von Ball zu Ball fortbewegen. aber da du ein guter Trainer bist weiß ich, dass du das schaffen wirst
+
+du darfst während des Trainings auch mal entspannen. atme tief aus Punkt betrachte dir die Fehler des Trainings und nimm sie für die nächste Trainingseinheit mit Punkt vielleicht kannst du eine kleine Vorübung dazu machen die genau darauf abgestimmt ist. du musst nicht alles jetzt und gleich korrigieren. das Leben ist lang und du hast viel Zeit
 
 **auf das trainingslevel abgestimmt**
 
@@ -169,7 +183,7 @@ es gibt einen Fallstrick bei Anfängern. du als Trainer siehst so viele Fehler, 
 
 was passiert, wenn ein trainer einen Anfänger auf die 100-prozentige feinform trimmen möchtest: der Anfänger wird überladen mit Korrektur. der Fuß wird korrigiert die Trefferfläche wird korrigiert die Haltung des Armes die Körperhaltung, die Gewichtsverteilung . 
 
-der Trainer korrigiert die Gewichtsverteilung , und der Trainee ist stolz, dass er das geschafft hat. kaum hat er das gemacht erklärt der Jenner dass die Haltung des Handgelenks schlecht ist Punkt also korrigiert er das der Training ist dann ganz glücklich dass er die beiden Sachen beherzigt hat, und wird beim nächsten Mal mit fünf anderen Fehlern konfrontiert. er er hört niemals: das war gut Punkt du hast dich weiterentwickelt. Mal wenn der Trainer korrigiert, denkt der  Trainee. ich mache einen neuen Fehler super super : er bringt den begeisterungspunkten in den Augen the strangers zum Sterben. die Lippen werden immer verkniffener, die Haltung unentspannter es macht sich eine Art Angst in Kombination mit genervt halt breit der Trainer schafft es so erfolgreich, den Trainee hundertprozentig zu frustrieren. daher mein ganz heißer Tipp: lass es gut sein hat die Technik oft wiederholt, und hat dabei ein bis zwei Korrekturen umsetzen können. das ist super. das reicht vollkommen aus, um Stück für Stück besser zu werden 
+der Trainer korrigiert die Gewichtsverteilung , und der Trainee ist stolz, dass er das geschafft hat. kaum hat er das gemacht erklärt der Jenner dass die Haltung des Handgelenks schlecht ist Punkt also korrigiert er das der Training ist dann ganz glücklich dass er die beiden Sachen beherzigt hat, und wird beim nächsten Mal mit fünf anderen Fehlern konfrontiert. er er hört niemals: das war gut . du hast dich weiterentwickelt. Mal wenn der Trainer korrigiert, denkt der  Trainee. ich mache einen neuen Fehler super super : er bringt den begeisterungspunkten in den Augen the strangers zum Sterben. die Lippen werden immer verkniffener, die Haltung unentspannter es macht sich eine Art Angst in Kombination mit genervt halt breit der Trainer schafft es so erfolgreich, den Trainee hundertprozentig zu frustrieren. daher mein ganz heißer Tipp: lass es gut sein hat die Technik oft wiederholt, und hat dabei ein bis zwei Korrekturen umsetzen können. das ist super. das reicht vollkommen aus, um Stück für Stück besser zu werden 
 
 okay, du hast den Training gefragt und er hat gesagt, ja er möchte korrigiert werden. ein Trainee bitte nicht auf den Kopf Zusagen: ich bin gerade sowas von frustriert, weil du tausend Sachen an mir kritisierst, ich kann nicht mehr
 
@@ -189,6 +203,27 @@ verwende individualkorrektur, wenn es für den Trainee stimmt und beachte immer,
 warum stellt eine Korrektur Wertschätzung da? weil der Trainee gerade Aufmerksamkeiten kommt und Zeit geschenkt bekommt Zeit die nur für ihn reserviert ist 
 
 in unserer hektischen Zeit kann es oft vorkommen dass die Menschlichkeit. mit einem netten Wort und einem Lohn, kannst du jemandes Tag oder sogar Woche . 
+
+**Trainingsflow vs. Korrektur**
+
+das ganze muss natürlich sich die Waage halten mit dem trainingsflow. 
+
+zu viel (individual)korrektur zerstört den trainingsflow, den Spaß und damit die Motivation der Trainees. 
+
+sei dir immer bewusst: der beste Trainer den der Trainee hat, ist der Partner, mit dem er gerade trainiert. der bekommt jede Technik mit und kann sofort Rückmeldung geben. ist es ein erfahrener Partner, wird der dem Trainee unglaublich wertvolle Hinweise geben. 
+
+zwei Trainees in einer Gruppe bilden ein Pärchen. sie korrigieren sich gegenseitig und helfen sich einander, motivieren sich, bauen Spaß auf. 
+
+ verlass dich auf den manchmal wenn du einen Trainee z.B sehr magst, weil er oder sie sehr talentiert ist und du ihn möglichst vielen Wissen mitgeben möchtest: lass ihm Zeit füe:
+
+* Wiederholungen zu machen
+* Fehler zu machen
+* Fehler selbst zu finden
+* Lösungen selbst zu erarbeiten 
+
+der Trainee lernte durch wesentlich mehr, als wenn er von außen(extremsisch irgendwelche Anweisungen bekommt, wie er das machen soll Punkt ich sage nicht dass du nicht korrigieren sollst. aber es ist sinnvoll die Training ist auch mal machen zu lassen
+
+dies trägt letztendlich dazu bei dass sie motiviert bleiben und dass sie in deiner Trainingspuppe bleiben . (was wiederum den Vorteil hat, dass sie dir weiterhin Mitgliedsbeitrag zahlen werden) sowohl aus didaktischer wie aus finanzieller Hinsicht: halte dich mit Korrekturen zurück.
 
 **gruppenkorrektur**
 
