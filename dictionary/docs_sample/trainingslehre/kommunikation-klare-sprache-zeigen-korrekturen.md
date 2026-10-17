@@ -1,4 +1,4 @@
-# Kommunikation und Flow
+# Kommunikation, Fehlerkorrektur und Flow 
 
 wenn Du jemand anderen etwas beibringen willst, so musst du mir irgendwie vermitteln, was er machen soll. und dies funktioniert über Kommunikation Punkt das heißt über den Austausch von Informationen. diese Informationen können 
 
