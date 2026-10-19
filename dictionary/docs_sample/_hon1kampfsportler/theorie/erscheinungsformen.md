@@ -27,12 +27,25 @@ gerade beim Training stößt man da an Schwierigkeiten. einerseits möchte man w
 
 Änderungen Spielregeln es gibt keine Spielregeln vorwiederholungszahl, bei hochstressabrufbar
 
+## Ernstfall- und Berufskampf
+
+Menschen, die aufgrund ihres Berufs kämpfen müssen, fallen in diese Gruppe. Es betrifft Berufe wie:
+
+* Soldaten, weil Krieg
+* 
+
+Diesen Fall betrachte ich als eigene Sparte.
+
+(Selbstverteidigung hingegen ist ein zufälliger Ernstfall, bei dem es primär um Verteidigung geht.) 
+
+Assassinen
+
 ## Kampfkunst
 
 
 ## Kampfsport
 
 
-## Ernstfall- und Berufskampf
+
 
 
