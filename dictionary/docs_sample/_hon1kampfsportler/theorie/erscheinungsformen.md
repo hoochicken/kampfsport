@@ -32,7 +32,15 @@ gerade beim Training stößt man da an Schwierigkeiten. einerseits möchte man w
 Menschen, die aufgrund ihres Berufs kämpfen müssen, fallen in diese Gruppe. Es betrifft Berufe wie:
 
 * Soldaten, weil Krieg
-* 
+* Polizei, weil gefährliche Menschen
+* Schutzkräfte, wie Bodyguards, Türsteher
+* Auftragsmörder
+* sonstige Menschen, die berufsbedingt mit aggressiven Personen zu tun haben
+
+
+
+
+
 
 Diesen Fall betrachte ich als eigene Sparte.
 
