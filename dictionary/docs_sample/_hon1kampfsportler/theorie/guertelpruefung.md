@@ -53,7 +53,7 @@ gerade in diesen drei Kampfsportarten finden sich sehr effektive Techniken und S
 
 dies kann für den Trainer unter Umständen sehr herausfordernd sein. denn einerseits möchte man effektive Techniken im Unterricht beibringen Punkt andererseits werden später traditionelle Techniken abgefragt. hier entsteht eine ungute Schere zwischen Prüfungsordnung und realer Welt. jedem Trainer, verbandsinhaber etc kann ich nur ans Herz legen, sich rechtzeitig mit der Anpassung der Prüfungsordnung auseinanderzusetzen und sie auf aktuelle Gegebenheiten anzupassen.
 
-**beispiel**: als wir zu Trainer habe ich tatsächlich das Problem, dass ich guten Gewissens nicht mehr traditionelle Techniken unterrichten kann. es ist Kampfkunst. in der Praxis fällt es zumindest mir selbst sehr schwer die Techniken angemessen umzusetzen. für meine Schüler möchte ich, dass sie wirkungsvolle Techniken haben, die sie flexibel und spontan einsetzen können. so stehen wir zwischen praktisch und können und traditionellen Forderungen in der Prüfung.
+**beispiel**: als wir zu Trainer habe ich tatsächlich das Problem, dass ich guten Gewissens nicht mehr traditionelle Techniken unterrichten kann. es ist Kampfkunst. in der Praxis fällt es zumindest mir selbst sehr schwer die Techniken angemessen umzusetzen. für meine Schüler möchte ich, dass sie wirkungsvolle Techniken haben, die sie flexibel und spontan einsetzen können. so stehen wir zwischen praktischem Können und traditionellen Forderungen in der Prüfung.
 
 ## Herausforderung und Weiterentwicklung
 
