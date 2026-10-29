@@ -18,11 +18,30 @@ dies führt dann auch zu Schamgefühlen, die dann noch zu der Unsicherheit dazu 
 
 dass du wie ein Anfänger aussiehst, ist gut. denn die anderen realisieren sofort, dass sie auf die Rücksicht nehmen und dir vielleicht Dinge mehr erklären anders auszusehen ist also in Wirklichkeit kein Nachteil. es ist ein Vorteil der dir hilft in dieser Gruppe angenommen zu werden.
 
-außerdem ermöglicht es dir gleich eine Art Gruppentest. wie gehen sie mit der um Punkt wie gehen sie mit jemanden neuen um. sind sie aggressiv, hochmütig oder heißen sie dich willkommen, erklären dir nicht Dinge helfen dir die Umkleide zu finden und die Toilette, unterstützen dich.
+## gruppen-dynamiken
 
-**schlechtes beispiel**: eine Schülerin hatte Angst zu uns ins Training zu kommen. sie hatte vorher woanders trainiert Punkt dort war man sehr schlecht mit der umgegangen, sie ist ja auch nur eine Frau. dort wurde sehr auf kämpfen, Sparring und anführungszeichenleistung (was auch immer die unter Leistung verstehen Wert) gelegt. sie ist da vollkommen untergegangen und unfreundlich ist das allemal
+schau dir die Gruppe an. deine ersten Trainings sind auch eine Art gruppentest. wie gehen sie mit der um 
 
-**gutes beispiel**: ich war ganz neu in der Gruppe. der Trainer hat sich sofort meinen Namen gemerkt, und habe mich direkt angesprochen. selbst nach dem Training kannte er meinen Namen noch. so kann ich mir wertgeschätzt vor. meine Trainingspartner haben mich so unterstützt im Erlernen der schwierigen jiu-jitsu- Techniken von der ersten Stunde an vielen herzlichen Dank, nur mit euch ist das möglich, dass wir so weit kommen
+* wie gehen sie mit jemanden neuen um?
+* sind sie aggressiv, hochmütig?
+* heißen sie dich willkomme? 
+* erklären aie dir Dinge?
+* helfen dir, die Umkleide zu finden und die Toilette
+* unterstützen dich?
+
+**schlechtes beispiel**: eine Schülerin hatte Angst zu uns ins Training zu kommen. sie hatte vorher woanders trainiert . dort war man sehr schlecht mit der umgegangen, sie ist ja auch nur eine Frau ... dort wurde sehr auf kämpfen, Sparring und "leistung" (was auch immer die unter Leistung verstehen) Wert gelegt. sie ist da vollkommen untergegangen und unfreundlich ist das allemal
+
+**gutes beispiel**: ich war ganz neu in der Gruppe. der Trainer hat sich sofort meinen Namen gemerkt, und habe mich direkt angesprochen. selbst nach dem Training kannte er meinen Namen noch. so kann ich mir wertgeschätzt vor. meine Trainingspartner haben mich so unterstützt im Erlernen der schwierigen jiu-jitsu- Techniken von der ersten Stunde an vielen herzlichen Dank, nur mit euch ist das möglich, dass wir so weit kommen!
+
+**was tun, wenn Gruppe biestig**: in eine biestige Gruppe reinzukommen, ist als Außenstehender schwierig. wenn eine Kultur dermaßen verhakt ist und der Trainer da auch noch mitmacht, ist es schwer als Anfänger. denk daran: du hast immer die Möglichkeit einfach zu gehen. wenn sie dich nicht haben wollen, schau dich lieber in einem anderen Dojo um . es gibt auch nette Menschen auf der Welt . du musst deine Zeit nicht mit Idioten verschwenden, die sich selbst zu Brei hauen wollen
+
+ich wünsche dir, dass die Gruppe in der du kommst, nett ist. dass sie dich freundlich aufnehmen und dich an die Hand nehmen. wenn du unsicher bist, lege dir Fragen zurecht, wo du die du direkt fragen kannst, z.B
+
+* wo ist die Umkleide 
+* wo ist die Toilette 
+* ich bin mir noch unsicher mit dem fallen, wie mache ich das ? ich will gesund bleiben und mich nicht verletzen. 
+
+lerne deine Unsicherheiten kennen und formuliere sie. denn manche Menschen erkennen Unsicherheiten nicht. und du selbst vielleicht auch nicht. indem du sie dir bewusst machst und die Leute direkt ansprichst, kannst du dir helfen lassen
 
 ## erfahrung hilft
 
