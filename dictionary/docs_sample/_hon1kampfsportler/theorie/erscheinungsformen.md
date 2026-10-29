@@ -90,13 +90,13 @@ Wenn du in einer solchen Sparte arbeitest: Es ist durchaus ratsam, sich einer ps
 
 (... nicht ganz. Nach der Krebsdiagnose habe ich psychologische Betreuung in Anspruch genommen von einer Fachperson. Und das war auch gut so.)
 
-## Kampfkunst
-
-
-
 ## Kampfsport
 
+Kampfsport ist die spielerische Beschäftigung mit dem Thema Kampf auf Basis fester Regeln. die Kampfregeln dienen dazu, die Teilnehmer vor schlimmen Verletzungen zu schützen. 
 
+## Kampfkunst
+
+Bewahrung der Tradition
 
 
 
