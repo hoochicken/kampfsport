@@ -71,30 +71,22 @@ Ein höherer Schüler oder Meister verdient Respekt. Aber niemand sollte unantas
 Vorsicht ist geboten, wenn folgende Dinge im Verein passieren:
 
 * **Der Meister hat immer recht:** Auch dann, wenn er offensichtlich unrecht hat.
-
 * **Kritik ist unerwünscht:** Niemand widerspricht dem Meister.
-
 * **Erklärungen sind zu einfach:** Alles klingt logisch, aber zu glatt. Man merkt, dass es nicht so einfach sein kann.
-
 * **„Bei uns sind nur liebe Leute“:** Solche Aussagen können echte Probleme verdecken.
-
 * **Keine Entschuldigung:** Der Meister entschuldigt sich nie. Manchmal schiebt er anderen die Schuld zu, obwohl er selbst einen Fehler gemacht hat.
-
 * **Selbstdarstellung:** Der Meister erzählt ständig Geschichten darüber, wie großartig er ist. In diesen Geschichten machen immer die anderen Fehler.
-
 * **Schüler verschwinden plötzlich:** Nette Menschen verlassen das Dojo grußlos. Danach werden seltsame Geschichten über sie erzählt.
-
 * **Kostenlose Arbeit wird erwartet:** Hilfstrainer arbeiten selbstverständlich mit, ohne Wertschätzung oder angemessenen Ausgleich.
-
 * **Nachahmung:** Schüler übernehmen Sprache, Witze, Eigenheiten oder sogar Fehler des Meisters, um ihm näher zu sein.
-
 * **Offensichtliche Ungerechtigkeiten:** Dinge laufen sichtbar falsch, aber die Gruppe verteidigt sie trotzdem.
 
-**Hinweis:**
-Ich war genau einmal in so einem Verein. Ich war damals Anfang 20 und habe bei vielen Dingen weggesehen.
+**Beispiel 1**: Ich war genau einmal in so einem Verein. Ich war damals Anfang 20 und habe bei vielen Dingen weggesehen.
 
 Selbst als der Trainer mich sexuell belästigt hat, habe ich versucht, dort weiterzutrainieren. Ich war schon zu tief drin.
 
 Geh einen Schritt zurück und schau dir genau an, mit wem du es zu tun hast.
 
 Es sind alles nur Menschen. Und Menschen haben Fehler.
+
+**Beispiel 2**: der Trainer meines Trainers war mal zu Besuch. er hat dabei erzählt, dass er sein Dojo aufgelöst hat, weil der Staat zu viel Geld verlange. eher (über 60 Jahre alt) meinte er ist zu jung wie man sich fühlt und würde gerne eine 30-jährige Freundin haben. dass er japanisch könne und dass er aus einem Lehrgang weggegangen sei, weil die die Schüler und die anderen Referenten so schlecht gewesen sein, er aber so gut, 5000 EUR referentengeld habe er ausgeschlagen, so viel wert ist ihm seine Kampfsportart! außerdem sei die japanische Urkunde gekauft gewesen . er ist ja so ein toller, guter Mensch! er macht nie Fehler! alle anderen sind kacke! diese selbstbeweihung nahm zweieinhalb Stunden in Anspruch! 
