@@ -59,7 +59,7 @@ nach dem Training
 * Schleusen dich wieder in die Umkleide und die Dusche
 * erklären dir, dass sie sich freuen, dich wiederzusehen
 
-**Tipp für dich als leitender** (Vereinsvorstand, Kampfsportschule Inhaber): Dies ist ein bisschen eine Gebrauchsanweisung, wie du neue Mitglieder dich heimisch fühlen lässt. So werden  Neuankömmlinge in ihrer Unsicherheit gut aufgefangen, fühlen sich wohl und werden auch (u. a. zahlendes) Mitglied. Durch ein nettes, rücksichtsvolles Miteinander! 
+**Tipp für dich als Leitender** (Vereinsvorstand, Kampfsportschule Inhaber): Dies ist ein bisschen eine Gebrauchsanweisung, wie du neue Mitglieder dich heimisch fühlen lässt. So werden  Neuankömmlinge in ihrer Unsicherheit gut aufgefangen, fühlen sich wohl und werden auch (u. a. zahlendes) Mitglied. Durch ein nettes, rücksichtsvolles Miteinander! 
 
 ## Biestige Cruppe
 
@@ -71,9 +71,11 @@ Denk daran: Du hast immer die Möglichkeit, einfach zu gehen. Wenn sie dich nich
 
 Ich wünsche dir, dass die Gruppe, in die du kommst, nett ist, dich freundlich aufnimmt und dich an die Hand nimmt.
 
+## Zwei Mal schauen
+
 Wenn du unsicher bist, kannst du selbst einiges tun, um leichter in der Gruppe anzukommen.
 
-**Zwei mal testen**: gib dem Training eine Chance. Es kann sein, dass beim ersten Mal ein fauler Apfel dabei war (also jemand, der dich schlecht behandelt). das gibt sich vielleicht, wenn du zwei oder dreimal zum Probetraining kommst. Dann kannst du die Gruppe genauer einschätzen. 
+**Zwei mal testen**: gib dem Training eine Chance. Es kann sein, dass beim ersten Mal ein fauler Apfel dabei war (also jemand, der dich schlecht behandelt). Das gibt sich vielleicht, wenn du zwei oder dreimal zum Probetraining kommst. Dann kannst du die Gruppe genauer einschätzen. 
 
 Damit kannst du gegebenenfalls fehlerhafte erste Eindrücke korrigieren. ielleicht ist die Gruppe viel netter, als der erste Eindruck verheisst ... oder umgekehrt. 
 
