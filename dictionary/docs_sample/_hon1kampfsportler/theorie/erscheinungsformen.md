@@ -74,15 +74,24 @@ Menschen, die aufgrund ihres Berufs kämpfen müssen, fallen in diese Gruppe. Es
 * Auftragsmörder*
 * sonstige Menschen, die berufsbedingt mit aggressiven Personen zu tun haben
 
-*) Bizarr, nicht? Das Auftragsmörder hier erwähnt werden! nur weil es uns nicht passt, dass es Menschen dieser Art gibt, heißt das nicht, dass man diese Art von Berufen totschweigen darf. Mir passt das auch nicht, dass es Menschen gibt diese Art. aber es gibt sie nun mal, und man muss sie angemessen erwähnen.
+*) Bizarr, nicht? Das Auftragsmörder hier erwähnt werden! Nur weil es uns nicht passt, dass es Menschen dieser Art gibt, heißt das nicht, dass man diese Art von Berufen totschweigen darf. Mir passt das auch nicht, dass es berufsmässige Mörder gibt. Aber es gibt sie nun mal, und man muss sie angemessen erwähnen.
 
-Diesen Fall betrachte ich als eigene Sparte.
+Den Fall der Ernstfall und Berufskämpfer betrachte ich als eigene Sparte. Was ist da der Unterschied zur Selbstverteidigung?
 
-(Selbstverteidigung hingegen ist ein zufälliger Ernstfall, bei dem es primär um Verteidigung geht.) 
+**Selbstverteidigung** ist ein zufälliger Ernstfall, bei dem es primär um Verteidigung geht. **Ernstfallkämpfer** hingegen sind Personen, die sich von Berufswegen mit körperlichen Auseinandersetzungen auseinandersetzen. Sie genießen tagtägliches Training, sich gegen andere Personen zur Wehr zu setzen bzw. diese außer Gefecht zu setzen und zu töten.
 
-Assassinen
+Für uns westliche Maden im Speck, die wir einen Krieg nie kennengelernt haben, mag dies weit weg erscheinen. Für ein Soldaten oder Polizisten hängt davon jedoch das blanke Überleben ab. 
+
+Menschen dieser berufsschaden trainieren viel Punkt im Laufe ihres Lebens sehen sie auch viel. viele tragen davon ein posttraumatisches Stresssyndrom hinten davon, ihr privates Leben wird nachhaltig durch schlimme Erfahrungen geprägt. Manche vertragen das erst mal besser, andere schlechte. 
+
+Wenn du in einer solchen Sparte arbeitest: Es ist durchaus ratsam, sich einer psychologischen Betreuung zu unterziehen. Die psychologischen und psychischen Herausforderungen dieser Berufe sind immens. Genauso wie du lernst, in einer körperlichen Auseinandersetzung angemessen zu reagieren, kannst du auch lernen mit psychischen Herausforderungen umzugehen. Es gibt durchaus Techniken. Lass sie dir beibringen. Somit kannst du lange seelisch gesund bleiben.
+
+<= das schreibt eine Laien, die eher wenig von dieser Berufssparte versteht und die selber keine psychologische Betreuung in Anspruch nimmt. Sei klüger als ich!
+
+(... nicht ganz. Nach der Krebsdiagnose habe ich psychologische Betreuung in Anspruch genommen von einer Fachperson. Und das war auch gut so.)
 
 ## Kampfkunst
+
 
 
 ## Kampfsport
