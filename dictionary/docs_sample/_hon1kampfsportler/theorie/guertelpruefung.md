@@ -129,7 +129,7 @@ er hat eine Abkürzung genommen aber die war nicht unbedingt gut für ihn. abges
 
 im Allgemeinen wird davon ausgegangen dass ein Schwarzgurt der höchste Gurt wäre, den man erlangen kann. mit dem Schwarzgurt wäre die Ausbildung eines kampfsportlers abgeschlossen.
 
-das ist insofern korrekt, als der schwarze Gürtel nicht mehr schwer zu werden kann. es ändert sich nur noch die streifenanzahl, und vielleicht wird irgendwann ein Absperrband daraus, oder wie auch immer die farbliche Kennzeichnung in der Kampfsportart aussieht.
+das ist insofern korrekt, als der schwarze Gürtel nicht mehr schwärzer werden kann. es ändert sich nur noch die streifenanzahl, und vielleicht wird irgendwann ein Absperrband daraus, oder wie auch immer die farbliche Kennzeichnung in der Kampfsportart aussieht.
 
 es ist insofern nicht korrekt als der Schwarzgurt einfach nur der erste Schwarzgurt ist. einen Schwarzgurt erreichen braucht etwa  fünf bis sieben Jahren in einer Kampfsportart (sage ich jetzt einfach mal so). der Weg, den du als Kampfsportler gehst, ist möglicherweise länger als nur diese sieben Jahre 
 
