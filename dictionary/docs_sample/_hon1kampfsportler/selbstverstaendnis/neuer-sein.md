@@ -1,97 +1,132 @@
-# Neu in der Gruppe
+Neu in der Gruppe
 
-neu in einer Gruppe zu sein, ist immer eine neue Erfahrung. denn man kennt die Gruppe nicht und muss die einzelnen Menschen erstmal kennenlernen . am Anfang wirkt es so als ob die Gruppe geschlossen ist und in ihrer Mechanik funktioniert.
+Neu in einer Gruppe zu sein, ist immer eine neue Erfahrung. Man kennt die Gruppe noch nicht und muss die einzelnen Menschen erst einmal kennenlernen. Am Anfang wirkt es so, als ob die Gruppe geschlossen ist und in ihrer eigenen Mechanik funktioniert.
 
-typischerweise kommt man sich erstmal vor wie ein fünftes Rad am Wagen. dieses Kapitel hilft dir dabei, mit dieser unangenehmen Situation und den damit verbundenen Unannehmlichkeiten und Unsicherheiten umzugehen
+Typischerweise kommt man sich zunächst wie das fünfte Rad am Wagen vor. Dieses Kapitel hilft dir dabei, mit dieser unangenehmen Situation und den damit verbundenen Unannehmlichkeiten und Unsicherheiten umzugehen.
 
-## die grupoe der anderen 
+Die Gruppe der anderen
 
-eine Gruppe wirkt von außen betrachtet erstmal geschlossen. dieser Eindruck wird verstärkt, wenn die Anwesenden in irgendeiner Weise eine Uniform tragen, diese als Mitglied der Gruppe kennzeichnen. die sind in der Regel die Sportklamotten, die sie anhaben. 
+Eine Gruppe wirkt von außen betrachtet erst einmal geschlossen. Dieser Eindruck wird verstärkt, wenn die Anwesenden in irgendeiner Weise eine Art Uniform tragen, die sie als Mitglieder der Gruppe kennzeichnet. In der Regel sind das die Sportklamotten, die sie anhaben.
 
-* Boxer haben kurze Höschen ein T-Shirt und Schühchen an, später dann Bandagen und Handschuhe 
-* Kickboxer sind genauso aus haben aber noch Schienbeinschoner
-* traditionelle Kampfsportler tragen sogenannte Gis einfache Anzüge aus in der Regel festem Stoff 
+- Boxer tragen kurze Hosen, ein T-Shirt und Sportschuhe, später dann Bandagen und Handschuhe.
+- Kickboxer sehen ähnlich aus, tragen aber zusätzlich Schienbeinschoner.
+- Traditionelle Kampfsportler tragen sogenannte Gis, einfache Anzüge, die in der Regel aus festem Stoff bestehen.
 
-und man selber steht da wieder Depp. man gehört nicht dazu. und alle können das sehen.
+Und man selbst steht da wie der Depp. Man gehört nicht dazu. Und alle können das sehen.
 
-dies führt dann auch zu ***Schamgefühlen**, die dann noch zu der **Unsicherheit** dazu kommen. sei ihr einfach bewusst: das ist  ganz normal! 
+Das führt dann auch zu Schamgefühlen, die noch zu der Unsicherheit hinzukommen. Sei dir einfach bewusst: Das ist ganz normal!
 
-keiner derjenigen die du da siehst hatten schon von Anfang an einen die dabei . alle sahen mal so aus wie du und alle sind dadurch gegangen. keiner von denen erwartet irgendetwas von dir, dass du perfekt bist dass du genauso aussiehst. im Gegenteil: es ist sogar sehr nützlich! 
+Keiner derjenigen, die du dort siehst, war von Anfang an dabei. Alle sahen einmal so aus wie du, und alle sind da durchgegangen. Keiner von ihnen erwartet von dir, dass du perfekt bist oder genauso aussiehst wie sie. Im Gegenteil: Es ist sogar sehr nützlich!
 
-**dass du wie ein Anfänger aussiehst, ist gut!** denn die anderen realisieren sofort, dass sie auf die **Rücksicht** nehmen und dir vielleicht Dinge mehr **erklären** anders auszusehen ist also in Wirklichkeit kein Nachteil. es ist ein Vorteil der dir hilft in dieser Gruppe angenommen zu werden.
+Dass du wie ein Anfänger aussiehst, ist gut! Denn die anderen erkennen sofort, dass sie Rücksicht auf dich nehmen und dir vielleicht Dinge ausführlicher erklären sollten. Anders auszusehen, ist also in Wirklichkeit kein Nachteil. Es ist ein Vorteil, der dir hilft, in dieser Gruppe angenommen zu werden.
 
-## gruppen"test"
+Gruppentest
 
-deine ersten Trainings sind auch eine Art gruppentest. wie gehen sie mit der um 
+Deine ersten Trainingseinheiten sind auch eine Art Gruppentest. Wie geht die Gruppe mit dir um?
 
-* wie gehen sie mit jemanden neuen um?
-* sind sie aggressiv, hochmütig?
-* heißen sie dich willkomme? 
-* erklären aie dir Dinge?
-* helfen dir, die Umkleide zu finden und die Toilette
-* unterstützen dich?
+- Wie geht sie mit jemandem um, der neu ist?
+- Sind die Mitglieder aggressiv oder hochmütig?
+- Heißen sie dich willkommen?
+- Erklären sie dir Dinge?
+- Helfen sie dir, die Umkleide und die Toilette zu finden?
+- Unterstützen sie dich?
 
-**schlechtes beispiel**: eine Schülerin hatte Angst zu uns ins Training zu kommen. sie hatte vorher woanders trainiert . dort war man sehr schlecht mit der umgegangen, sie ist ja auch nur eine Frau ... dort wurde sehr auf kämpfen, Sparring und "leistung" (was auch immer die unter Leistung verstehen) Wert gelegt. sie ist da vollkommen untergegangen und unfreundlich ist das allemal
+Schlechtes Beispiel
 
-**gutes beispiel**: ich war ganz neu in der Gruppe. der Trainer hat sich sofort meinen Namen gemerkt, und habe mich direkt angesprochen. selbst nach dem Training kannte er meinen Namen noch. so kann ich mir wertgeschätzt vor. meine Trainingspartner haben mich so unterstützt im Erlernen der schwierigen jiu-jitsu- Techniken von der ersten Stunde an vielen herzlichen Dank, nur mit euch ist das möglich, dass wir so weit kommen!
+Eine Schülerin hatte Angst, bei uns zum Training zu kommen. Sie hatte vorher woanders trainiert und war dort sehr schlecht behandelt worden. Schließlich war sie ja auch nur eine Frau. Dort wurde sehr viel Wert auf Kämpfen, Sparring und „Leistung“ gelegt – was auch immer die unter Leistung verstehen. Sie ist dabei vollkommen untergegangen. Freundlich war man dort jedenfalls nicht.
 
-**was tun, wenn Gruppe biestig**: in eine biestige Gruppe reinzukommen, ist als Außenstehender schwierig. wenn eine Kultur dermaßen verhakt ist und der Trainer da auch noch mitmacht, ist es schwer als Anfänger. denk daran: du hast immer die Möglichkeit einfach zu gehen. wenn sie dich nicht haben wollen, schau dich lieber in einem anderen Dojo um . es gibt auch nette Menschen auf der Welt . du musst deine Zeit nicht mit Idioten verschwenden, die sich selbst zu Brei hauen wollen
+Gutes Beispiel
 
-ich wünsche dir, dass die Gruppe in der du kommst, nett ist. dass sie dich freundlich aufnehmen und dich an die Hand nehmen. wenn du unsicher bist, 
+Ich war ganz neu in der Gruppe. Der Trainer hat sich sofort meinen Namen gemerkt und mich direkt angesprochen. Selbst nach dem Training kannte er meinen Namen noch. Dadurch habe ich mich wertgeschätzt gefühlt.
 
-## strategien
+Meine Trainingspartner haben mich von der ersten Stunde an beim Erlernen der schwierigen Jiu-Jitsu-Techniken unterstützt. Dafür vielen herzlichen Dank! Nur mit euch ist es möglich, dass wir so weit kommen!
 
-viele Menschen machen das natürlich, sie wissen wie man sich in eine Gruppe einfindet. für manche Menschen ist es aber eine Herausforderung. folgende massnahmen helfen dir, in einer Gruppe gut anzukommen.
+Was tun, wenn die Gruppe biestig ist?
 
-**lege dir Fragen zurecht**, z.B
+In eine biestige Gruppe hineinzukommen, ist als Außenstehender schwierig. Wenn eine Gruppenkultur dermaßen festgefahren ist und der Trainer auch noch mitmacht, ist es für Anfänger besonders schwer.
 
-* wo ist die Umkleide 
-* wo ist die Toilette 
-* ich bin mir noch unsicher mit dem fallen, wie mache ich das ? ich will gesund bleiben und mich nicht verletzen. 
+Denk daran: Du hast immer die Möglichkeit, einfach zu gehen. Wenn sie dich nicht haben wollen, schau dich lieber in einem anderen Dojo um. Es gibt auch nette Menschen auf der Welt. Du musst deine Zeit nicht mit Idioten verschwenden, die sich gegenseitig zu Brei hauen wollen.
 
-**lerne deine Unsicherheiten kennen und formuliere sie**. denn die anderen erkennen deine Unsicherheiten nicht. und du selbst vielleicht auch nicht. indem du sie dir bewusst machst und die Leute direkt ansprichst, kannst du dir helfen lassen
+Ich wünsche dir, dass die Gruppe, in die du kommst, nett ist, dich freundlich aufnimmt und dich an die Hand nimmt.
 
-**locker angehen lassen**: sei ebtsoannt, niemand erwartet etwas von Dir oder setz dich unter Druck. keine erwartet, dass du fest schlägst , dass du besonders hart bist, dass du die Kampfmaschine bist. bleibe locker, trainiere vorsichtig. 
+Wenn du unsicher bist, kannst du selbst einiges tun, um leichter in der Gruppe anzukommen.
 
-**härte zeigen .. bitte nicht!** manchmal geht man extra hart rein, weil man beweisen will dass man es in der Gruppe schafft. das kenne ich z.B von mir, ich bin dann so unsicher dass ich zu hart mache. ich sollte es besser wissen, trotzdem bin ich manchmal so unsicher, dass es mir trotzdem passiert . das ist doof und auch gefährlich. ich sage dann: "entschuldigung, das war zu hart. ich bin so nervös, dass ich gerade einfach zu hart bin. das tut mir leid . ich mache jetzt lockerer.") damit weiß der andere , dass es keine böswillige Absicht war Punkt und das ist wichtig
+Strategien
 
-**umgang mit aggressivem verhalten anderer**: aggression ist oft ein Zeichen von Unsicherheit. auch für die anderen ist ein neuer Partner eine unwägbarkeit. in ihm gehen die Fragen vor wie folgt 
+Viele Menschen wissen ganz selbstverständlich, wie man sich in eine Gruppe einfindet. Für manche ist das aber eine Herausforderung. Die folgenden Maßnahmen helfen dir, in einer Gruppe gut anzukommen.
 
-* körperlich: ist der vielleicht gefährlich?
-* kompetitiv: kann er irgendetwas besser?
-* sozial: bedroht er "meinen Platz" in der Gruppe?
+Lege dir Fragen zurecht.
 
-ein Platz in einer Gruppe, hat man sich in der Regel erarbeitet. und wenn Leute unsicher sind kann es zu komischen Phänomenen kommen. sprich dies direkt an! da helfen sätze wie
+Zum Beispiel:
 
-* direktes ansprechen, ich-botschaft: ich habe gerade Angst, das ist mir zu hart. bitte mach lockerer
-* Vorwegnahme guten Verhaltens, positive Manipulation: ich bin so froh, dass ich genau mit dir trainiere. bei dir fühle ich mich sicher und weißt du wirst auf mich acht geben
+- Wo ist die Umkleide?
+- Wo ist die Toilette?
+- Ich bin mir noch unsicher mit dem Fallen. Wie mache ich das richtig? Ich möchte gesund bleiben und mich nicht verletzen.
 
-## trainings-bewertung
+Lerne deine Unsicherheiten kennen und formuliere sie.
 
-bei den ersten Probetrainings, kannst du dir folgende Fragen stellen. diese (und andere Aspekte die der wichtig sind) helfen dir herauszufinden, ob das die richtige Gruppe für dich ist
+Denn die anderen erkennen deine Unsicherheiten nicht unbedingt. Und vielleicht sind sie dir selbst noch gar nicht bewusst. Indem du sie dir bewusst machst und die anderen direkt darauf ansprichst, kannst du dir helfen lassen.
 
-**trainer bewerten**
+Lass es locker angehen.
 
-* erklärt der Trainer viel, erklärt er zu viel, erklärt er zu wenig 
-* ruft er implizit zu Körperverletzung auf
-* ruft der impliziert zu Selbstverletzung auf 
-* inwieweit achtet der Trainer auf die Gesundheit seiner Trainees 
-* inwieweit geht er auf dich als Anfänger ein 
+Sei entspannt. Niemand erwartet etwas von dir, und du musst dich nicht unter Druck setzen. Keiner erwartet, dass du besonders fest schlägst, besonders hart bist oder eine Kampfmaschine darstellst. Bleib locker und trainiere vorsichtig.
 
-**Gruppe bewerten**
+Härte zeigen? Bitte nicht!
 
-* gehen Sie mit der freundlich um? 
-* gibt es aggressives Verhalten gegenüber dir, die auf Angst schließen lässt? 
-* heißen sie dich willkommen
-* erklären sie dir viele Dinge 
+Manchmal geht man extra hart ins Training, weil man beweisen will, dass man es in der Gruppe schafft. Das kenne ich zum Beispiel von mir selbst: Ich bin dann so unsicher, dass ich zu hart trainiere.
 
-**Trainingsraum**
+Ich sollte es eigentlich besser wissen. Trotzdem bin ich manchmal so unsicher, dass es mir immer wieder passiert. Das ist doof und auch gefährlich.
 
-* ist der Trainingsraum sicher, soweit du das beurteilen kannst? 
-* ist der Trainingsraum mit Matten ausgelegt 
-* tehen scharfe oder harte Dinge herum?
+Ich sage dann zum Beispiel:
 
-## erfahrung hilft
+„Entschuldigung, das war zu hart. Ich bin gerade so nervös, dass ich zu hart trainiere. Das tut mir leid. Ich mache jetzt lockerer.“
 
-dies triffst du unabhängig davon ob du Erfahrung hast oder nicht. wenn du Erfahrung in Kampfsport hast, wird es dir wesentlich einfacher fallen, in der Gruppe anzukommen . weil du kennst schon gruppenmechaniken, die Techniken einigermaßen . und du stehst nicht vor einem Riesenhaufen Dinge, die du lernen musst. bist du ganz neu im Kampfsport, schlagen all diese Dinge über dich zu sagen: viele neue Techniken unbekannte Leute unbekannte Gruppendynamiken unabwegbares Training. dieses Kapitel hilft dir, diese Unwägbarkeiten zu bewerten und einzuschätzen und dadurch Sicherheit in der Unsicherheit zu gewinnen
+Damit weiß der andere, dass keine böse Absicht dahintersteckt. Und das ist wichtig!
 
+Umgang mit aggressivem Verhalten anderer
+
+Aggression ist oft ein Zeichen von Unsicherheit. Auch für die anderen ist ein neuer Trainingspartner eine Unwägbarkeit. In ihnen können Fragen aufkommen wie diese:
+
+- Körperlich: Ist der vielleicht gefährlich?
+- Kompetitiv: Kann er irgendetwas besser als ich?
+- Sozial: Bedroht er meinen Platz in der Gruppe?
+
+Einen Platz in einer Gruppe hat man sich in der Regel erarbeitet. Wenn Menschen unsicher sind, kann es deshalb zu merkwürdigen Verhaltensweisen kommen.
+
+Sprich das Verhalten direkt an! Dabei können dir folgende Strategien helfen:
+
+- Direktes Ansprechen mit einer Ich-Botschaft: „Ich habe gerade Angst. Das ist mir zu hart. Bitte mach lockerer.“
+- Positives Verhalten bestärken: „Ich bin so froh, dass ich gerade mit dir trainiere. Bei dir fühle ich mich sicher und weiß, dass du auf mich Acht gibst.“
+
+Trainingsbewertung
+
+Bei den ersten Probetrainings kannst du dir folgende Fragen stellen. Diese und andere Aspekte, die dir wichtig sind, helfen dir herauszufinden, ob das die richtige Gruppe für dich ist.
+
+Den Trainer bewerten
+
+- Erklärt der Trainer viel, zu viel oder zu wenig?
+- Ruft er indirekt zu Körperverletzung auf?
+- Ruft er indirekt zur Selbstverletzung auf?
+- Inwieweit achtet der Trainer auf die Gesundheit seiner Trainees?
+- Inwieweit geht er auf dich als Anfänger ein?
+
+Die Gruppe bewerten
+
+- Gehen die Mitglieder freundlich mit dir um?
+- Gibt es aggressives Verhalten dir gegenüber, das auf Unsicherheit oder Angst schließen lässt?
+- Heißen sie dich willkommen?
+- Erklären sie dir die Dinge, die du noch nicht kennst?
+
+Den Trainingsraum bewerten
+
+- Ist der Trainingsraum sicher, soweit du das beurteilen kannst?
+- Ist der Trainingsraum mit Matten ausgelegt?
+- Stehen scharfe oder harte Gegenstände herum?
+
+Erfahrung hilft
+
+Diese Erfahrungen machst du unabhängig davon, ob du bereits Erfahrung im Kampfsport hast oder nicht.
+
+Wenn du schon Kampfsporterfahrung hast, wird es dir wesentlich leichter fallen, in einer neuen Gruppe anzukommen. Du kennst bereits die Mechanismen, die in Gruppen wirken, und bist mit einigen Techniken vertraut. Du stehst also nicht vor einem riesigen Berg von Dingen, die du erst noch lernen musst.
+
+Wenn du ganz neu im Kampfsport bist, prasseln all diese Dinge gleichzeitig auf dich ein: neue Techniken, unbekannte Menschen, unbekannte Gruppendynamiken und ein Trainingsablauf, den du noch nicht einschätzen kannst.
