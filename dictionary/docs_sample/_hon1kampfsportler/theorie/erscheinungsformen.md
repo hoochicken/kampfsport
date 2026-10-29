@@ -71,13 +71,10 @@ Menschen, die aufgrund ihres Berufs kämpfen müssen, fallen in diese Gruppe. Es
 * Soldaten, weil Krieg
 * Polizei, weil gefährliche Menschen
 * Schutzkräfte, wie Bodyguards, Türsteher
-* Auftragsmörder
+* Auftragsmörder*
 * sonstige Menschen, die berufsbedingt mit aggressiven Personen zu tun haben
 
-
-
-
-
+*) Bizarr, nicht? Das Auftragsmörder hier erwähnt werden! nur weil es uns nicht passt, dass es Menschen dieser Art gibt, heißt das nicht, dass man diese Art von Berufen totschweigen darf. Mir passt das auch nicht, dass es Menschen gibt diese Art. aber es gibt sie nun mal, und man muss sie angemessen erwähnen.
 
 Diesen Fall betrachte ich als eigene Sparte.
 
