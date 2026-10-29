@@ -1,6 +1,6 @@
-## Schüler sein
+# Schüler sein
 
-**neu**
+## Wieder Schüler, OMG!
 
 Wenn du noch zur Schule gehst, ist es für dich nichts Neues, Schüler zu sein. Wenn du aber schon älter bist, kann es ungewohnt sein, wieder in die Rolle eines Schülers zu gehen.
 
@@ -18,7 +18,7 @@ Sei nach Möglichkeit 15 Minuten vor Trainingsbeginn da. Wenn Arbeit oder Alltag
 
 **Hinweis:** Gib dennoch dein Hirn nicht ab. Sei aufmerksam und lasse dich nicht ausnutzen. Siehe dazu auch das Kapitel „Meister sein“ und den Abschnitt „Wie du einen Guru erkennst“.
 
-### Hinderliche Einstellungen
+## Hinderliche Einstellungen
 
 **„Das kann ich nicht und werde ich nie können.“**
 
@@ -31,6 +31,10 @@ Dein Gehirn arbeitet auf Höchstleistung. Es ist okay, überfordert zu sein. Je 
 Kennen heißt nicht Können.
 
 Mancher Anfänger überschätzt sich und unterschätzt die Technik. Um eine Technik sicher ausführen zu können, muss ein Mensch sie sehr oft wiederholen. Oft versteht man das erst später, wenn man mehr Erfahrung hat.
+
+um eine Technik zu erlernen braucht es eine gewisse Wiederholungszahl. ich gehe von 11.000 Wiederholungen aus . 11.000 Schläge in die Luft 11.000 hüftwürfe 11000 jab-punch-Schlagkombination, 11.000 mal Fallen 11.000 mal anders fallen. woher die Zahl 11.000 kommt, weiß ich nicht mehr, aber richte dich auf eine lange einübungszeit ein. dann kann die Technik die in Mark und Blut bzw in das Muskelgedächtnis überführt werden. wenn das Muskelgedächtnis aktiv ist hat dein Gehirn Zeit, Strategien zu arbeiten.
+
+wie kriegst du 11.000 Wiederholung zusammen? angenommen du machst die Jab-Punch-Kombination 100 mal in einem Training (das geht schnell). du trainierst zweimal die Woche, also etwa 100 Mal im Jahr dann hast du noch einem Jahr die 11.000 voll.
 
 Sei geduldig mit dir. Wichtig ist nicht, dass du eine Technik irgendwann einmal gesehen hast. Wichtig ist, dass du sie sauber und wiederholbar ausführen kannst.
 
