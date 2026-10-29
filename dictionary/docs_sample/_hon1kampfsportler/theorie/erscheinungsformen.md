@@ -1,8 +1,8 @@
 # Erscheinungsformen von Kampf(sport)
 
-Kampfsport, die Beschäftigung mit Kampf kann mehrere Hintergründe haben. für uns heute steht sicherlich der Kampfsport im Vordergrund auf spielerische Weise, auf Turnieren auf den Regeln gilt, wird in rechtssicherer Umgebung ausgetestet, wer die besseren Fertigkeiten besitzt.
+Kampf(sport), die Beschäftigung mit Kampf kann mehrere Hintergründe haben. für uns heute steht sicherlich der Sport im Vordergrund, spielerische Weise, auf Turnieren auf den Regeln gilt, wird in medizinisch und rechtssicherer Umgebung ausgetestet, wer die besseren Fertigkeiten besitzt.
 
-betrachten wir doch aber Kampfsport mal etwas globale alles ein als Beschäftigung mit Kampf Punkt und dann ergeben sich weitere erscheinungsformen Komma von denen ich die selbstverteidigung als die ursprüngliche betrachte
+betrachten wir doch aber Kampfsport mal etwas globaler als Beschäftigung mit Kampf .  dann ergeben sich weitere erscheinungsformen , von denen ich die selbstverteidigung als die ursprüngliche betrachte
 
 ## Selbstverteidigung
 
@@ -10,7 +10,23 @@ Selbstverteidigung bezeichnet die Verteidigung der eigenen Personen oder andere 
 
 der Angegriffene (das Opfer) wird mehr oder minder unvorbereitet von einer anderen Person angegriffen. diese andere Person hat böse Absichten. es geht darum, Leib und Leben zu schützen. 
 
-hier steht das Leben des Verteidiger selbst auf dem Spiel. sondern eventuell zum Ende des Lebens. entsprechend geht es bei Selbstverteidigung vor allem darum: 
+Bei der Auseinandersetzung geht es
+
+* die "Ehre", ein abgebrochener Zacken deines "Krönchens", angekratztes Ego, unangenehm
+* Hab und Gut: Umhängetasche, Portmonbaie mit Ausweis und Führerschein (was dazu führen könnte, dass der angreufer anschliessend die Adresse des Opfers kennt)
+* Vergewaltigung: das Erzwingen sexueller Handlungen. 
+* Tötung: Mord und Totschlag 
+
+je nach Schweregrad der der auseinandeesetzung, kann es unterschiedliche Folgen habe. auch wenn die Auseinandersetzung an sich in "erfolgreich" hinter sich gebracht wurde und der verteidiger überlebt hat, kann man dennoch schwere Folgeschäden davontragen. im Folgenden eine vereinfachte Darstellung einiger Folgeschäden
+
+* psychisch: PTSD (post-traumatisches Stress-Sydrom) mit Angstzuständen, Flashbacks, Panikattacken
+* körperlich: leichte körperliche Verletzungen wie Abschürfungen, bis hin zu schweren Brüchen und hirntraumata und anschließender schwerer körperlicher Behinderung
+* juristisch: kein Schmerzensgeld, Inhaftierung aufgrund notwehrexzess
+* viele dinge, die ich hier noch gae nicht bedacht habe
+
+
+
+entsprechend geht es bei Selbstverteidigung vor allem darum: 
 
 * Gefahren im Voraus erkennen und meiden
 * verbale Deeskalation
