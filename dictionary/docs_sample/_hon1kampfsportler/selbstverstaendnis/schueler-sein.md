@@ -18,10 +18,6 @@ Sei nach Möglichkeit 15 Minuten vor Trainingsbeginn da. Wenn Arbeit oder Alltag
 
 **Hinweis:** Gib dennoch dein Hirn nicht ab. Sei aufmerksam und lasse dich nicht ausnutzen. Siehe dazu auch das Kapitel „Meister sein“ und den Abschnitt „Wie du einen Guru erkennst“.
 
-## Neu in der Gruppe
-
-
-
 ## Hinderliche Einstellungen
 
 **„Das kann ich nicht und werde ich nie können.“**
