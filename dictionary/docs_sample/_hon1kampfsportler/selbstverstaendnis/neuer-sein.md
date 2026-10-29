@@ -33,9 +33,33 @@ Deine ersten Trainingseinheiten sind auch eine Art Gruppentest. Wie geht die Gru
 
 **Schlechtes Beispiel**: Eine Schülerin hatte Angst, bei uns zum Training zu kommen. Sie hatte vorher woanders trainiert und war dort sehr schlecht behandelt worden. Schließlich war sie ja auch nur eine Frau. Dort wurde sehr viel Wert auf Kämpfen, Sparring und „Leistung“ gelegt – was auch immer die unter Leistung verstehen. Sie ist dabei vollkommen untergegangen. Freundlich war man dort jedenfalls nicht.
 
-**Gutes Beispiel**: Ich war ganz neu in der Gruppe. Der Trainer hat sich sofort meinen Namen gemerkt und mich direkt angesprochen. Selbst nach dem Training kannte er meinen Namen noch. Dadurch habe ich mich wertgeschätzt gefühlt.
+**Gutes Beispiel**: Ich war ganz neu in der Gruppe. Total unsicher war ich, und das habe ich nicht einmal gemerkt. Der Trainer hat sich sofort meinen Namen gemerkt und mich direkt angesprochen. Selbst nach dem Training kannte er meinen Namen noch. Dadurch habe ich mich wertgeschätzt gefühlt.
 
 Meine Trainingspartner haben mich von der ersten Stunde an beim Erlernen der schwierigen Jiu-Jitsu-Techniken unterstützt. Dafür vielen herzlichen Dank! Nur mit euch ist es möglich, dass wir so weit kommen!
+
+## Die ideale Gruppe
+
+Die ideale Gruppe besteht aus netten Mitgliedern. 
+
+Vor dem Training: 
+
+* Sie grüßen dich, geben dir die Hand 
+* sie fragen dich, was du bisher gemacht hast. 
+* sie helfen dir, die Räumlichkeiten kennenzulernen: Umkleide, Toilette Dusche, und den Trainingsraum. 
+
+während des trainings: 
+
+* kümmern sich um dich
+* erklären dir Techniken
+* sie geben dir Tipps 
+* helfen dir beim Verstehen von "Ritualen" enden, die bei Verbeugung in traditionellen Kampfsportarten
+
+nach dem Training 
+
+* Schleusen dich wieder in die Umkleide und die Dusche
+* erklären dir, dass sie sich freuen, dich wiederzusehen
+
+**Tipp für dich als leitender** (Vereinsvorstand, Kampfsportschule Inhaber): Dies ist ein bisschen eine Gebrauchsanweisung, wie du neue Mitglieder dich heimisch fühlen lässt. So werden  Neuankömmlinge in ihrer Unsicherheit gut aufgefangen, fühlen sich wohl und werden auch (u. a. zahlendes) Mitglied. Durch ein nettes, rücksichtsvolles Miteinander! 
 
 ## Biestige Cruppe
 
