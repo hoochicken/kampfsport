@@ -1,5 +1,7 @@
 ## Schüler sein
 
+**neu**
+
 Wenn du noch zur Schule gehst, ist es für dich nichts Neues, Schüler zu sein. Wenn du aber schon älter bist, kann es ungewohnt sein, wieder in die Rolle eines Schülers zu gehen.
 
 Schüler sein kann unangenehm sein. Man bekommt etwas beigebracht, und das bedeutet gleichzeitig: Man konnte oder wusste etwas vorher noch nicht. Mach dir darüber keine Gedanken. Das geht allen so.
