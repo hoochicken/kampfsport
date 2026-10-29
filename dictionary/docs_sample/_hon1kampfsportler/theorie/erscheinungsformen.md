@@ -12,7 +12,7 @@ der Angegriffene (das Opfer) wird mehr oder minder unvorbereitet von einer ander
 
 Bei der Auseinandersetzung geht es
 
-* die "Ehre", ein abgebrochener Zacken deines "Krönchens", angekratztes Ego, unangenehm und Kacke
+* die "Ehre", ein abgebrochener Zacken deines "Krönchens", angekratztes Ego, unangenehm und Kacke => jo, mai!
 * Hab und Gut: Umhängetasche, Portmonnaie mit Ausweis und Führerschein (was dazu führen könnte, dass der angreufer anschliessend die Adresse des Opfers kennt)
 * Vergewaltigung: das Erzwingen sexueller Handlungen
 * Tötung: Mord und Totschlag 
@@ -20,7 +20,7 @@ Bei der Auseinandersetzung geht es
 je nach Schweregrad der der auseinandeesetzung, kann es unterschiedliche Folgen habe. auch wenn die Auseinandersetzung an sich in "erfolgreich" hinter sich gebracht wurde und der verteidiger überlebt hat, kann man dennoch schwere Folgeschäden davontragen. im Folgenden eine vereinfachte Darstellung einiger Folgeschäden
 
 * psychisch: PTSD (post-traumatisches Stress-Sydrom) mit Angstzuständen, Flashbacks, Panikattacken
-* körperlich: 
+* physisch / körperlich: 
      * leichte körperliche Verletzungen wie Abschürfungen, bis hin zu schweren Brüchen und hirntraumata und anschließender schwerer körperlicher Behinderung
     * ansteckung mut einer schwerwiegenden Krankheit wie Aids, hepatitis
     * schwangerschaft
@@ -36,6 +36,7 @@ entsprechend geht es bei Selbstverteidigung vor allem darum:
 * Verteidigung gegen einen Angriff 
 * Wiederherstellung der eigenen Sicherheit durch 
     * Flucht ("flight")
+    * externe Hilfe = Polizei, Gruppenerzeugung durch Freunde, Angesprochene
     * Unschädlichmachung des Angreifers ("fight")
 
 es geht um das Leben von Personen und um Entscheidungen, die bin Bruchteilen von Sekunden angewendet werden wollen. entsprechend zeichnen sich die handgreiflichen selbstverteidigungs-Training aus durch
@@ -49,7 +50,19 @@ gerade beim Training stößt man da an Schwierigkeiten. einerseits möchte man w
 
 **fragen an dich** wollten fragen solltest du dir selbst stellen. du musst nicht alle auf einmal beantworten greife dir eine heraus es ist ein Aspekt, den du über mehrere Tage wieder herumträgst und überlegst, welche Lösungen für dich angemessen sind. warum solltest du das tun? weil ich in der Situation genau diese Fragen plötzlich einholen könnten. du darfst aber nicht nachdenken in der Situation du musst das eigentlich schon wissen. damit erhöhst du deine Überlebenschancen. kläre, was du vorher erklären kannst!
 
-**Änderungen Spielregeln**: es gibt keine Spielregeln 
+* welche Regeln gelten in deiner Kampfsportart? 
+* welche Techniken sind verboten? 
+* was würdest du niemals machen, weil esdesaatröse Folgen für deinen Partner hat? denn du bist ja lieb 
+* was würde ein Mensch mit bösen Absichten tun? was wäre praktisch für ihn ? 
+* wie kannst du dich gegen diese blinden Flecken verteidigen? das sind ja Techniken, die du nie trainiert hast und daher auch nicht verteidigen kannst?
+* worauf musst du dich da gefasst machen?
+* denke dir reelle Szenarien fpr Dich und dein leben aus. was würdest du in die Szenario tun, Beispiel: 
+    * du trägst Pizza aus und jemand steht dir das Portemonnaie 
+    * du gehst aus der Disco und du wirst verfolgt dich oder lauerte sogar auf 
+    * ein Arbeitskollege spricht schlecht über dich vorversammelten Team (Tipp: verbal lösen)
+    * eine Person pöbelt dich in der Kneipe an, massiv, du habe es seine Freundin angeguckt
+
+beachte dabei die Folgen die dein Handeln nach sich ziehen könnte: psychisch physisch, juristisch
 
 ## Ernstfall- und Berufskampf
 
