@@ -62,7 +62,16 @@ gerade beim Training stößt man da an Schwierigkeiten. einerseits möchte man w
     * ein Arbeitskollege spricht schlecht über dich vorversammelten Team (Tipp: verbal lösen)
     * eine Person pöbelt dich in der Kneipe an, massiv, du habe es seine Freundin angeguckt
 
-beachte dabei die Folgen die dein Handeln nach sich ziehen könnte: psychisch physisch, juristisch
+beachte dabei die Folgen die dein Handeln nach sich ziehen könnte: psychisch physisch, juristisch.
+
+Sparten, die sich dem Thema Selbstverteidigung widmen, sind: 
+
+* **Krav Maga** und 
+* sonstige selbstverteidigungsanbieter
+
+Es sei erwähnt, dass es gerade zum Thema Selbstverteidigung viele Möglichkeiten gibt und viele Ideen. die stehen sich oft einander gegenüber. und es wird furchtbarer Bullshit gelehrt (beispielweise Systema).
+
+Krav Maga sei hier besonders erwähnt. Hier steht ein sinnvolles Konzept dahinter, das die israelische Armee begründet hat. Da kannst du dir relativ sicher sein, dass du hier gute und sichere Techniken und Verhaltensweisen lernst.
 
 ## Ernstfall- und Berufskampf
 
@@ -86,9 +95,11 @@ Menschen dieser berufsschaden trainieren viel Punkt im Laufe ihres Lebens sehen 
 
 Wenn du in einer solchen Sparte arbeitest: Es ist durchaus ratsam, sich einer psychologischen Betreuung zu unterziehen. Die psychologischen und psychischen Herausforderungen dieser Berufe sind immens. Genauso wie du lernst, in einer körperlichen Auseinandersetzung angemessen zu reagieren, kannst du auch lernen mit psychischen Herausforderungen umzugehen. Es gibt durchaus Techniken. Lass sie dir beibringen. Somit kannst du lange seelisch gesund bleiben.
 
-<= das schreibt eine Laien, die eher wenig von dieser Berufssparte versteht und die selber keine psychologische Betreuung in Anspruch nimmt. Sei klüger als ich!
+<= das schreibt eine Laiin, die eher wenig von dieser Berufssparte versteht und die selber keine psychologische Betreuung in Anspruch nimmt. Sei klüger als ich!
 
-(... nicht ganz. Nach der Krebsdiagnose habe ich psychologische Betreuung in Anspruch genommen von einer Fachperson. Und das war auch gut so.)
+(... nicht ganz. Nach der Krebsdiagnose habe ich psycho-onkologische Betreuung in Anspruch genommen von einer Fachperson. Und das war auch gut so!)
+
+die Techniken hierzu lernst du vor allem in der Berufssparte selbst. das heißt als Polizist und Soldat wirst Du entsprechend ausgebildet . ansonsten ist es immer zu empfehlen, auch einmal Krav Maga zu besuchen.
 
 ## Kampfsport
 
@@ -98,9 +109,9 @@ es gibt im Grunde drei Ausformungen von Kampfsport, die alle miteinander kompeti
 
 * Kampf / Kumite: direkte kämpferische Auseinandersetzung, Eins gegen Eins
 * Kata: Zeigen einer festgelegten Folge von Bewegungsabläufen
-* Choreographie: Vorführen einer Bewegungsfolge, die spektakulär aussieht
+* Choreographie: Vorführen einer Bewegungsfolge, die spektakulär aussieht; nur zu zweit oder zu mehrt
 
-alle drei Sparten sind ab einem gewissen Niveau sehr anspruchsvoll. die entsprechende Ausdauer und Kraft muss vorhanden sein, um Techniken auf einem gewissen Niveau performen zu können. entsprechend gehören zu diesem Training: 
+Alle drei Sparten sind ab einem gewissen Niveau sehr anspruchsvoll. Die entsprechende Ausdauer und Kraft wird gezielt trainiert, um Techniken auf einem gewissen Niveau performen zu können. Entsprechend gehören zu diesem Training: 
 
 * Ausdauertraining 
 * Krafttraining 
@@ -108,11 +119,65 @@ alle drei Sparten sind ab einem gewissen Niveau sehr anspruchsvoll. die entsprec
 * Koordination 
 * Sparring 
 
-kampfsport ist in der Regel auf Leistung auf aus. mehrmaliges Training pro Woche sind da normal. Kampfsportler ergänzen ihre Trainingseinheiten oft durch solotraining sei es am Morgen vor dem arbeiten oder auf dem Arbeitsweg. oder andersrum: diese Menschen trainieren nicht 45 Minuten pro Woche sondern eher zwei Stunden am Tag
+Kampfsport ist sowohl auf Leistung als auch auf Spass aus. Mehrmaliges Training pro Woche sind da normal. Kampfsportler ergänzen ihre Trainingseinheiten oft durch solotraining. sei es am Morgen vor der Arbeit oder auf dem Arbeitsweg. Oder andersrum: diese Menschen trainieren nicht 45 Minuten pro Woche, sondern eher zwei Stunden am Tag - unter Beachtung notwendiger Erholungsphasen.
+
+Kampfsportarten sind: 
+
+* Boxen 
+* Kickboxen 
+* Ju-Jutsu 
+* Karate 
+* Wing tsun
+* sonstige
+
+Kampfsportler sind oft zielgerichtete und ausdauernde Persönlichkeiten. sie arbeiten lange und gefeilt an Techniken.
 
 ## Kampfkunst
 
-Bewahrung der Tradition
+Kampfkunst ist eine Zusammensetzung aus Kampf und Kunst . was bedeutet kunsttier? Kunst bedeutet, dass Betätigung durch folgende Eigenschaften auszeichnen:
+
+* Schönheit der Bewegung
+* Beachtung der Tradition 
+* "Künst"lichkeit der Techniken 
+
+Kampfkunst bedingt immer ein Miteinander der beiden Partner. Aikidotechniken funktionieren nur dann, wenn beide mitmachen. Ist einer der Partner ein Boxer und bo t tatsächlich, wird der Aikidoka gnadenlos verlieren. Bei Kampfkunst steht weniger die Leistung und Wirksamkeit einer Technik im Vordergrund. Vielmehr werden vorgeübte und vorgedachte Techniken einstudiert.
+
+Dies betrifft 
+
+* Tai Chi 
+* Aikido 
+* Karate 
+* Jiu Jitsu 
+* weitere
+
+warum sollte überhaupt jemand Kampfkunst betreiben? wenn es doch so ineffektiv zu sein scheint ... Kampfkunst hat durchaus ihre Berechtigung. viele Techniken und technikmöglichkeiten werden durch Kampfkunst bewahrt. sie liegen dort schlafend und warten darauf dass ein Kampfsportler oder Berufkämpfer sie entdeckt und anwenden kann. 
+
+für den Kampfkünstler selbst ist es unglaublich **schön**, diese Techniken auszuführen. es stehen **meditative und kognitive Aspekte** im Vordergrund. 
+
+viele Bewegungsfolgen sind hochkoordinativ. man muss sie lange üben, bis man sie ausführen kann. daraus resultiert eine tiefe Zufriedenheit. denn man kann Techniken wiederholen und wiederholen und immer tiefer einsteigen. darüber hinaus besitzt Kampfkunst und deren Techniken eine gewisse Ästhetik. Eine Kung-fu-Kata ist einfach schön anzusehen. darin spiegeln sich gegebenenfalls jahrhundertelange Traditionen. und das erfüllt einen doch mit einer gewissen Ehrfurcht.
+
+## Kunst, Sport und Praxis
+
+Vielen Ausübenden von Kampfsport und Kampfkunst ist nicht bewusst, dass sie in einer künstlichen Welt trainieren bzw einer von Regeln festgelegten Welt. Das kann im Ernstfall nachteilige Auswirkungen haben. 
+
+Trainierst du in dieser Sparte (Kampfkunst Kampfsport), so sei Dir stets bewusst: die Realität kann dich in einer ernstzunehmenden Situation einholen. Nur weil bei einer Sport- oder Kunstart das Wort "Kampf" dabei steht, heißt das nicht dass man auch kämpfen kann. 
+
+**Beispiel**: ich habe früher Vollkontakt-Karate betrieben. da durfte man nicht zum Kopf schlagen. auch nach 10 Jahren jiujitsu zu hatte ich noch keine richtige Abwehr (obwohl ich mir richtig Mühe gab). Das erste Kickbox-Sparring war furchtbar ernüchternd. ich bekam so viele Schläge an den Kopf. da wusste ich dass meine Deckung richtig kacke ist. 
+
+das ist nur ein Beispiel dafür, was passiert wenn man aus einem bekannten Regelsystem in ein anderes System übergeht. Man kriegt erstmal die Hucke voll, weil Dinge passieren die man nie trainiert hat. letztendlich bin ich sehr froh, dass ich den Schritt ins Kickboxen gewagt habe. dadurch bin ich ein wesentlich besserer Kampfsportler geworden.
+
+**Tipp**: wenn du an Selbstverteidigung interessiert bist, so Besuche neben dem Kampfsporttraining oder kampfkunstraining auch mal einen Selbstverteidigungskurs. schaue dir die Techniken an und Deeskalations-Strategien, die dort gelehrt werden. dies hilft dir, deine kampfausübung besser betrachten zu können
+
+## Schlusswort
+
+dieses Kapitel hat hoffentlich dazu beigetragen, die vier Sparten von Beschäftigung mit Kampf genauer zum Reisen: berufskampf, Selbstverteidigung, Kampfsport und Kampfkunst. 
+
+was für dich das richtige ist, das kannst du für dich jetzt sicherlich besser einordnen. die Entscheidung, die Du fällst kann sich mit der Zeit ändern. denn welche Sparte du betreibst, hängt auch mit deiner körperlichen Fitness zusammen. 
+
+wenn du jung bist, wirst du eher im Kampfsport landen. ab einem gewissen Alter ist es sinnvoll, in die Kampfkunst überzugehen. so bleibst Du lange gesund. und das ist ja wohl das Wichtigste!
+
+
+
 
 
 
