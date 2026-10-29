@@ -94,6 +94,22 @@ Wenn du in einer solchen Sparte arbeitest: Es ist durchaus ratsam, sich einer ps
 
 Kampfsport ist die spielerische Beschäftigung mit dem Thema Kampf auf Basis fester Regeln. die Kampfregeln dienen dazu, die Teilnehmer vor schlimmen Verletzungen zu schützen. 
 
+es gibt im Grunde drei Ausformungen von Kampfsport, die alle miteinander kompetitiv sind. das heißt Menschen oder Gruppen treten gegeneinander an, und zwar: 
+
+* Kampf / Kumite: direkte kämpferische Auseinandersetzung, Eins gegen Eins
+* Kata: Zeigen einer festgelegten Folge von Bewegungsabläufen
+* Choreographie: Vorführen einer Bewegungsfolge, die spektakulär aussieht
+
+alle drei Sparten sind ab einem gewissen Niveau sehr anspruchsvoll. die entsprechende Ausdauer und Kraft muss vorhanden sein, um Techniken auf einem gewissen Niveau performen zu können. entsprechend gehören zu diesem Training: 
+
+* Ausdauertraining 
+* Krafttraining 
+* Kraftausdauer 
+* Koordination 
+* Sparring 
+
+kampfsport ist in der Regel auf Leistung auf aus. mehrmaliges Training pro Woche sind da normal. Kampfsportler ergänzen ihre Trainingseinheiten oft durch solotraining sei es am Morgen vor dem arbeiten oder auf dem Arbeitsweg. oder andersrum: diese Menschen trainieren nicht 45 Minuten pro Woche sondern eher zwei Stunden am Tag
+
 ## Kampfkunst
 
 Bewahrung der Tradition
