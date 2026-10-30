@@ -13,4 +13,5 @@ durch
 * tiktok 
 * Lehrgänge 
 * Filme 
+* Video-Aufzeichnung von eigenem Kampf
 * Kämpfe schauen
