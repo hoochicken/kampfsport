@@ -1,5 +1,7 @@
 # Netflix-Training
 
+koordinatons und balance übungen, statische halteübungen
+
 auch vor dem Bildschirm kannst du wunderbar Üben. der Fokus ist dann weniger auf Koordination als auf Kraft und langsamer Bewegung. die volle Wirksamkeit entfaltet das Training natürlich ohne Ablenkung. wenn du aber mal was Gemütliches machen willst helfen dir diese Übungen, die einen statischen Blick nach vorne haben und nicht zu sehres Gehoppel sind.
 
 grundsätzlich gibt es zwei Positionen bei Bildschirm:
