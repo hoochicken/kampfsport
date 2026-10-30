@@ -1,8 +1,10 @@
 # Intervalltraining / Tabatas
 
-Intervalltraining zeichnet sich dadurch aus, dass in aktiven Zeitabschnitten (Intervallen) eine große Belastung erfolgt, danach erfolgt eine Pause du hast also einen Wechsel von belastungs- und pausenintervallen. die Pausen sind unvollständige Pausen . das heißt das neue Intervall beginnt, bevor der Körper wieder in den vollständigen Ruhestand zurückgekehrt ist messbar an hat Puls).
+Intervalltraining zeichnet sich dadurch aus, dass auf eine aktive Belastungsphase  eine Pause erfolgt. du hast also einen Wechsel von belastungs- und pausenintervallen. 
 
-Hinweis im Unterschied zur wiederholungsmethode ist die Pause hier unvollständig
+die Pausen sind unvollständige Pausen . das heißt das neue Intervall beginnt, bevor der Körper wieder in den vollständigen Ruhestand zurückgekehrt ist messbar an hat Puls). eine nicht lohnende Pause kann z.B 10 oder 20 Sekunden sein
+
+Hinweis: im Unterschied zur wiederholungsmethode ist die Pause hier unvollständig. eine lohnende Pause führt zu vollständigen Erholung des Pulses und braucht z.B 2 Minuten
 
 Beispiel: du trainierst Seilspringen, die Dauer des Intervalls ist eine Minute danach wartest du 10 Sekunden . dann fängt das neue Intervall an.
 
