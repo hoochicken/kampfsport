@@ -75,7 +75,7 @@ mit den einzelnen Intervallen kannst Übungen deiner Wahl verknüpfen. denn hier
 * 10 sek -
 * 20 sek 
 * 10 sek - Seitenstütz (Bauch lateral)
-* <= zu 2 Sezs
+* <= zu 2 Sets
 
 ## Extensive intervalle
 
@@ -98,13 +98,11 @@ diese dreckigen 300 sind in 10-12 Minuten durchführbar. sie eignet sich daher f
     * 25 Kniebeugen
 * 2. 100
     * 25 Dips
-    * 25 Knee-taps
+    * 25 Knee-taps, d. h. Laufen auf der Stelle mit hochgezogenen Knien
     * 25 Dips
     * 25 Kniebeugen
 * 3. 100
-    * 25 Klappmesser
+    * 25 Klappmesser (o. Bauchaufzüge)
     * 25 Burpies
     * 25 Klappmesser
     * 25 Burpies
-
-**Training**
