@@ -51,9 +51,31 @@ mit den einzelnen Intervallen kannst Übungen deiner Wahl verknüpfen. denn hier
 * **4x2 verschiedene Übungen**: ist immer noch recht anstrengend für die beiden Muskelgruppen. diese werden immer alternierend quasi angesprochen. auch dieses Training ist sehr intensiv
 * **2x4 verschiedene Übungen** und **8 verschiedene Übungen**: durch die verschiedenen Übungen werden in der Regel verschiedene Mustergruppen angesprochen. idealerweise baust du den Tabata so auf dass abwechselnd Beine Arme und Rumpf angesprochen werden. dadurch kannst du in allen Übungen nahezu 100% geben
 
-**Training**
+**Training 8x1 Burpie**
 
+* 20 sek Burpies
+* 10 sek -
+* <= zu 8 sets
 
+**Training 4x2**
+
+* 20 sek Mountain climber (Bauch, Beine)
+* 10 sek -
+* 20 sek Brustschwimmen (Rücken, Arme)
+* 10 sek -
+* <= zu 4 Sets
+
+**Training 2x4**
+
+* 20 sek Lounges (Beine)
+* 10 sek -
+* 20 sek Reverse Push-ups (Arme, Bauch)
+* 10 sek -
+* 20 sek Superman (Rücken, Arme)
+* 10 sek -
+* 20 sek 
+* 10 sek - Seitenstütz (Bauch lateral)
+* <= zu 2 Sezs
 
 ## Extensive intervalle
 
