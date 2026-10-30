@@ -81,4 +81,30 @@ mit den einzelnen Intervallen kannst Übungen deiner Wahl verknüpfen. denn hier
 
 extensiver Intervalle haben längere Belastungsphasen. beispielsweise ist denkbar eine 5-minuten-belastung mit dem Springseil und dann 30 Sekunden Pause. 
 
+**Seil**
+
+* 5 min Seilspringen
+* 30 sek -
+* <= zu 10 Sets
+
+**die dreckigen 300**
+
+diese dreckigen 300 sind in 10-12 Minuten durchführbar. sie eignet sich daher für einen Tag, an dem Du eigentlich gar keine Zeit hast zum Training.
+
+* 1. 100
+    * 25 Liegestütz
+    * 25 Kniebeugen
+    * 25 Liegestütz
+    * 25 Kniebeugen
+* 2. 100
+    * 25 Dips
+    * 25 Knee-taps
+    * 25 Dips
+    * 25 Kniebeugen
+* 3. 100
+    * 25 Klappmesser
+    * 25 Burpies
+    * 25 Klappmesser
+    * 25 Burpies
+
 **Training**
