@@ -107,6 +107,34 @@ dann wird aus dem freien sparring ein bedingtes sparring, und das ist villkommen
 * "... du nur frontale techniken machst. dann kann ich üben, auszuweichen"
 * "... du mir sagst, wenn ich total falsch laufe."
 
+## Hartes Sparring
+
+als hartes sparring bezeichne ich die Durchführung der Techniken mit sehr viel kraft/gewalt. 
+
+**hartes Sparring ist etwas für Fortgeschrittene**, die wissen was sie tun.  fortgeschrittene führen Techniken sauber aus. die techniken sind dadurch kontrolliert gut blockbar . so können beide Partner sicher trainieren. 
+
+**wann hartes sparrinf** härtesparent macht man nicht ständig. fortgeschrittene machen dies zwischendurch, 
+
+* um Spaß zu haben und ihre Grenzen auszutesten
+* um sich auf ein großes Turnier vorzubereiten, das harte Sparring findet mit großen zeitlichen Abstand zum Turnier statt
+
+**NICHT direkt vor wettkampf**: geht man in einen Wettkampf, so hat man sich lange darauf vorbereitet. hat die monate darauf geachtet, fit, schnell, effizient und gesund zu bleiben. ein bis drei Wochen vor dem Turnier wird kein hartes sparring mehr gemacht.  
+
+**anfänger-Sparring: schnell und locker**
+
+als Anfänger solltest du immer vor allem locker trainieren. es gibt so viel was es zu lernen gibt, körperreflexe sich abgewöhnen, sich andere antrainieren und so weiter. das sollte in lockerer Atmosphäre und mit einem sicheren Gefühl entstehen. so hast du den Kopf frei und kannst Strategien entwickeln.
+
+**wenn anfänger hart sparren**, ist das ein **Setup für eine Katastrophe**. eingeprelltes Knie, eine gebrochene Rippe, gerissene Kreuz oder innenbänder, Gehirnerschütterung. 
+
+* ein Anfänger als angreifender kann seine Techniken weder sauber noch kontrolliert. dadurch sind sie gefährlich. 
+* der Anfänger auf der empfangende Seite weiß noch nicht, wie er sich bewegen soll. er läuft in die Techniken rein und kann auch noch nicht blocken
+
+Anfänger können noch nicht unterscheiden zwischen kontrollierten Techniken und Geprügel. auf Sie wirken Fortgeschrittene im Sparring wie prügelnde Menschen. sie werden zu (unfreiwillig) prügelnden Vorbildern, die (vermeintlich) immer hart trainieren. und diese Vorbilder sind besonders stark und männlich. und weil ein Anfänger das natürlich auch sein möchte, (gerade weil er selbst in der Regel noch sehr unsicher ist), kann das zur roher Gewalt führen. 
+
+das ist übrigens auf der Grund, weshalb ich gerne Anfänger und Fortgeschrittene zusammen trainieren lasse. der fortgeschrittene kann auf den Anfänger aufpassen und ihm 1:1 helfen, besser zu werden. 
+
+gib für dich als Anfänger: sei geduldig mit dir. wie das von außen aussieht, kann dir erstmal egal sein. konzentriere dich auf die Sauberkeit deiner Technik und schnelle Fußarbeit. auf dieser Basis wirst du schnell besser werden. 
+
 ## "ich bin so schlecht .." - Selbstkorrektur
 
 "... der andere ist viel besser" - dies sind Gedanken der Verzweiflung. gerade Anfänger sind folgende Gedanken sehr bekannt 
