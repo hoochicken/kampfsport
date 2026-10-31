@@ -4,6 +4,8 @@ Randori / Landori (乱取り) ist eine Zusammensetzung aus ran (乱 = Krieg, Reb
 
 ## Sicherheits-Anweisung!
 
+**verbotene twchniken beachten**
+
 grundsätzlich sollte man sich bei dem Freikampf vor Augen halten, dass wir unter Freunden trainieren. wir alle wollen gesund von der Matte gehen. verwende daher keinerlei fiese Techniken, zu einer nachhaltigen Beeinträchtigung oder sogar Behinderung führen können.
 
 **Verbotene Techniken** sind gerade Fußtechniken zum Kopf, also 
@@ -18,6 +20,16 @@ grund: diese techniken sind unkontrollierbar. denn. wenn der partner sich auch n
 
 trainierst du in einem fremden dojo und der Trainer nacht diesbezügluch keine aussage: mache deinem partner klar, dass du diese techniken nicht willst ... es s
 ei denn, du willst darauf ankommen lassen
+
+**umgebungs-Schutz**
+
+wenn ihr trainiert, seid ihr wahrscheinlich auf einer Matte. 
+
+**vor harteb oberflächen und jantwn schütuen**: achte darauf, dass ihr euch in der Mitte der Matte bewegt. auch bei einem zufälligen Fall sollte der Kopf des Partners nicht auf einem harten Fliesenboden oder im schlimmsten Fall der Hals an der harten Kante irgendeiner seitentheke landen. 
+
+**partner vor hindernis warnen**: der Partner hat hinten keine Augen. beim Sparring vergisst man außerdem ziemlich schnell, dass noch andere auf der Matte sind. sei für deinen partner die Augen nach hinten. sage "Stopp", mache eine Stopp Geste mit erhobenen Armen und hole ihn zu dir her, wenn sich gefährliche Situation anbahnen. 
+
+**sicherung der unfall-umgebung** Verletzung des Partners** angenommen es gibt eine verletzungssituation mit einer am Boden liegenden Partner, sichere zuerst die Umgebung. halte die anderen Paare davon ab, auf euch drauf zu rempeln oder auf euch drauf zu fallen. erst danach kümmere dich um den Partner. - gibt es ein Verletzungsfall beim benachbarten Pärchen, so bricht dein Sparring ab und Sorge zunächst für die Sicherheit deiner trainingsfreunde
 
 ## arten von sparring
 
@@ -40,6 +52,15 @@ Meist gelten die Regeln für beide Partner. Manchmal ist es aber auch sinnvoll e
 ## Freies Sparring
 
 beim freien sparring sind grundsätzlich alle Techniken erlaubt. ( weiterhin gilt die obige einschränkungen: kein frontkick zum Kopf keinseitig zum Kopf!)
+
+freies sparring ist in der Regel eine Herausforderung . alle Techniken Komma die die Kampfsportart zu bieten hat Komma dürfen hier gemacht werden . und das sind (un?)erfreulich  viele.
+
+die sitzt zumindest mich zum Teil unter enormem Druck. denn beim Vereins waren muss man an so viele Dinge gleichzeitig denken
+
+* Bewegung im Raum und Positionierung 
+* eigene Schläge optimal ausführen 
+* Schläge und tritte des Partners nicht abbekommen
+* die fokustechnik trainieren
 
 ## den partner "einstellen"
 
@@ -125,8 +146,15 @@ betrachte nach einem Training das, was du gut trainiert hast. folgende Fragestel
 
 nimm deinen sparrings-Partner mit ins Boot. erkläre ihn vorab, was du trainieren willst. oder Frage nach der Runde ganz konkret nach
 
-* "Mein fokzs war, die Technik XYZ zu probieren. wie hat das deiner Meinung nachgeklappt? was kann ich diesbezüglich besser machen?"
+* "Mein Fokus war, die Technik XYZ zu probieren. wie hat das deiner Meinung nachgeklappt? was kann ich diesbezüglich besser machen?"
 * "welche Tipps hast du für mich? ( ganz global gefragt)
 
+**(3) Positives Feedback** 
 
+in deutschen gibt es die furchtbare Regel Doppelpunkt eigenlob stinkt. und das ist Gift, womit sich freundlich umzugehen. du darfst dich selbst loben. du darfst sagen, auch vor anderen: 
+
+* "ich bin diesmal gut ausgewichen ich bin so stolz darauf!"
+* "ich konnte dieses Mal zweimal den stop Kick ansetzen das hat mich super gefreut". * "ich bin so über den Frontkick, dass der direkt an die Leber getroffen hat. das habe ich trainiert. es tut mir furchtbar leid dass es dich erwischt hat! ich bin sowohl total stolz als auch absolut bestürzt, dass es geklappt hat tut mir leid ich mache es nie wieder."
+
+ja, manchmal ist es so, dass wenn eine Sache, die man sich vornimmt klappt, dass die Auswirkungen hat . überlege dir ganz gut bei wem du welche Techniken trainierst.
 
