@@ -100,6 +100,27 @@ bezogen auf das Beispiel: es kann sein, dass in den nächsten fünf Runden immer
 
 jedes mal, wenn du auf der Matte stehst, wirst du besser . das ist unabhängig davon, ob du gut performst oder schlecht. 
 
+**Negativbeispiel**: du bist in Sparring und hast dir gegenüber tatsächlich ein deutschen oder sogar Weltmeister stehen. (wenn du in Freiburg trainierst, dann ist das gar nicht so abwegig.) wenn du mit diesem Weltmeister sparrst, wirst du feststellen dass er viele Dinge viel besser macht als du. ein Training mit einem viel besseren Partner zeigt einem, wie lange der Weg noch ist, wie viele Techniken noch zu lernen sind, wie viele Fehler du noch machst, und dass es absolut sinnlos ist, sich weiterhin mit Kampfsport zu beschäftigen, weil die Performance des anderen dir klar und deutlich zeigt, dass dies unerreichbar ist. niemals, niemals würdest du gegen ihn oder sie gewinnen können!
+
+über diese selbstkasteinigung und Ausreden suche gelangst du in ein schlechtes Fahrwasser. quasi in einen Sumpf der Hoffnungslosigkeit. und da musst du dich jetzt am eigenen Zopf herausziehen und das geht so:
+
+**DEIN Fortschritt**
+
+oben hast du dir bereits ein konkretes Ziel ausgesucht. da hatten wir das Beispiel des Ausweichens, es kann aber auch ein anderes konkretes Übungsziel sein
+
+* das schnelle vor und zurückfedern
+* durchführung des abschluss-kicks
+* pendelbewegungen ausführen
+* etc.
+
+betrachte nach einem Training das, was du gut trainiert hast. folgende Fragestellungen helfen dir
+
+* wie oft hast du es geschafft an deine Technik zu denken? 
+* wie oft hast du es geschafft diese anzusetzen?
+* wie oft hat die Durchführung geklappt?
+* welche wirkung hat die Technik erzielt?
+* welche Anpassung musst du machen, damit du die Technik noch effizienter durchführen kannst?
+
 
 
 jedes mal genau eine Technik 
