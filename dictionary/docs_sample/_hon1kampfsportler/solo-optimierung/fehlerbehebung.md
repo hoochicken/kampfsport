@@ -13,6 +13,10 @@ Die Liste durchläuft die Körperteile von unten nach oben, denn eine gute Techn
 * **Bauch:** Wie fühlt sich der Bauch an? Hast du die Rumpfmuskulatur angespannt?
 * **Schultergürtel:** Ist die Schulter passend ausgerichtet? Ist sie eingerollt, um optimalen Schutz zu bieten, oder aufgerichtet, wie im traditionellen Kampfsport?
 * **Kopf:** Ist der Kopf zwischen den Schultern geschützt oder aufrecht? Führst du die gewünschte Ausweichbewegung aus?
-* **Trefferfläche:** Ist die Trefferfläche punktuell oder flächig? Welche Knochen oder Knöchel treffen auf?
+* **Trefffläche:** Ist die Trefferfläche punktuell oder flächig? Welche Knochen oder Knöchel treffen auf?
 * **Atemi-Bewegung:** Ist die Bewegung optimal? Folgen die beteiligten Gelenke dem gewünschten Bewegungsweg?
 * **Gegenbewegung:** Ein schwacher Schlag oder Kick geht oft auf einen schlechten Stand oder eine fehlende Gegenbewegung zurück. Kannst du insbesondere bei Schulter oder Arm eine kleine Gegenbewegung einbauen, die die Technik verbessert?
+
+wenn dir eine Technik auffällt, die du verbessern möchtest, so gehe diese Liste einfach durch. fokussiere dich auf ein Aspekt, den du besonders beachten möchtest und trainiere ihn gezielt die nächsten Tage oder Wochen. damit erreichst du eine nachhaltige Verbesserung deiner gewünschten Technik 
+
+Übergang zum nächsten Kapitel
