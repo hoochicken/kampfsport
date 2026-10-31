@@ -50,7 +50,7 @@ wenn ihr trainiert, seid ihr wahrscheinlich auf einer Matte.
 
 ## arten von sparring
 
-grundsätzlich gibt es zwei verschiedene Arten von Sparring bedingtes warring und weiß waren 
+grundsätzlich gibt es zwei verschiedene Arten von Sparring bedingtes sparring und weiß waren 
 
 auch wenn sich Sparring mit freikampf übersetzen lässt so ist es doch eine Überforderung , wenn man einfach  Anfänger auf sich draufprügeln lässt
 
@@ -211,7 +211,9 @@ zusammen zu trainieren und weiterzukommen ist schön. gib dem anderen gerne auch
 
 **geschichte**: neben der Matte überhöre ich zwei Anfänger, die vollkommen frustriert sind. beide sind der Meinung, sie werden immer schlecht bleiben. also habe ich eine gefragt, ob wir zusammen Sparring machen können. sie hatte neben spürbarer unerfahrenheit ein verteufelt gutes moving. ständig hat sie die Auslage gewechselt, sie stand in seitlicher Stellung und hat es mir unglaublich schwer gemacht sie irgendwie zu treffen. und genau das habe ich ja nachher rückgemeldet . dann war sie plötzlich stolz auf sich und ihre Leistung. dieser Stolz schafft später Selbstvertrauen und auch das Vertrauen neue Dinge auszuprobieren.
 
-**shit-sandwich**: ein shit-sandwich eine Abfolge von Lob, Kritik und Lob) eignet sich perfekt, um jemanden Feedback zu gehen. das wäre z.B "[Lob] dein moving hat mich beeindruckt. [kritik] wenn du zwischendurch in die frontale Kampfstellung über kannst du auch deine Schlaghand effizient einsetzen. [Lob] deine auslagenvariabilität hat es mir so schwer gemacht mich auf dich einzustellen. das ist toll! behalte das bei!
+**shit-sandwich**: ein shit-sandwich eine Abfolge von Lob, Kritik und Lob) eignet sich perfekt, um jemanden Feedback zu gehen. das wäre z.B "[Lob] dein moving hat mich beeindruckt. [kritik] wenn du zwischendurch in die frontale Kampfstellung über kannst du auch deine Schlaghand effizient einsetzen. [Lob] deine auslagenvariabilität hat es mir so schwer gemacht mich auf dich einzustellen. das ist toll! behalte das bei!"
+
+
 
 Übergang zum nächsten Kapitel
 
