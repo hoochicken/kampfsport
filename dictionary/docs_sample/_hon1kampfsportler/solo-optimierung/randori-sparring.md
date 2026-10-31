@@ -177,7 +177,11 @@ ja, manchmal ist es so, dass wenn eine Sache, die man sich vornimmt klappt, dass
 
 **mega-tipp**: Sei höflich und freundlich mit dir. du arbeitest hart und du hast es verdient, dass man mit der höflich umgeht. das gilt auch für dich: geh liebevoll mit dir um!
 
+## Feeback geben
 
+zusammen zu trainieren und weiterzukommen ist schön. gib dem anderen gerne auch Rückmeldung, zu dem was er gut gemacht hat. vielleicht auch zu dem was er besser machen könnte. beschränke Dich auf ein zwei Punkte.
+
+**geschichte**: neben der Matte überhöre ich zwei Anfänger, die vollkommen frustriert sind. beide sind der Meinung, sie werden immer schlecht bleiben. also habe ich eine gefragt, ob wir zusammen Sparring machen können. sie hatte neben spürbarer unerfahrenheit ein verteufelt gutes moving. ständig hat sie die Auslage gewechselt, sie stand in seitlicher Stellung und hat es mir unglaublich schwer gemacht sie irgendwie zu treffen. und genau das habe ich ja nachher rückgemeldet . dann war sie plötzlich stolz auf sich und ihre Leistung. dieser Stolz schafft später Selbstvertrauen und auch das Vertrauen neue Dinge auszuprobieren.
 
 
 
