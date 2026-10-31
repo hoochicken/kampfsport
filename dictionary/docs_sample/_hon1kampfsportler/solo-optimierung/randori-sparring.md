@@ -23,13 +23,13 @@ ei denn, du willst darauf ankommen lassen
 
 grundsätzlich gibt es zwei verschiedene Arten von Sparring bedingtes warring und weiß waren 
 
-auch wenn sich Sparring mit freikampf übersetzen lässt so ist es doch eine Überforderung Komma wenn man einfach zwar Anfänger auf sich draufprügeln lässt
+auch wenn sich Sparring mit freikampf übersetzen lässt so ist es doch eine Überforderung , wenn man einfach  Anfänger auf sich draufprügeln lässt
 
 ## bedingtes sparring
 
 bedingtes fahren führt spezielle Regeln ein. dieser Regeln dienen eins zum Schutz und zwei um bestimmte trainingsaspekte hervorzuheben. besonders wenn nach einer Trainingseinheit ein swaring ansteht, greift der Trainer oft zum Kunstgriff des bedingten Sparrings. da beide Partner dieselbe Aufgabe bekommen bezeichnet man dies als symmetrisches Sparring. Beispiele für Anweisungen sind:
 
-* nur gerade Techniken erlaubt, z. B. um das Ausweichwntrainieren zu können
+* nur gerade Techniken erlaubt, z. B. um das Ausweichentrainieren zu können
 * Nur Kicks erlaubt, z. B. um den stand das richtige ausweichen und die Fertigkeit für schnellen abfeuerung von Kicks zu trainieren dann 
 
 Meist gelten die Regeln für beide Partner. Manchmal ist es aber auch sinnvoll ein asymmetrisches waren zu machen. das heißt die Partner haben verschiedenen Aufgaben, z. B.
@@ -41,11 +41,11 @@ Meist gelten die Regeln für beide Partner. Manchmal ist es aber auch sinnvoll e
 
 beim freien sparring sind grundsätzlich alle Techniken erlaubt. ( weiterhin gilt die obige einschränkungen: kein frontkick zum Kopf keinseitig zum Kopf!)
 
-
-
 ## den partner "einstellen"
 
-auch wenn der Trainer angesagt hat Komma so gilt trotzdem Komma dass ihr euch gegenseitig einschränkungen auferlegen könnt Punkt und das kann durchaus sinnvoll sein hier einige Beispiele
+auch wenn der Trainer angesagt hat , so gilt trotzdem Komma dass ihr euch gegenseitig einschränkungen auferlegen könnt . 
+
+dann wird aus dem freien sparring ein bedingtes sparring, und das ist villkommen oky:-) und das kann durchaus sinnvoll sein hier einige Beispiele
 
 **anti-blinzel**
 
@@ -69,9 +69,34 @@ auch wenn der Trainer angesagt hat Komma so gilt trotzdem Komma dass ihr euch ge
 * "... du nur frontale techniken machst. dann kann ich üben, auszuweichen"
 * "... du mir sagst, wenn ich total falsch laufe."
 
-sind z.B nur bestimmte Techniken erlaubt z.B nur gerade Techniken.
+## "ich bin so schlecht .."
 
-Punkt ein freikampf ist also nicht immer ganz frei Komma sondern wird auch eingeschränkt
+"... der andere ist viel besser" - dies sind Gedanken der Verzweiflung. gerade Anfänger sind folgende Gedanken sehr bekannt 
+
+* ich werde ständig getroffen 
+* ich bin schlecht 
+* ich bin nicht geeignet für Sparring 
+* ich bin einfach zu langsam, der andere ist viel schneller als ich 
+* das bringt überhaupt nichts 
+* ich bin so schlecht
+
+diese Gedankengänge zeichnen sich dadurch aus, dass sie (1) irgendein Detail sehr global und wischi-waschi betrachten, (2) dich mit dem anderen vergleichen und (3) 
+
+daher beachte bei Selbstkritik folgende Regeln
+
+**konkrete Problembenennung** benenne ganz konkret welche Technik nicht geklappt hat es sind so viele Techniken? dann such dir genau eine raus. dies kann z.B sein *ich bin langsam beim ausweichen*
+
+**konkrete lösung benennen**: formuliere dir dieses Problem  in eine Lösung um. *ich weiche schnell aus!*
+
+**anwendungen** auf diese Problemlösung arbeitest du in den nächsten Runden hin. es kann sein, dass viele andere Dinge nicht klappen, das ist aber vollkommen egal. 
+
+wichtig ist dass du die Sache trainierst, die du dir vorgenommen hast. leider bedeutet die Tatsache, dass du etwas trainierst nicht, dass du das auch schaffst umzusetzen. wichtig ist nicht, dass *es klappt*, sondern dass du *wiederholst und wiederholst*. irgendwann wirst du diese technik erfolgreich durchführen! 
+
+bezogen auf das Beispiel: es kann sein, dass in den nächsten fünf Runden immer noch getroffen wirst, und dass du auch in den nächsten zwei Wochen noch getroffen wirst dein Körper trainiert gerade eine Fertigkeit, und das braucht Zeit. lass dir Zeit Punkt so baust du nachhaltig Fähigkeiten auf, die dich weiterbringen
+
+**
+
+
 
 jedes mal genau eine Technik 
 
