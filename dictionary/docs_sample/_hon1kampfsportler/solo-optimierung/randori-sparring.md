@@ -121,7 +121,10 @@ betrachte nach einem Training das, was du gut trainiert hast. folgende Fragestel
 * welche wirkung hat die Technik erzielt?
 * welche Anpassung musst du machen, damit du die Technik noch effizienter durchführen kannst?
 
+nimm deinen sparrings-Partner mit ins Boot. erkläre ihn vorab, was du trainieren willst. oder Frage nach der Runde ganz konkret nach
 
+* "Ich wollte die Technik XYZ probieren. wie hat das deiner Meinung nachgeklappt? was kann ich diesbezüglich besser machen?"
+* "welche Tipps hast du für mich? ( ganz global gefragt)
 
 jedes mal genau eine Technik 
 
