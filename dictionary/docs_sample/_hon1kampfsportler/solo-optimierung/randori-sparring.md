@@ -58,7 +58,7 @@ dann wird aus dem freien sparring ein bedingtes sparring, und das ist villkommen
 * "... heute nur zum bauch schlagen.*
 * "... heute ganz locker nur zum kopf schlagen?"
 
-**ausweichen**
+**beispiel: ausweichen**
 
 **problem**: du bleibst in der angriffslinie des partners stehen und bekommst so viele schläge ab. beim azsweichen bist du langsam und läufst immer in einen Roundhouse kick rein
 
@@ -69,7 +69,7 @@ dann wird aus dem freien sparring ein bedingtes sparring, und das ist villkommen
 * "... du nur frontale techniken machst. dann kann ich üben, auszuweichen"
 * "... du mir sagst, wenn ich total falsch laufe."
 
-## "ich bin so schlecht .."
+## "ich bin so schlecht .." - Selbstkorrektur
 
 "... der andere ist viel besser" - dies sind Gedanken der Verzweiflung. gerade Anfänger sind folgende Gedanken sehr bekannt 
 
@@ -80,7 +80,7 @@ dann wird aus dem freien sparring ein bedingtes sparring, und das ist villkommen
 * das bringt überhaupt nichts 
 * ich bin so schlecht
 
-diese Gedankengänge zeichnen sich dadurch aus, dass sie (1) irgendein Detail sehr global und wischi-waschi betrachten, (2) dich mit dem anderen vergleichen und (3) 
+diese Gedankengänge zeichnen sich dadurch aus, dass sie (1) irgendein Detail sehr global und wischi-waschi betrachten, (2) dich mit dem anderen vergleichen und (3) dich negativ bewertet
 
 daher beachte bei Selbstkritik folgende Regeln
 
