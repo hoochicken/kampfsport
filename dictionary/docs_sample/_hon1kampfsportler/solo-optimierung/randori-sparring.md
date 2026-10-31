@@ -84,15 +84,17 @@ diese Gedankengänge zeichnen sich dadurch aus, dass sie (1) irgendein Detail se
 
 daher beachte bei Selbstkritik folgende Regeln
 
-**(1) Konkretisierung**
+**(1) Fokussierung durch Konkretisierung**
 
 **konkrete Problembenennung** benenne ganz konkret welche Technik nicht geklappt hat es sind so viele Techniken? dann such dir genau eine raus. dies kann z.B sein *ich bin langsam beim ausweichen*
 
 **konkrete lösung benennen**: formuliere dir dieses Problem  in eine Lösung um. *ich weiche schnell aus!*
 
-**anwendungen** auf diese Problemlösung arbeitest du in den nächsten Runden hin. es kann sein, dass viele andere Dinge nicht klappen, das ist aber vollkommen egal. 
+**anwendungen**: auf diese Problemlösung arbeitest du in den nächsten Runden hin. es kann sein, dass viele andere Dinge nicht klappen, das ist aber vollkommen egal. 
 
-wichtig ist dass du die Sache trainierst, die du dir vorgenommen hast. - leider bedeutet die Tatsache, dass du etwas trainierst, nicht, dass das auch gleich klappt. wichtig ist nicht, dass *es klappt*, sondern dass du *wiederholst und wiederholst*. irgendwann wirst du diese technik erfolgreich durchführen! 
+**Fokussierung**: indem du dir eine konkrete trainingsaufgabe stellst, bekommst du einen massiven Fokus. dies ist die Einzelheit, das Detail an dem du in Zukunft fallen wirst, vielleicht für ein zwei Stunden, oder vielleicht auch für die nächsten ein zwei monate. 
+
+wichtig ist, dass du diese Fokus-Technik trainierst, die du dir vorgenommen hast. - leider bedeutet die Tatsache, dass du etwas trainierst, nicht, dass das auch gleich klappt. wichtig ist nicht, dass *es klappt*, sondern dass du *wiederholst und wiederholst*. irgendwann wirst du diese technik erfolgreich durchführen! 
 
 bezogen auf das Beispiel: es kann sein, dass in den nächsten fünf Runden immer noch getroffen wirst, und dass du auch in den nächsten zwei Wochen noch getroffen wirst dein Körper trainiert gerade eine Fertigkeit, und das braucht Zeit. lass dir Zeit Punkt so baust du nachhaltig Fähigkeiten auf, die dich weiterbringen
 
@@ -123,9 +125,8 @@ betrachte nach einem Training das, was du gut trainiert hast. folgende Fragestel
 
 nimm deinen sparrings-Partner mit ins Boot. erkläre ihn vorab, was du trainieren willst. oder Frage nach der Runde ganz konkret nach
 
-* "Ich wollte die Technik XYZ probieren. wie hat das deiner Meinung nachgeklappt? was kann ich diesbezüglich besser machen?"
+* "Mein fokzs war, die Technik XYZ zu probieren. wie hat das deiner Meinung nachgeklappt? was kann ich diesbezüglich besser machen?"
 * "welche Tipps hast du für mich? ( ganz global gefragt)
 
-jedes mal genau eine Technik 
 
-Sicherheit des Partners vor anderen kämpfenden
+
