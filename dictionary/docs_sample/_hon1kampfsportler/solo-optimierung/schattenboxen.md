@@ -42,10 +42,18 @@ der **Bar bell** besteht aus einer Bar Klappe auf Stange) an dem links und recht
 
 der **Kettlebell** sieht aus wie ein altmodischer Wasserkessel, den man früh auf den Herd gestellt hat. er hat einen Bauch in dem das Gewicht unzergebracht ist sowie einen großen Griff um es zu greifen . dieses Gewichtart gibt es in vielen Variationen von 3 bis 60 kg. es gibt unzählige Übungen mit dem Kettlebell, zum Teil mit kleinem Gewicht zum Teil mit größerem Gewicht.
 
+## schnellugkeits-training
+
+kraft in schnellugkeit umwandekn
+
+
+## gewandtheits-training
+
+hand auge jonglieren
 
 
 
 ## mentales Training
 
-
+chuck norris
 
