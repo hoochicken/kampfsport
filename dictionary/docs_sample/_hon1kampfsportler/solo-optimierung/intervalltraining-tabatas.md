@@ -12,16 +12,21 @@ die Belastung kann, also die eigentliche Trainingsübung, kannst du frei wählen
 * Partnerübungen, z.B fifty-fifty-Ringerspiel
 * Atemis auf pratzen
 
-es gibt jedoch Einschränkungen aus meiner Sicht was die Übungen betrifft. der Fokus der Übungen liegt darauf, Techniken mit großer Kraft auszuüben. die Technik wird darunter leiden. daraus folgt mache niemals gefährliche Übungen im Intensiven Intervalltraining: 
+Hinweis: die wiederholungsmethode weist im unterschied dazu eine ä lohnende Pause auf,ä. diese führt zur vollständigen Erholung des Pulses und braucht z.B. 2 Minuten
+
+Beispiel Seilsprungen
+
+* Wiederholungsmethode: die Dauer des Intervalls ist 1 Minute, **maximale anstrengung**. danach wartest du 2 minuten . dann fängt das neue set an.
+* intervalmethode: die Dauer des Intervalls ist 1 Minute, **mittlere anstrengung**. danach wartest du 10 sekunden . dann fängt das neue set an.
+
+**sicherheit**
+
+es gibt jedoch Einschränkungen aus meiner Sicht, was die Übungen betrifft. der Fokus der Übungen liegt darauf, Techniken mit großer Kraft auszuüben. die Technik wird darunter leiden. daraus folgt mache niemals gefährliche Übungen im Intensiven Intervalltraining: 
 
 * KEINE Würfe
 * KEINE Atemi/Schläge 
 
-Hintergrund: wird eine derartige Technik verwaschen ausgeführt, kann es sein dass du z.B bei einem Schulterwurf den anderen auf dem Kopf stellst. dann schließt er nachher im Rollstuhl . daher gilt: **keine gefährlichen Techniken auf Zeit!!**
-
-Hinweis: im Unterschied zur wiederholungsmethode ist die Pause hier unvollständig. eine lohnende Pause führt zu vollständigen Erholung des Pulses und braucht z.B 2 Minuten
-
-Beispiel: du trainierst Seilspringen, die Dauer des Intervalls ist eine Minute danach wartest du 10 Sekunden . dann fängt das neue Intervall an.
+Hintergrund: wird eine derartige Technik verwaschen ausgeführt, kann es sein dass du z.B bei einem Schulterwurf den anderen auf dem Kopf stellst. dann sitzt der nachher im Rollstuhl. daher gilt: **keine gefährlichen Techniken auf Zeit!!**
 
 ## intensive intervallmethode
 
