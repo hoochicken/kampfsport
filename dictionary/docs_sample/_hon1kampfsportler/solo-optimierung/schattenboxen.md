@@ -4,12 +4,13 @@
 
 vor dem Training solltest du dich immer Aufwärmen. sowohl im Gruppentraining als auch beim solo-training. hier eine kleine aufwärm-routine:
 
-* locker auf der Stelle laufen,
+* **kreiskauf aktivieren**: locker auf der Stelle laufen,
     * dabei Arme Kreisen in die gleiche Richtung
     *  Arme Kreisen in die gegenrichtung
     * anfersen
-    * Knien hochziehen
-
+    * knie hochziehen
+* **dehnen oberkörper** weiterhin locker auf der Stelle laufen
+    * 
 
 ## solo-drills
 
