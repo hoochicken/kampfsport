@@ -18,8 +18,25 @@ grund: diese techniken sind unkontrollierbar. denn. wenn der partner sich auch n
 * Bruch des Jochbeins
 * Schleudertrauma = Wirbelsäulen-Verletzung
 
-trainierst du in einem fremden dojo und der Trainer nacht diesbezügluch keine aussage: mache deinem partner klar, dass du diese techniken nicht willst ... es s
-ei denn, du willst darauf ankommen lassen
+trainierst du in einem fremden dojo und der Trainer nacht diesbezügluch keine aussage: mache deinem partner klar, dass du diese techniken nicht willst ... es sei denn, du willst darauf ankommen lassen ... aber welcher mensch, der beii gesundem verstand wäre, wollte das schon? :-D
+
+**schutzausrüstung**
+
+beim Sparring trägt man zum eigenen Schutz Schutzausrüstung. diese unterscheidet sich je nach Sportart. in der Regel ist die basale Schutzausrüstung wie folgt
+
+* zahnschutz
+* faustschützer
+* tiefschutz (für personen mit penis)
+
+je nach Sportart treten weitere Schutzausrüstungen hinzu 
+
+* kopfschutz *)
+* Schienbeinschutz 
+* Bandagen 
+* Brustschutz 
+* bauchschutz 
+
+*) "ein Kopfschutz brauche ich nicht!", hör ich ziemlich häufig. besonders von jungen Menschen, besonders Männern. hier möchte ich dir einen kleinen Vergleich geben: dein Handy hat eine Schutzhülle . dann geht es nicht kaputt wenn ein Aufprall ist. wenn es aufprallt und es kaputt geht, kaufst du dir einfach ein neues. **wie viele neue Gehirne kannst du dir kaufen?** keines. zieh den Kopfschutz an! schütze dich vor den sogenannten "concussion-syndrom" und davor mit 50 jahres ein demenzfall zu sein. es gibt wirklich traurige Geschichten von Personen, die in ihren 20ern und 30 Jahren richtig gute Sportler war: MMA-Kämpfer, Boxer, Footballer, Rugbyspieler.
 
 **umgebungs-Schutz**
 
@@ -101,7 +118,7 @@ dann wird aus dem freien sparring ein bedingtes sparring, und das ist villkommen
 * das bringt überhaupt nichts 
 * ich bin so schlecht
 
-diese Gedankengänge zeichnen sich dadurch aus, dass sie (1) irgendein Detail sehr global und wischi-waschi betrachten, (2) dich mit dem anderen vergleichen und (3) dich negativ bewertet
+diese Gedankengänge zeichnen sich dadurch aus, dass sie (1) irgendein Detail sehr global und wischi-waschi betrachten, (2) dich mit dem anderen vergleichen und (3) dich negativ bewertet. 
 
 daher beachte bei Selbstkritik folgende Regeln
 
@@ -157,4 +174,10 @@ in deutschen gibt es die furchtbare Regel Doppelpunkt eigenlob stinkt. und das i
 * "ich konnte dieses Mal zweimal den stop Kick ansetzen das hat mich super gefreut". * "ich bin so über den Frontkick, dass der direkt an die Leber getroffen hat. das habe ich trainiert. es tut mir furchtbar leid dass es dich erwischt hat! ich bin sowohl total stolz als auch absolut bestürzt, dass es geklappt hat tut mir leid ich mache es nie wieder."
 
 ja, manchmal ist es so, dass wenn eine Sache, die man sich vornimmt klappt, dass die Auswirkungen hat . überlege dir ganz gut bei wem du welche Techniken trainierst.
+
+**mega-tipp**: Sei höflich und freundlich mit dir. du arbeitest hart und du hast es verdient, dass man mit der höflich umgeht. das gilt auch für dich: geh liebevoll mit dir um!
+
+
+
+
 
