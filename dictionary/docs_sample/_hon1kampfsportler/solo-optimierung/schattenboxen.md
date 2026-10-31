@@ -19,6 +19,18 @@ hier hast du einen kleinen Abriss an solo-drills. du kannst diese solo Drills ei
 * der Stuhl, dein bester Freund: Schattenboxen und den Stuhl herum, verschiedene Kicks über die Stuhllehne (mach das bitte sicher und brich dir keinen zeh  schlimmeres)
 * dehnübungen
 
+## schattenboxen
+
+
+## bar bell und kettle bell
+
+der **Bar bell** besteht aus einer Bar Klappe auf Stange) an dem links und rechts Gewichte angebracht sind. es gibt sie sowohl in fester Form mit festgelegten gewichten, als auch die Stange an sich mit auflegbaren Gewichten.
+
+der **Kettlebell** sieht aus wie ein altmodischer Wasserkessel, den man früh auf den Herd gestellt hat. er hat einen Bauch in dem das Gewicht unzergebracht ist sowie einen großen Griff um es zu greifen . dieses Gewichtart gibt es in vielen Variationen von 3 bis 60 kg. es gibt unzählige Übungen mit dem Kettlebell, zum Teil mit kleinem Gewicht zum Teil mit größerem Gewicht.
+
+
+
+
 ## mentales Training
 
 
