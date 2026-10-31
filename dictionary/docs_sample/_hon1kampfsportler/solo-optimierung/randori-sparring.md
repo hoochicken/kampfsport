@@ -6,7 +6,18 @@ Randori / Landori (乱取り) ist eine Zusammensetzung aus ran (乱 = Krieg, Reb
 
 grundsätzlich sollte man sich bei dem Freikampf vor Augen halten, dass wir unter Freunden trainieren. wir alle wollen gesund von der Matte gehen. verwende daher keinerlei fiese Techniken, zu einer nachhaltigen Beeinträchtigung oder sogar Behinderung führen können.
 
-**Verbotene Techniken** sind gerade Fußtechniken zum Kopf, also Frontkick zum Kopf und Sidekick zum Kopf.
+**Verbotene Techniken** sind gerade Fußtechniken zum Kopf, also 
+
+* NIEMALS Frontkick zum Kopf  
+* NIEMALS Sidekick zum Kopf
+
+grund: diese techniken sind unkontrollierbar. denn. wenn der partner sich auch nur 5 cm nach vornebewegt, kann es zu schwerwiegenden verletzungwn kommen wie
+
+* Bruch des Jochbeins
+* Schleudertrauma = Wirbelsäulen-Verletzung
+
+trainierst du in einem fremden dojo und der Trainer nacht diesbezügluch keine aussage: mache deinem partner klar, dass du diese techniken nicht willst ... es s
+ei denn, du willst darauf ankommen lassen
 
 ## arten von sparring
 
@@ -30,6 +41,10 @@ Meist gelten die Regeln für beide Partner. Manchmal ist es aber auch sinnvoll e
 
 beim freien sparring sind grundsätzlich alle Techniken erlaubt. ( weiterhin gilt die obige einschränkungen: kein frontkick zum Kopf keinseitig zum Kopf!)
 
+
+
+## den partner "einstellen"
+
 auch wenn der Trainer angesagt hat Komma so gilt trotzdem Komma dass ihr euch gegenseitig einschränkungen auferlegen könnt Punkt und das kann durchaus sinnvoll sein hier einige Beispiele
 
 **anti-blinzel**
@@ -51,7 +66,8 @@ auch wenn der Trainer angesagt hat Komma so gilt trotzdem Komma dass ihr euch ge
 
 **vorschlag**: "du ich bin heute nicht ganz da im kopf. und langsam. wäre es für dich okay, wenn du ..."
 
-* "... 
+* "... du nur frontale techniken machst. dann kann ich üben, auszuweichen"
+* "... du mir sagst, wenn ich total falsch laufe."
 
 sind z.B nur bestimmte Techniken erlaubt z.B nur gerade Techniken.
 
