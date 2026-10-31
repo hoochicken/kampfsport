@@ -108,17 +108,17 @@ extensiver Intervalle haben längere Belastungsphasen. beispielsweise ist denkba
 
 diese dreckigen 300 sind in 10-12 Minuten durchführbar. sie eignet sich daher für einen Tag, an dem Du eigentlich gar keine Zeit hast zum Training.
 
-* 1. 100
+* die ersten 100
     * 25 Liegestütz
     * 25 Kniebeugen
     * 25 Liegestütz
     * 25 Kniebeugen
-* 2. 100
+* die zweiten 100
     * 25 Dips
     * 25 Knee-taps, d. h. Laufen auf der Stelle mit hochgezogenen Knien
     * 25 Dips
     * 25 Kniebeugen
-* 3. 100
+* die dritten 100
     * 25 Klappmesser (o. Bauchaufzüge)
     * 25 Burpies
     * 25 Klappmesser
