@@ -113,12 +113,22 @@ als hartes sparring bezeichne ich die Durchführung der Techniken mit sehr viel 
 
 **hartes Sparring ist etwas für Fortgeschrittene**, die wissen was sie tun.  fortgeschrittene führen Techniken sauber aus. die techniken sind dadurch kontrolliert gut blockbar . so können beide Partner sicher trainieren. 
 
-**wann hartes sparrinf** härtesparent macht man nicht ständig. fortgeschrittene machen dies zwischendurch, 
+natürlich ist bei hartem Sparring eine höhere Verletzungsgefahr gegeben. hier eine Übersicht dessen Komma was ich schon so an Verletzungen mitbekommen habe bei anderen
+
+* nasenbruch ( kann immer passieren, nicht wirklich schlimm )
+* ellenbogen bruch, derjenige hat jetzt eine Platte in den Arm operiert
+* Netzhautablösung, durch beständig harte Schläge( damit ist nicht zu spaßen, da kann man nämlich blind werden)
+
+darüber hinaus ist das sogenannte *concussion sydrom* zu erwähnen Punkt das ist eine Erkrankung des Gehirns Punkt die vielen Schläge führen zu einer massiverminanten gehirnleistung und anschließenden demenz.
+
+die Folgen harter Schläge können also gravierend sein. daher sollte man hartes waren gezielt ausführen, und nicht als Standard betrachten.
+
+**wann hartes sparring?**: hartes sparring macht man nicht ständig. fortgeschrittene machen dies zwischendurch, 
 
 * um Spaß zu haben und ihre Grenzen auszutesten
 * um sich auf ein großes Turnier vorzubereiten, das harte Sparring findet mit großen zeitlichen Abstand zum Turnier statt
 
-**NICHT direkt vor wettkampf**: geht man in einen Wettkampf, so hat man sich lange darauf vorbereitet. hat die monate darauf geachtet, fit, schnell, effizient und gesund zu bleiben. ein bis drei Wochen vor dem Turnier wird kein hartes sparring mehr gemacht.  
+**NICHT direkt vor wettkampf**: geht man in einen Wettkampf, so hat man sich lange darauf vorbereitet. hat die monate darauf geachtet, fit, schnell, effizient und gesund zu bleiben. ein bis drei Wochen vor dem Turnier wird kein hartes sparring mehr gemacht. 
 
 **anfänger-Sparring: schnell und locker**
 
@@ -170,7 +180,7 @@ jedes mal, wenn du auf der Matte stehst, wirst du besser . das ist unabhängig d
 
 **Negativbeispiel**: du bist in Sparring und hast dir gegenüber tatsächlich ein deutschen oder sogar Weltmeister stehen. (wenn du in Freiburg trainierst, dann ist das gar nicht so abwegig.) wenn du mit diesem Weltmeister sparrst, wirst du feststellen dass er viele Dinge viel besser macht als du. ein Training mit einem viel besseren Partner zeigt einem, wie lange der Weg noch ist, wie viele Techniken noch zu lernen sind, wie viele Fehler du noch machst, und dass es absolut sinnlos ist, sich weiterhin mit Kampfsport zu beschäftigen, weil die Performance des anderen dir klar und deutlich zeigt, dass dies unerreichbar ist. niemals, niemals würdest du gegen ihn oder sie gewinnen können!
 
-über diese selbstkasteinigung und Ausreden suche gelangst du in ein schlechtes Fahrwasser. quasi in einen Sumpf der Hoffnungslosigkeit. und da musst du dich jetzt am eigenen Zopf herausziehen und das geht so:
+über diese selbstkasteinigung und Ausredensuche gelangst du in ein schlechtes Fahrwasser. quasi in einen Sumpf der Hoffnungslosigkeit. und da musst du dich jetzt am eigenen Zopf herausziehen und das geht so:
 
 **DEIN Fortschritt**
 
