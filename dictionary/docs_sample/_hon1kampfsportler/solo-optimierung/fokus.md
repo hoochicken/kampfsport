@@ -10,7 +10,7 @@ man kann in zweierlei Hinsicht fokussiert sein
 
 **nachhaltiger Fokus**: der nachhaltige Fokus bedeutet Komma dass du generell einen Weg beschreitest Punkt nicht fünf Wege oder zehn Wege oder 300. du hast dich für den kampfsportweg entschieden also verzichtest du auf dreimal Disco die Woche und das Cannabis, du hältst dich von Alkohol fahren und stellst nicht fest, dass du morgen doch lieber die Musik Wegbeschreibung möchtest und übermorgen lieber Radrennsportler werden möchte. du entscheidest dich für einen Weg und gehst diesen Weg
 
-natürlich: in unserer heutigen Zeit sind wir alle ein bisschen nötig Gas geben. wir verdienen Geld mit einem Beruf, mit Kampfsport wahrscheinlich eher weniger. dennoch ist es wichtig, sich irgendwie grundlegend zu fokussieren und nicht tausend Sachen auf einmal zu machen und irgendwie anzufangen und alle irgendwie liegen zu
+natürlich: in unserer heutigen Zeit sind wir alle ein bisschen multi-tasker. wir verdienen Geld mit einem Beruf, mit Kampfsport wahrscheinlich eher weniger. dennoch ist es wichtig, sich irgendwie grundlegend zu fokussieren und nicht tausend Sachen auf einmal zu machen und irgendwie anzufangen und alle irgendwie liegen zu
 
 **An ADHSLer**
 
