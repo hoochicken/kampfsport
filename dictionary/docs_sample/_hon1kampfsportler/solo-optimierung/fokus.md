@@ -4,6 +4,16 @@
 
 als Fokus bezeichnet man die gezielte Ausrichtung des des Geistes der gedanklichen Anstrengungen auf eine definierte Sachlage. der Gegenstand der Gedanken befindet sich im Zentrum der Gedanken, man ist kon"zentr"iert.
 
+man kann in zweierlei Hinsicht fokussiert sein 
+
+**gegenwärtiger Fokus**: das heißt die Gedanken befinden sich im gegenwärtigen Moment im Hier und Jetzt das Seins. alles was du machst was du tust was du siehst wird von dir aufgenommen und und bewusst wahrgenommen. es gibt keine Gedanken an Dinge, die außerhalb deiner Sichtung hört es sich. du bist genau hier
+
+**nachhaltiger Fokus**: der nachhaltige Fokus bedeutet Komma dass du generell einen Weg beschreitest Punkt nicht fünf Wege oder zehn Wege oder 300. du hast dich für den kampfsportweg entschieden also verzichtest du auf dreimal Disco die Woche und das Cannabis, du hältst dich von Alkohol fahren und stellst nicht fest, dass du morgen doch lieber die Musik Wegbeschreibung möchtest und übermorgen lieber Radrennsportler werden möchte. du entscheidest dich für einen Weg und gehst diesen Weg
+
+natürlich: in unserer heutigen Zeit sind wir alle ein bisschen nötig Gas geben. wir verdienen Geld mit einem Beruf, mit Kampfsport wahrscheinlich eher weniger. dennoch ist es wichtig, sich irgendwie grundlegend zu fokussieren und nicht tausend Sachen auf einmal zu machen und irgendwie anzufangen und alle irgendwie liegen zu
+
+**anDÄADHSLer**:
+
 **beispiele**
 
 **Ärger-Management**
