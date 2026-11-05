@@ -44,7 +44,9 @@ hiermit verbiete ich Dir, Dich zu ärgern. Ärger ist schlecht. er zieht deine A
 
 ### Mushin und Amygdala für den Notfall
 
-in diesem Flow Zustand macht unser Gehirn eine Besonderheit. Eindrücke werden direkt an das Hirn geliefert. dies gilt für optische Reize wie auch auditive und haptische. normalerweise ist ein Gehirnteil (Thalamus) zwischen geschaltet, dass diese Eindrücke verwaltet und Bewertet. dies ist ein automatischer Mechanismus in einer hoch Stresssituation wird diese voraus Bewertung der Eindrücke aufgehoben und stattdessen direkt das Hirn angesprochen. hatte bei einem potentiell tödlichen Fahrradunfall dieses Erlebnis. die Zeit hat sich aufgefaltet. die rettende Rolle rückwärts gefühlt 10 bis 15 Sekunden in Anspruch genommen. ich hatte alle Zeit der Welt
+in diesem Flow Zustand macht unser Gehirn eine Besonderheit. Eindrücke werden direkt an das Hirn geliefert. dies gilt für optische Reize wie auch auditive und haptische. normalerweise ist ein Gehirnteil (Thalamus) zwischen geschaltet, dass diese Eindrücke verwaltet und Bewertet. dies ist ein automatischer Mechanismus in einer hoch Stresssituation wird diese voraus Bewertung der Eindrücke aufgehoben und stattdessen direkt das Hirn angesprochen. 
+
+**beispiwl**: ich hatte bei einem potentiell tödlichen Fahrradunfall dieses Erlebnis. die Zeit hat sich aufgefaltet. die rettende Rolle rückwärts gefühlt 10 bis 15 Sekunden in Anspruch genommen. ich hatte alle Zeit der Welt
 
 bezeichnen wir diese besonderheit als Notfall-Mechanismus („Le-Doux-Shortcut“)
 
@@ -56,9 +58,9 @@ Normalerweise wandern Sinnesreize über die sensorischen Bahnen zum Thalamus (de
 
 ### Zanshin (残心) – Der verbleibende Geist
 
-ebenso wie mushin ist zushin eine Allgegenwärtige, wachsame Aufmerksamkeit und Präsenz. es ist der Zustand absoluter Wachsamkeit vor, während und insbesondere **nach einer Aktion**. Auch wenn der Gegner vermeintlich besiegt ist, verbleibt der Fokus auf maximalem Niveau, um sofort für unvorhergesehene Wendungen bereit zu sein. Der Geist entspannt sich nicht voreilig.
+ebenso wie mushin ist zanshin eine Allgegenwärtige, wachsame Aufmerksamkeit und Präsenz. es ist der Zustand absoluter Wachsamkeit vor, während und insbesondere **nach einer Aktion**. Auch wenn der Gegner vermeintlich besiegt ist, verbleibt der Fokus auf maximalem Niveau, um sofort für unvorhergesehene Wendungen bereit zu sein. Der Geist entspannt sich nicht voreilig.
 
-**beispiel**: ein Freund von mir hatte eine Auseinandersetzung in einer Straßenbahn mit einer Person. er steht an seiner Haltestelle aus. er hat keinen Blick zurück verschwendet. die Person hat in die Treppe runtergeschubst, er kann bis heute noch nicht laufen weil sein Kind mit Thomas ist. für ihn war die Situation vorbei, der Angreifer hat einfachauf seine chance  gewartet.
+**beispiel**: ein Freund hatte eine Auseinandersetzung in einer Straßenbahn mit einer Person. er steigt an seiner Haltestelle aus. er hat keinen Blick zurück verschwendet. die Person hat ihn die Treppe runtergeschubst, er kann bis heute noch nicht laufen weil sein knie kaputt ist. für ihn war die Situation vorbei, der Angreifer hat einfachauf seine chance gewartet.
 
 **tipp**: halte immer Sicht und Blickkontakt zu der angreifenden Person. auch wenn die Situation vorbei zu sein scheint. du bist das ersten Sicherheit, wenn du zu Hause auf deinem Sofa sitzt
 
@@ -77,7 +79,34 @@ Diese drei Zustände greifen während des Trainings oder Kampfes wie Zahnräder 
 1. Fudōshin schützt dich davor, emotional zu überreagieren oder einzufrieren.
 2. Aus dieser unerschütterlichen Ruhe heraus öffnet sich Mushin, sodass du ohne störende Denkprozesse rein instinktiv agieren kannst.
 3. Zanshin sorgt dafür, dass du zu jedem Zeitpunkt den Überblick über den gesamten Raum behältst und niemals überrascht wirst.
-Möchtest du wissen, wie man Mushin gezielt im Training kultiviert, oder suchst du nach der Einbindung in eine bestimmte Stilrichtung (wie Karate, Aikido oder Kendo)?
+
+## Fokus erhalten
+
+und Fokus auf eine andere Sache zu kommen gibt es grundsätzlich zwei blickwinkel zu beachten 
+
+* den Gegenstand des gewünschten Fokus in den Vordergrund zu setzen 
+* alles andere in den Hintergrund drängen
+
+beides kann eine Herausforderung sein. lass sie uns nacheinander anschauen
+
+**etwas fokussieren** um etwas zu fokussieren, muss man zunächst bestimmen, was dieses Etwas ist.
+
+um etwas zu fokussieren, hilft es, wenn der Gegenstand interessant ist. aber wir haben in unserem Leben eigentlich schon alle Gegenstände gesehen, zumindest die meisten Punkt sie sind für das Gehirn uninteressant Punkt folgende Gedankengang kann dir helfen 
+
+* stell dir vor du siehst diesen Gegenstand oder dieses etwas zum allerersten Mal. wie ein Kind kannst du das untersuchen und ganz neu in dir aufnehmen
+* du kennst schon alle Dinge und Eigenheiten dieses etwas . Stelle sicher dass jeder eigenheit die du erwartest auch da ist wo hast du recht , und wo brauchst du deine Aufmerksamkeit um etwas Neues zu entdecken an diesem etwas
+
+**anderes verlieren** unser Geist springt oft von einem Gedanken zum nächsten Punkt unser Fokus verschwimmt. daher ist es bisweilen notwendig, sich von diesen störenden Gedanken abzuwenden. 
+
+folgende Bilder könnte helfen, Gedanken loszulassen 
+
+* stell dir vor , du sitzt in einem Bach. und der Bach nimmt all deine Gedanken mit
+* der Wind bläste sanft ins Gesicht. deine Gedanken werden die blasse Wolken weggeweht und verschwinden
+* atme die Gedanken aus, sie fließen mit der Luft davon
+
+kehre dann einfach zu dem Gegenstand deines Fokus zurück
+
+## völlig losgelöst 
 
 
 
