@@ -34,14 +34,13 @@ Vergleichend wird dieser Zustand oft als Mizu no Kokoro (Wasserherz) beschrieben
 
 **übung** 
 
-schließe deine Augen atme tief ein und atme tief aus . mit jedem Atem , lass deine Schultern fallen. lass das Gewicht des Tages, deine Gedanken einfach ableiten . dein Kopf dein Geist ist klar. dein Kopf erhebt sich leer und gegenwärtig wie aus einem Wasser. stelle dir die Bewegung vor, die du gleichwohl fühlen wirst. dein Körper ist genau im jetzt und hier. und deine Hände sind da und zu verteidigen und dann anzugreifen. du weißt genau was du tun musst. mache deine Augen und führe die Technik durch
+**Mini-Meditation (3s)**: schließe deine Augen atme tief ein und atme tief aus . mit jedem Atem , lass deine Schultern fallen. lass das Gewicht des Tages, deine Gedanken einfach ableiten . dein Kopf dein Geist ist klar. dein Kopf erhebt sich leer und gegenwärtig wie aus einem Wasser. stelle dir die Bewegung vor, die du gleichwohl fühlen wirst. dein Körper ist genau im jetzt und hier. und deine Hände sind da und zu verteidigen und dann anzugreifen. du weißt genau was du tun musst. mache deine Augen und führe die Technik durch
 
 **Analyse** vielleicht war der Partner etwas schneller oder etwas langsamer als du es beeinberechnet hast oder mit mehr Kraft.  nimm diese Information einfach auf und bereite dich auf den nächsten Angriff vor, die nächste Aktion.
 
 ## Verbot
 
 hiermit verbiete ich Dir, Dich zu ärgern. Ärger ist schlecht. er zieht deine Aufmerksamkeit auf etwas ab, was negativ ist. und du bist auch noch im Zentrum dieser Nähe von negativen Gedanken weil du denkst, dass du vielleicht versagt hattest. bleib im Hier und Jetzt es geht nicht um Fehler und schon Zuweisung. es geht nur darum deinen Weg zu folgen und besser zu werden. nimm dir ein konkretes Ziel vor und arbeite daran. arbeite nicht an zehn Techniken und fünf Schrittfolgen gleichzeitig sondern nimm eins nach dem anderen in Angriff. **Analysiere fühle bleibe gegenwärtig!**
-
 
 ### Mushin und Amygdala für den Notfall
 
