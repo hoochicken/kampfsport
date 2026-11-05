@@ -12,7 +12,13 @@ man kann in zweierlei Hinsicht fokussiert sein
 
 natürlich: in unserer heutigen Zeit sind wir alle ein bisschen nötig Gas geben. wir verdienen Geld mit einem Beruf, mit Kampfsport wahrscheinlich eher weniger. dennoch ist es wichtig, sich irgendwie grundlegend zu fokussieren und nicht tausend Sachen auf einmal zu machen und irgendwie anzufangen und alle irgendwie liegen zu
 
-**anDÄADHSLer**:
+**An ADHSLer**
+
+du gehörst zu einer der bemerkenswertesten Phänotypen. deine gedanken springen von A nach B Punkt du bist Feuer und Flamme für alles was dich gerade begeistert und rennst hier hin und dorthin. oder du fokussiert bist, bist du das fokussierteste was man überhaupt finden kann. wahrscheinlich bist du ein tausends außer in vielen Dingen. Schau dass deine Projekte in der Zahl in Grenzen bleiben. 
+
+**mittel-gutes Beispiel**: ich habe mich momentan auf folgende Projekte beschränkt: stand up Kickboxen, Jujutsu Training geben, wandern, japanische Musik, Rollenspiel und einen Roman anschreiben. und dieses Buch hier . wann immer wenn ich Lust habe an einem der Projekte zu arbeiten arbeite ich daran, das kann Stunden Tage oder Wochen gehen und bringe die Projekte voran. hoffentlich schliesse sich irgendwann eins ab . ich wäre natürlich viel schneller fertig machen würde, aber irgendwie ist es nicht mein Ding. immerhin bin ich den Kampfsport seit 20 Jahren treu und mache immer noch Jiu-Jitsu - immerhin! 
+
+mit anderen Worten: sei mit einer ADHS Stellung im Gehirn zu vernünftig wie möglich:-D
 
 **beispiele**
 
