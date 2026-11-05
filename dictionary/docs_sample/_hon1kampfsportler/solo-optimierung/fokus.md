@@ -1,6 +1,8 @@
 # Fokus 
 
-Definition Fokus 
+## Definition 
+
+als Fokus bezeichnet man die gezielte Ausrichtung des des Geistes der gedanklichen Anstrengungen auf eine definierte Sachlage. der Gegenstand der Gedanken befindet sich im Zentrum der Gedanken, man ist kon"zentr"iert.
 
 **beispiele**
 
