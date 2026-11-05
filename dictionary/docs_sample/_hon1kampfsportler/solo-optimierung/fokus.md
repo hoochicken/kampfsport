@@ -8,17 +8,17 @@ man kann in zweierlei Hinsicht fokussiert sein
 
 **gegenwärtiger Fokus**: das heißt die Gedanken befinden sich im gegenwärtigen Moment im Hier und Jetzt das Seins. alles was du machst was du tust was du siehst wird von dir aufgenommen und und bewusst wahrgenommen. es gibt keine Gedanken an Dinge, die außerhalb deiner Sichtung hört es sich. du bist genau hier
 
-**nachhaltiger Fokus**: der nachhaltige Fokus bedeutet Komma dass du generell einen Weg beschreitest Punkt nicht fünf Wege oder zehn Wege oder 300. du hast dich für den kampfsportweg entschieden also verzichtest du auf dreimal Disco die Woche und das Cannabis, du hältst dich von Alkohol fahren und stellst nicht fest, dass du morgen doch lieber den Musiker-Weg beschreiten möchtest und übermorgen lieber Radrennsportler werden möchte. du entscheidest dich für einen Weg und gehst diesen Weg
+**nachhaltiger Fokus**: der nachhaltige Fokus bedeutet , dass generell einen Weg zu beschreiten, ein Ziel zu verfolgen. nicht fünf Wege oder zehn Wege oder 300. du hast dich für den kampfsportweg entschieden also verzichtest du auf dreimal Disco die Woche und das Cannabis, du hältst dich von Alkohol fahren und stellst nicht fest, dass du morgen doch lieber den Musiker-Weg beschreiten möchtest und übermorgen lieber Radrennsportler werden möchte. du entscheidest dich für einen Weg und gehst diesen Weg
 
-natürlich: in unserer heutigen Zeit sind wir alle ein bisschen multi-tasker. wir verdienen Geld mit einem Beruf, mit Kampfsport wahrscheinlich eher weniger. dennoch ist es wichtig, sich irgendwie grundlegend zu fokussieren und nicht tausend Sachen auf einmal zu machen und irgendwie anzufangen und alle irgendwie liegen zu
+natürlich: in unserer heutigen Zeit sind wir alle ein bisschen multi-tasker. wir verdienen Geld mit einem Beruf, mit Kampfsport wahrscheinlich eher weniger. dennoch ist es wichtig, sich irgendwie grundlegend zu fokussieren und nicht tausend Sachen auf einmal zu machen und irgendwie anzufangen und alle irgendwie liegen zu lassen
 
 **An ADHSLer**
 
-du gehörst zu einer der bemerkenswertesten Phänotypen. deine gedanken springen von A nach B Punkt du bist Feuer und Flamme für alles was dich gerade begeistert und rennst hier hin und dorthin. oder du fokussiert bist, bist du das fokussierteste was man überhaupt finden kann. wahrscheinlich bist du ein tausends außer in vielen Dingen. Schau dass deine Projekte in der Zahl in Grenzen bleiben. 
+du gehörst zu einer der bemerkenswertesten Phänotypen. deine gedanken springen von A nach B und X und Ø. du bist Feuer und Flamme für alles was dich gerade begeistert und rennst hierhin und dorthin. oder du bist fokussiert , bist du das fokussierteste was man überhaupt finden kann, weil die dir überlegst, wie viele Panele an der Decke hängen, wril das .. na ja, das ist halt gerade interesssant für dich. wahrscheinlich bist du ein tausendsassa in vielen Dingen. Schau dass deine Projekte in der Zahl in Grenzen bleiben. 
 
-**mittel-gutes Beispiel**: ich habe mich momentan auf folgende Projekte beschränkt: stand up Kickboxen, Jujutsu Training geben, wandern, japanische Musik, Rollenspiel und einen Roman anschreiben. und dieses Buch hier . wann immer wenn ich Lust habe an einem der Projekte zu arbeiten arbeite ich daran, das kann Stunden Tage oder Wochen gehen und bringe die Projekte voran. hoffentlich schliesse sich irgendwann eins ab . ich wäre natürlich viel schneller fertig machen würde, aber irgendwie ist es nicht mein Ding. immerhin bin ich den Kampfsport seit 20 Jahren treu und mache immer noch Jiu-Jitsu - immerhin! 
+**mittel-gutes Beispiel**: ich habe mich momentan auf folgende Projekte beschränkt: stand up Kickboxen, Jujutsu Training geben, wandern, japanische Musik, irgebeine Sprache zu lernen, Rollenspiel und einen Roman anschreiben. und dieses Buch hier . wann immer wenn ich Lust habe an einem der Projekte zu arbeiten arbeite ich daran, das kann Stunden Tage oder Wochen gehen und bringe die Projekte voran. hoffentlich schliesse sich irgendwann eins ab . ich wäre natürlich viel schneller fertig machen würde, aber irgendwie ist es nicht mein Ding. immerhin bin ich den Kampfsport seit 20 Jahren treu und mache immer noch Jiu-Jitsu - immerhin! ( und dafür habe ich das professionelle Musik machen geopfert ein großes Opfer)
 
-mit anderen Worten: sei mit einer ADHS Stellung im Gehirn zu vernünftig wie möglich:-D
+mit anderen Worten: sei mit einer ADHS-Stellung im Gehirn so vernünftig wie möglich:-D
 
 **beispiele**
 
