@@ -12,7 +12,7 @@ man kann in zweierlei Hinsicht fokussiert sein
 
 natürlich: in unserer heutigen Zeit sind wir alle ein bisschen multi-tasker. wir verdienen Geld mit einem Beruf, mit Kampfsport wahrscheinlich eher weniger. dennoch ist es wichtig, sich irgendwie grundlegend zu fokussieren und nicht tausend Sachen auf einmal zu machen und irgendwie anzufangen und alle irgendwie liegen zu lassen
 
-**An ADHSLer**
+**An die ADHSLer unter uns**
 
 du gehörst zu einer der bemerkenswertesten Phänotypen. deine gedanken springen von A nach B und X und Ø. du bist Feuer und Flamme für alles was dich gerade begeistert und rennst hierhin und dorthin. oder du bist fokussiert , bist du das fokussierteste was man überhaupt finden kann, weil die dir überlegst, wie viele Panele an der Decke hängen, wril das .. na ja, das ist halt gerade interesssant für dich. wahrscheinlich bist du ein tausendsassa in vielen Dingen. Schau dass deine Projekte in der Zahl in Grenzen bleiben. 
 
@@ -20,26 +20,17 @@ du gehörst zu einer der bemerkenswertesten Phänotypen. deine gedanken springen
 
 mit anderen Worten: sei mit einer ADHS-Stellung im Gehirn so vernünftig wie möglich:-D
 
-**beispiele**
+## Fokus im traditionellen kampfsport
 
-**Ärger-Management**
+die drei status im traditionellen kampfsport. Wenn in den Kampfkünsten von den drei essentiellen Zuständen des Geistes gesprochen wird, bildet Mushin zusammen mit Zanshin und Fudōshin (oder alternativ Heijōshin) eine fundamentale Triade für die mentale Meisterschaft.
 
-beispiele
-Meditation
-bewusster Fokus Verlust
-Wiederherstellung des Fokus
+**Mushin (無心)** bedeutet wörtlich „Leerer Geist“ oder „Geist ohne Geist“. In der klassischen Kampfkunst bezeichnet dies einen Zustand maximalen Fokus **während des kampfs**. die antrainierte, reine Intuition übernimmt die Kontrolle. dies ist vergleichbar mit dem modernen psychologischen Begriff des „Flow-Zustands“. dein verstand ist frei von Angst, Ego, Strategien oder störenden Gedanken ist.
 
-jeweils übungen
+du bist in einer Kampfsportart ausgebildet. und dein Körper reagierte blitzschnell  und vollkommen automatisch auf Angriffe. Es gibt kein Zögern. 
 
-die drei status im hap kampfsport
+Vergleichend wird dieser Zustand oft als Mizu no Kokoro ( Wasserherz) beschrieben: Ist das Wasser ruhig, reflektiert es die Umgebung glasklar; taucht eine Bedrohung auf, reagiert es unmittelbar und flexibel, ohne zu formen oder zu bewerten.
 
-Im klassischen Kampfsport (Budō) bezeichnet Mushin (無心 – „Leerer Geist“ oder „Geist ohne Geist“) einen Zustand maximalen Fokus, in dem der Verstand frei von Angst, Ego, Strategien oder störenden Gedanken ist. Statt blockierender Analysen übernimmt die antrainierte, reine Intuition die Kontrolle, was oft mit dem modernen psychologischen Begriff des „Flow-Zustands“ verglichen wird.
-Wenn in den Kampfkünsten von den drei essentiellen Zuständen des Geistes gesprochen wird, bildet Mushin zusammen mit Zanshin und Fudōshin (oder alternativ Heijōshin) eine fundamentale Triade für die mentale Meisterschaft:
-
-1. Mushin (無心) – Der leere Geist
-
-• Bedeutung: Handeln ohne Absicht oder egoorientiertes Nachdenken.
-• Im Kampf: Der Körper reagiert blitzschnell und vollkommen automatisch auf Angriffe. Es gibt kein Zögern. Vergleichend wird dieser Zustand oft als Mizu no Kokoro (ein Geist wie stilles Wasser) beschrieben: Ist das Wasser ruhig, reflektiert es die Umgebung glasklar; taucht eine Bedrohung auf, reagiert es unmittelbar und flexibel, ohne zu formen oder zu bewerten.
+**anmerkung**: in diesem Flow Zustand macht unser Gehirn eine Besonderheit. Eindrücke werden direkt an das Hirn geliefert. dies gilt für optische Reize wie auch auditive und haptische. normalerweise ist ein Gehirnteil zwischen geschaltet, dass diese Eindrücke verwaltet und Bewertet. dies ist ein automatischer Mechanismus in einer hoch Stresssituation wird diese voraus Bewertung der Eindrücke aufgehoben und stattdessen direkt das Hirn angesprochen. hatte bei einem potentiell tödlichen Fahrradunfall dieses Erlebnis. die Zeit hat sich aufgefaltet. die rettende Rolle rückwärts gefühlt 10 bis 15 Sekunden in Anspruch genommen. ich hatte alle Zeit der Welt
 
 2. Zanshin (残心) – Der verbleibende Geist
 
@@ -98,3 +89,14 @@ Mushin: When the Body Takes Over | The True Meaning of “No Mind”
 www.facebook.com
 Mushin (無心), Heijōshin (平常心) und Zanshin (残心) Der Geist, der bleibt ...
 19.07.2026 — Drei Zustände – ein Weg Diese drei geistigen Prinzipien ergänzen sich vollkommen. Mushin ermöglicht intuitives, unmittelbares Handeln. Heijōshin bewahrt die inn...
+
+**beispiele**
+
+**Ärger-Management**
+
+beispiele
+Meditation
+bewusster Fokus Verlust
+Wiederherstellung des Fokus
+
+jeweils übungen
