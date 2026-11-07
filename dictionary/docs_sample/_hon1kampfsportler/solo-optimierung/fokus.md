@@ -128,10 +128,25 @@ wie oben beschrieben verfolgst du mit dem nachhaltigen Fokus einen längerfristi
 
 **nachhaltiger Kampfsport-fokus** hier verfolgst du einen längeren Plan. du hast z.B den Wunsch, dein Bewegungsmuster anzupassen. dann setzt du dir einzelne konkrete Ziele . halte die Ziele schriftlich fest z.B
 
+**Beispiel: automatisiertes Ausweichen**
+
 * Anlass: Mirko Langarm hat mich mind. 20 Mal schwer getroffen mit der Schlaghand, ich bin ihm immer reingerannt
-* Mi - 08.10.: nach jeder Kombination bewege ich mich mit Analysetechnik in den toten Winkel des Partners, so bleibe ich sicher, das gilt für
+* Wunsch: toten Winkel ausnutzen
+* Ziel Mi - 08.10.: nach jeder Kombination bewege ich mich mit Analysetechnik in den toten Winkel des Partners, so bleibe ich sicher, das gilt für
     * Training, Partner mit Partner
     * Pratzentraining
     * freies Sparring
     * SANDSACK, auch beim Sandsack!!
-* Sparringstreff am 11.10.: Mirko trifft mich weniger, weil ich es ihm schwerer mache
+* Ergebnisprüfung: Sparringstreff am 11.10.: Mirko trifft mich weniger, weil ich es ihm schwerer mache
+* nächszer Step vielleicht: Oberkörper-Rollen??
+
+**Beispiel: schnelle Beinarbeit**
+
+* Anlass: Nils (Trainer) hat vermehrt Bemerkungen über meinen schneckiges Tempo bei den Beinen gemacht . leider hat er recht
+* Wumsch: svhnellere beinarbeit
+* Ziel: November, täglich
+    * 5 min Seilsprungen, ggf. bis 10 steigern
+    * 7 Übungen an Koordinations-Leiter (Karten mit Übungen einpacken)
+    * nach Trainingeinheit zusätzluch 3x 10 Jump-Squats
+* Überprüfung: ich lass Nies ein Video diesen Freitag machen von meinem Sparring. und dann in vier Wochen wieder, dann kann ich das vergleichen
+    
