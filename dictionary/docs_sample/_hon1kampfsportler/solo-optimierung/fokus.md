@@ -6,7 +6,7 @@ als Fokus bezeichnet man die gezielte Ausrichtung des des Geistes der gedanklich
 
 man kann in zweierlei Hinsicht fokussiert sein 
 
-**gegenwärtiger Fokus**: das heißt die Gedanken befinden sich im gegenwärtigen Moment im Hier und Jetzt das Seins. alles was du machst was du tust was du siehst wird von dir aufgenommen und und bewusst wahrgenommen. es gibt keine Gedanken an Dinge, die außerhalb deiner Sichtung hört es sich. du bist genau hier
+**gegenwärtiger Fokus** / **Kampf-Fokus**: das heißt die Gedanken befinden sich im gegenwärtigen Moment im Hier und Jetzt das Seins. alles was du machst was du tust was du siehst wird von dir aufgenommen und und bewusst wahrgenommen. es gibt keine Gedanken an Dinge, die außerhalb deiner Sichtung hört es sich. du bist genau hier
 
 **nachhaltiger Fokus**: der nachhaltige Fokus bedeutet , dass generell einen Weg zu beschreiten, ein Ziel zu verfolgen. nicht fünf Wege oder zehn Wege oder 300. du hast dich für den kampfsportweg entschieden also verzichtest du auf dreimal Disco die Woche und das Cannabis, du hältst dich von Alkohol fahren und stellst nicht fest, dass du morgen doch lieber den Musiker-Weg beschreiten möchtest und übermorgen lieber Radrennsportler werden möchte. du entscheidest dich für einen Weg und gehst diesen Weg
 
@@ -72,7 +72,7 @@ Der Geist lässt sich weder durch die Einschüchterungsversuche des Gegners, noc
 
 Hinweis: In manchen traditionellen Systemen wird anstelle von Fudōshin der Zustand Heijōshin (平常心) als dritter Pfeiler genannt – dieser beschreibt den „alltäglichen, gewohnten Geist“, also die Fähigkeit, mitten im Chaos eines Kampfes dieselbe Gelassenheit und Herzfrequenz wie im normalen Alltag beizubehalten.
 
-## Zusammenspiel der foki 
+## Zusammenspiel der kamof-foki 
 
 Diese drei Zustände greifen während des Trainings oder Kampfes wie Zahnräder ineinander:
 
@@ -120,3 +120,18 @@ bewusster Fokus Verlust
 Wiederherstellung des Fokus
 
 jeweils übungen
+
+
+## Nachhaltiger Fokus - Wünsche und Ziele
+
+wie oben beschrieben verfolgst du mit dem nachhaltigen Fokus einen längerfristigen Plan 
+
+**nachhaltiger Kampfsport-fokus** hier verfolgst du einen längeren Plan. du hast z.B den Wunsch, dein Bewegungsmuster anzupassen. dann setzt du dir einzelne konkrete Ziele . halte die Ziele schriftlich fest z.B
+
+* Anlass: Mirko Langarm hat mich mind. 20 Mal schwer getroffen mit der Schlaghand, ich bin ihm immer reingerannt
+* Mi - 08.10.: nach jeder Kombination bewege ich mich mit Analysetechnik in den toten Winkel des Partners, so bleibe ich sicher, das gilt für
+    * Training, Partner mit Partner
+    * Pratzentraining
+    * freies Sparring
+    * SANDSACK, auch beim Sandsack!!
+* Sparringstreff am 11.10.: Mirko trifft mich weniger, weil ich es ihm schwerer mache
