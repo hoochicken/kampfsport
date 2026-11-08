@@ -1,4 +1,4 @@
-## wahre trainingssätze
+54## wahre trainingssätze
 
 **gesundheit** wir wollen alle gesund bleiben. passt aufeinander auf
 
@@ -76,4 +76,8 @@ Diese 21 asketischen Regeln verfasste angeblich Musashi nur eine Woche vor seine
 19. Respektiere Buddha und die Götter, ohne auf ihre Hilfe zu zählen. (Glaube an Höheres, aber vertraue auf deine eigene Kraft).
 20. Du magst deinen Körper aufgeben, aber bewahre deine Ehre. (Integrität steht über dem physischen Überleben).
 21. Weiche niemals vom Weg ab. (Bleibe deinen Prinzipien unter allen Umständen treu).
+
+## Suns Kriegskunst
+
+
   
