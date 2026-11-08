@@ -25,11 +25,11 @@ durch dieses absolute Richtung System ist gewährleistet, dass man sich transpar
 die Kata besteht aus einer Begrüßung und einem Abschlusspunkt dazwischen wird dieselbe Kombination viermal ausgeführt.
 
 1. init
-2. laufen nach backbord
+2. laufen nach steuerbord
     * abschnitt 1: kombi auf recht
     * abschnitt 2: auf links
 3. wende
-4. laufend nach Steuerbord
+4. laufend nach backbord
     * abschnitt 3: kombi auf links
     * abschnitt 4: kombi auf rechts
 5. abschluss
