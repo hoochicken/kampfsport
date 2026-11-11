@@ -2,7 +2,7 @@
 
 wenn du dieses Buch liest, so willst du Veränderungen in deinem Leben es gibt grundsätzlich zwei Möglichkeiten, diese Veränderung in dein Leben einzufügen 
 
-## abrupt ubd allmählich
+## abrupt oder allmählich
 
 **abrupt** 
 
@@ -20,10 +20,18 @@ der richtige Weg ist der zu dir passt. und wenn man von Disziplin oder Nachhalti
 
 ## motivation
 
-grundsätzlich entscheidet man zwischen intrinsischer und extrinsischer Motivation. lass uns dies an folgendem Beispiel anschauen
+grundsätzlich entscheidet man zwischen intrinsischer und extrinsischer Motivation. 
 
-du hast dir vorgenommen, jeden Tag um 6:30 Uhr aufzustehen Punkt von 6 Uhr bis 7:30 Uhr und Bewegungsformen trainieren. dein ziel ist es, schnellere Beinarbeit zu haben
+dies lässt sich gerade am Beispiel "Disziplin" besonders gut zeigen Punkt intrinsisch ist: du selbst bist mit deiner Leistung zufrieden. extrinsisch: es gibt eine Belohnung, die dich antreibt
 
- dies lässt sich gerade am Beispiel "Disziplin" besonders gut zeigen Punkt intrinsisch ist: du selbst bist mit deiner Leistung zufrieden. jedes mal wenn du es z.B schaffst früh aufzustehen, weil du dir das vorgenommen hast und 20 Minuten zu trainieren, freust du dich darüber. dass du das auf die Reihe kriegst. wenn von außen Belohnung an Dich herangetragen werden, das kannst auch du selbst sein. beispielsweise
+lass uns dies an folgendem Beispiel anschauen
+
+dein **wunsch** ist es, schnellere Beinarbeit zu haben. also du hast dir folgendes **ziel** gesteckt: du hast dir vorgenommen, jeden Tag um 6:00 Uhr aufzustehen  von 6.00-6:30 Uhr seilzuspringen und Bewegungsformen trainieren. 
+
+**intrinsisch**: jedes mal wenn du es z.B schaffst früh aufzustehen, weil du dir das vorgenommen hast und 20 Minuten zu trainieren, freust du dich darüber. dass du das auf die Reihe kriegst. du bust so geil!, und das fühlst du mit jedem Morgen
+
+**extrinsisch**: jedes mal, wenn du trainierst, kriegst du einen Punkt, den notierst du dir auf einer Liste sobald die Liste 10 Punkte hat, darfst du eine Tafel Schokolade essen. 
+
+(statt einer Punkteliste kannst du auch für jede Trainingseinheit eine Büroklammer an eine andere Heften, so dass du mit der Zeit eine Kette erhältst. ist die Kette 50 cm lang, dann gehst du in den Europapark
 
 Definition Disziplin Definition Nachhaltigkeit, keine 1000 Schnellschüsse, sondern lieber eine Sache durchsetzen und umsetzen. Tipps zum dranbleiben mit Wäscheklammern Büroklammern zu einer Kette zusammenführen, Dinge für sich selbst tun auch wenn sie mühsam sind, man freut sich dann am nächsten Tag darüber
