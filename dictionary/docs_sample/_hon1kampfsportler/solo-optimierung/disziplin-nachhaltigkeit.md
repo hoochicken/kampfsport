@@ -2,7 +2,11 @@
 
 wenn du dieses Buch liest, so willst du Veränderungen in deinem Leben es gibt grundsätzlich zwei Möglichkeiten, diese Veränderung in dein Leben einzufügen 
 
-**abrupt** eine abrupte Veränderung machen manche Leute wenn Sie ein einschneidendes Ereignis hatten Punkt oft ist ein Unfall eine Diagnose oder eine andere gravierende Bedrohungssituation im Hintergrund mit der abrupten Änderung werden diverse festen des normalen Lebens plötzlich verändert. es wird an vielen Dingen Änderungen durchgeführt oder eine massive Änderung durchgeführt. 
+## abrupt ubd allmählich
+
+**abrupt** 
+
+eine abrupte Veränderung machen manche Leute wenn Sie ein einschneidendes Ereignis hatten Punkt oft ist ein Unfall eine Diagnose oder eine andere gravierende Bedrohungssituation im Hintergrund mit der abrupten Änderung werden diverse festen des normalen Lebens plötzlich verändert. es wird an vielen Dingen Änderungen durchgeführt oder eine massive Änderung durchgeführt. 
 
 durch die Bedrohungssituation bzw die große Motivation hat ist es ja möglich diese Veränderung beizubehalten abrupt und perfekt in ihrem Leben einzugleichen.
 
@@ -13,5 +17,13 @@ manche Personen schleichen Veränderungen eher in ihr Leben ein Punkt es werden 
 **der richtige weg**
 
 der richtige Weg ist der zu dir passt. und wenn man von Disziplin oder Nachhaltigkeit spricht, bedeutet das nicht, dass du das bis zum Ende deines Lebens beibehalten wirst oder musst Maßnahmen die du triffst, passen in der Regel immer zu deiner momentanen Situation. wenn du also ganz fleißig trainierst und jeden Tag auf der Matte steht verändern dann plötzlich ein Pflegefall in der Familie sei nicht traurig, dass etwas nicht mehr klappt. Punkt es ist ein Rätsel, eine kleine Knobelei, die du lösen möchtest habe Spaß dabei habe Spaß an den Gedankengängen, die nicht funktionieren, und finde die Gedankengänge die für die neue Situation funktionieren
+
+## motivation
+
+grundsätzlich entscheidet man zwischen intrinsischer und extrinsischer Motivation. lass uns dies an folgendem Beispiel anschauen
+
+du hast dir vorgenommen, jeden Tag um 6:30 Uhr aufzustehen Punkt von 6 Uhr bis 7:30 Uhr und Bewegungsformen trainieren. dein ziel ist es, schnellere Beinarbeit zu haben
+
+ dies lässt sich gerade am Beispiel "Disziplin" besonders gut zeigen Punkt intrinsisch ist: du selbst bist mit deiner Leistung zufrieden. jedes mal wenn du es z.B schaffst früh aufzustehen, weil du dir das vorgenommen hast und 20 Minuten zu trainieren, freust du dich darüber. dass du das auf die Reihe kriegst. wenn von außen Belohnung an Dich herangetragen werden, das kannst auch du selbst sein. beispielsweise
 
 Definition Disziplin Definition Nachhaltigkeit, keine 1000 Schnellschüsse, sondern lieber eine Sache durchsetzen und umsetzen. Tipps zum dranbleiben mit Wäscheklammern Büroklammern zu einer Kette zusammenführen, Dinge für sich selbst tun auch wenn sie mühsam sind, man freut sich dann am nächsten Tag darüber
