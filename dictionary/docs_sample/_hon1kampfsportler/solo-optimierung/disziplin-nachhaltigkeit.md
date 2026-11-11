@@ -34,7 +34,14 @@ dein **wunsch** ist es, schnellere Beinarbeit zu haben. also du hast dir folgend
 
 (statt einer Punkteliste kannst du auch für jede Trainingseinheit eine Büroklammer an eine andere Heften, so dass du mit der Zeit eine Kette erhältst. ist die Kette 50 cm lang, dann gehst du in den Europapark
 
-Exkurs: in der Arbeitswelt spielt intrinsische und extrinsische Motivation eine riesige Rolle. ein extrinsisch motivierter mensch arbeitet, und z.B Geld zu verdienen . und zwar nur das Geld deswegen. der Job wird in langfristig trotzdem unzufrieden machen Punkt die ihn Spaß macht und sie erfüllt. intrinsisch motivierte Menschen haben generell ein großes Interesse an dem was sie tun, bilden sich selbstständig weiter und sind zum Teil die besessen von dem was sie tun Punkt in der Regel werden intensiv motivierte Menschen auch gut in dem was sie tun denn sie bleiben lange am Ball, bauen Erfahrung auf und machen sich Gedanken über Optimierung
+**Exkurs in die Arbeitswelt**: bezügluch arbeit spielt intrinsische und extrinsische Motivation eine riesige Rolle. ein extrinsisch motivierter mensch arbeitet, und z.B Geld zu verdienen . und zwar nur das Geld deswegen. der Job wird in langfristig trotzdem unzufrieden machen. 
+
+ein intrinsisch motivierzer mensch macht eune arbeit, die ihm Spaß macht und sie erfüllt. intrinsisch motivierte Menschen haben generell ein großes Interesse an dem was sie tun, bilden sich selbstständig weiter und sind zum Teil die besessen von dem was sie tun Punkt in der Regel werden intensiv motivierte Menschen auch gut in dem was sie tun denn sie bleiben lange am Ball, bauen Erfahrung auf und machen sich Gedanken über Optimierung
+
+natürlich gibt es hier auch ein Übergang. angenommen der intrinsisch motivierte Mensch wird so schlecht bezahlt, dass er sich nicht wertgeschätzt fühlt, so wird auch ihm die Motivation verloren gehen . fehlende Wertschätzung führt zu de-Motivation
+
+## Dein Plan
+
+jetzt ist es an der Zeit, dass du dir Gedanken machst, ob und wenn was du verändern möchtest. oder möchtest früh aufstehen. oder du möchtest immer pünktlich zum Training kommen, weil du sonst immer 15 Minuten zu spät aufstehst.
 
 
-Definition Disziplin Definition Nachhaltigkeit, keine 1000 Schnellschüsse, sondern lieber eine Sache durchsetzen und umsetzen. Tipps zum dranbleiben mit Wäscheklammern Büroklammern zu einer Kette zusammenführen, Dinge für sich selbst tun auch wenn sie mühsam sind, man freut sich dann am nächsten Tag darüber
