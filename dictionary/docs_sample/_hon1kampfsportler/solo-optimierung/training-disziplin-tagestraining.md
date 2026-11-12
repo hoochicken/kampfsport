@@ -1,1 +1,0 @@
-# Training & Disziplin, Tagestraining
