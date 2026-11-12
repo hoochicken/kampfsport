@@ -1,1 +1,129 @@
-#
+# Bunkai
+
+## Definition
+
+Bunkai lässt sich als die wahre Vorstellung dessen beschreiben, was du gerade tust.
+
+Es ist die Bedeutung einer Technik. Die Absicht hinter der Bewegung. Die Vorstellung davon, was diese Technik am Körper des Gegners bewirkt.
+
+## Herkunft
+
+Das Wort Bunkai setzt sich aus zwei japanischen Schriftzeichen (Kanji) zusammen:
+
+* 分 (bun): teilen, trennen, Minute oder Verständnis = Auseinandernehmen einer komplexen Sache.
+* 解 (kai): lösen, erklären, auflösen oder verstehen.
+
+Zusammen beschreiben die Zeichen ein tiefgründiges Studium einer komplizierten Angelegenheit durch das Auseinandernehmen und anschließende Wiederzusammenfügen.
+
+Im Karate bezeichnet Bunkai die praktische Interpretation und Anwendung der Bewegungen einer Kata mit einem Trainingspartner.
+
+Dabei werden die einzelnen Bewegungen untersucht und auf mögliche Anwendungen in der Selbstverteidigung übertragen. Ein vermeintlicher Block kann beispielsweise auch als Hebel, Wurf oder andere Technik verstanden werden.
+
+Ziel ist es, die Bedeutung der Kata zu verstehen und ihre Bewegungen in konkrete Handlungsmöglichkeiten zu übersetzen.
+
+### Ohne Bunkai
+
+Nehmen wir den Jab als Beispiel.
+
+Grundsätzlich ist ein Jab zunächst nur eine Bewegung. Der Arm wird gestreckt, die Faust bewegt sich nach vorne. Ohne weitere Vorstellung ist dies nicht viel mehr als eine koordinierte Anordnung von Knochen, Muskeln und Gelenken.
+
+In diesem Verständnis trainieren viele Anfänger. Sie lernen zunächst die reine Bewegung.
+
+Der Fauststoß wird ausgeführt, weil der Trainer gesagt hat, dass man den Arm so bewegen soll.
+
+Die Technik besitzt Form, aber noch keine Bedeutung. Dieses oberflächliche Level heisst Omote (表).
+
+### Mit Bunkai
+
+Erst das Bunkai macht aus der Bewegung eine Technik.
+
+Der Arm wird nicht einfach ausgestreckt. Schulter, Hüfte und Hara bewegen sich gemeinsam nach vorne. Die Faust wird im richtigen Moment gedreht. Die Knöchel treffen das Jochbein des Gegners.
+
+Die Bewegung endet nicht an der Oberfläche des Gesichts. Sie setzt sich gedanklich über die Trefferfläche hinaus fort.
+
+Plötzlich hat die Technik eine Bedeutung.
+
+Man versteht:
+
+* Wo getroffen wird.
+* Warum dort getroffen wird.
+* Welche Wirkung entstehen soll.
+* Welche Reaktion beim Gegner wahrscheinlich ist.
+* Welche Folgetechniken sich dadurch ergeben.
+
+Aus einer Bewegung wird eine Idee. Aus einer Idee wird eine Technik.
+
+Dieses tiefere Level heisst dann 	zunächst Ura (裏). 
+
+Verfeinert sich das Verständnis weiter, kommt man zum Honto (本当)	 genannten Level: der fundamentalen Bedeutung / Ausführung, die ihren Ursprung in der Regel in der oft  Selbstverteidigung hat.
+
+## Fragen des Bunkai
+
+Bunkai beantwortet unter anderem folgende Fragen:
+
+* **Was ist die exakte Trefferfläche?**
+* **Wo und wann treffe ich den Gegner?** - bzgl. Timing und Lokalität
+* **Wo endet meine Bewegung?**
+* **Welche Wirkung hat die Technik?**
+* **Wie manipuliert die Technik den Gegner?**
+* **Welche Verletzungen können entstehen?**
+
+## Beispiel
+
+Als ich begann, Langstock zu trainieren, beherrschte ich die Bewegungen recht gut. Ich konnte den Stock führen, drehen und kontrollieren.
+
+Aber ich verstand ihn nicht als Waffe.
+
+Eines Tages hörte ich einen Bericht über Gewalttaten mit Schlagwaffen. Die Vorstellung der Hilflosigkeit der Opfer ließ mich nicht mehr los.
+
+Plötzlich begann ich anders zu trainieren.
+
+Mir wurde bewusst, was ein Schlag an der Schläfe bewirken kann. Was ein Stoß in die Augenhöhle bedeutet. Welche Folgen ein kräftiger Treffer auf das Knie haben kann.
+
+Von diesem Moment an war der Stock für mich keine Übung mehr.
+
+Er war eine Waffe. Er ist meine Waffe.
+
+Von diesem Tag an beachte ich beim Stocktraining viel besser, Trefffläche, Drehmoment, Blickrichtung, Greifposition, Standfläche, Hüftrotation ...
+
+## Bunkai in der Kata
+
+Nehmen wir eine Bewegung aus einer Kata.
+
+Eine scheinbar einfache Hakenbewegung kann verschiedene Bedeutungen besitzen:
+
+* **Faustschlag zum Gesicht**
+* **Block gegen einen Angriff**
+* **Hebel oder Armbruch**
+
+Äußerlich sieht die Bewegung ähnlich aus. Innerlich handelt es sich um völlig unterschiedliche Techniken. Deshalb solltest du bei einer Kata wissen, welche Bedeutung eine Bewegung für dich besitzt.
+
+Wenn du dies nicht weißt, bleiben die Bewegungen leer. Erst das Bunkai macht aus einer Bewegung eine klare Absicht.
+
+## Wachstum
+
+Dein Bunkai wächst mit jeder Wiederholung.
+
+Je häufiger du eine Technik trainierst, desto mehr Feinheiten erkennst du. Das Bunkai deiner Technik ist niemals abgeschlossen.
+
+Mit jeder Erfahrung wird es größer. Mit jedem Fehler wird es genauer. Mit jeder Wiederholung wird es schärfer.
+
+## Das Schwert
+
+> Bunkai ist wie ein Schwert.
+> Unachtsamkeit und Faulheit lassen es stumpf werden.
+> Jede Wiederholung schärft die Klinge.
+> Beständiges Üben erhält ihre Schärfe.
+
+## Hinweis
+
+Es ist völlig in Ordnung, Techniken manchmal einfach nur zu wiederholen und einzuschleifen.
+
+* Nimm dir jedoch auch Zeit, die Technik bewusst zu erleben.
+* Stelle dir vor, was sie bewirkt.
+* Stelle dir den Gegner vor.
+* Stelle dir die Wirkung vor.
+
+* Erst dann wird aus einer Bewegung Verständnis.
+
+**Frage dich**: Wie trainierst? Mit Bunkai oder ohne? Was lässt dich das Bunkai veröieren? Was lässt dich dein Bunkei wiederfinden? Wann kann es sinnvoll sein, ohne Bunkai zu trainieren (ja, auch das gibt es)? Was war dein Initialerlebnis?
