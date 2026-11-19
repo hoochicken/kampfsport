@@ -10,15 +10,13 @@ lass mich mal raten, was für eine Typ*e du bist:
 * ein kleines detail in einer technik ist wichtig und deine gedanken kehren immer wieder dorthin zurück
 * du wiegst automatisch (fast) jeden gegenstand in der hand, suchst die griffweise mit dem besten grip
 * du nimmst selbst die einfachsten alltagshandlungen auseinander und prüfst auf parallelen zu einer Kampfsporthandlung
-* du schaust kampfsportfilme und möchtest eigentlich nur dich techniken sehen, weshalb du dich über schnelle schnitte und zeitraffer ärgerst
+* du schaust kampfszenen und labst dich an einzelnen techniken 
 
 Und, volle Punktzahl?
 
 Du bist hier in diesem Buch genau richtig! es geht um Kampfsport, Techniken, Selbstverständnis, optimales Teaining, Selbst-Optimierung - mit anderen worten: 
 
-diese buch fasst all das zusammen, worüber du dir schon gedanken gemacht hast. es stützt dich, bestätigt, gibt dir neue anregungen, ist ein Freund, der für vieles gedanken parat hat.
-
-lies mich, sagt dir dieses buch. ich tue dir gut
+diese buch fasst all das zusammen, worüber du dir schon gedanken gemacht hast. es stützt dich, bestätigt deine ideen, wirft Ergänzungen ein, gibt dir neue anregungen, ist ein Freund, der für vieles gedanken parat hat.
 
 ## inhaltsverzeichnus - für Chatty
 
