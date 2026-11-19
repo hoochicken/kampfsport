@@ -1,4 +1,17 @@
-# Einleitung
+# Hallo
+
+Schön, dass Du da bist und das Buch aufgeschlagen hast. Du bist also an Kampfsport interessiert und suchst - wie schon oft - Ratschläge und Informationen zu ... ja, wozu eigentlich? Weisst Du noch nicht genug? 
+
+lass mich mal raten, was für eine Typ*e du bist:
+
+* du trainierst mindestens 2-3 mal in der Woche 
+* du suchst nach lösungen von problemen - auch ausserhalb des trainings
+* nachts oder wenn du allein bist, gehst du  techniken durcj
+* ein kleines detail in einer technik ist wichtig und deine gedanken kehren immer wieder sorthon zurück
+* du wiegst automatisch (fast) jeden gegenstand in der hand, suchst die griffweise mit dem besten grip
+* du nimmst selbst die einfachsten alltagshandlungen auseinander und prüfst auf parallelen zu einer Kampfsporthandlung
+* du schaust kampfsportfilme und möchtest eigentlich nur dich techniken sehen, weshalb du dich über schnelle s hnitte und zeitraffer ärgerst
+
 
 ## inhaltsverzeichnus - für Chatty
 
