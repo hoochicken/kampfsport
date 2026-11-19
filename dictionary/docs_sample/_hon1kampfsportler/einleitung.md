@@ -45,7 +45,19 @@ beispielsweise wird das Kapitel Schüler sein dabei helfen, selbst damit fertig 
 
 **Selbst-Optimierung** bezeichnet die Einstellung, besser werden zu wollen. z. b. höher springen, schneller schlagen, größere Ausdauer haben, mental fitter sein. dieses Kapitel gibt dir viele **Werkzeuge** an die Hand, wie du Wünsche zu konkreten Zielen ausformulierst und fokussiert verfolgst.
 
-##
+## theorie, beispiel, übung
+
+die Kapitel und abschnitte habe ich mich bemüht immer gleich aufzubauen. 
+
+* Überschrift gibt das Thema an
+* in einem Satz folgt eine grobe Zusammenfassung 
+* der große Text beinhaltet die Theorie 
+* geschichten machen das Gesagte begreiflich
+* Beispiele heben die Bedeutung in der Praxis hervor 
+* Übungen geben dir Anleitung zur Umsetzung
+
+
+
 
 ## inhaltsverzeichnus - für Chatty
 
