@@ -20,7 +20,7 @@ Du bist hier in diesem Buch genau richtig! es geht um Kampfsport, Techniken, Sel
 
 diese buch fasst all das zusammen, worüber du dir schon gedanken gemacht hast. es stützt dich, bestätigt deine ideen, wirft Ergänzungen ein, gibt dir neue anregungen, ist ein Freund, der für vieles gedanken parat hat.
 
-## bitte lesen
+## lesen, und zwar gezielt
 
 dieses Buch lässt sich auf verschiedene Arten lesen
 
@@ -35,6 +35,17 @@ dieses Buch lässt sich auf verschiedene Arten lesen
     * Kapitel gewichten
     * zeitplan erstellen z b. 1 Abschnitt / Woche durchgehen = lesen, nachsinnen
 
+## was dich erwartet
+
+... ist ein kleines kapitel zu **theorerie**. darin werden die Geschichte und (interessanter) Erscheinungsformen von Kampfsport und Kampfkunst aufgezählt. außerdem findest du ein kleines Sammelsurium an leer setzen darin.
+
+in Kapitel **Selbstverständnis** gehst du zurück zu deinem schülersein und bewegst dich durch die einzelnen Entwicklungsphasen eines kampfsportlers oder Kämpfers durch. hier werden dir bekannte Perspektiven vertieft und neue Perspektiven aufgezeigt. 
+
+beispielsweise wird das Kapitel Schüler sein dabei helfen, selbst damit fertig zu werden, wie du Schüler bist gleichzeitig schärft es deine Wahrnehmung, wenn du bereits als Trainer tätig bist und neue Schüler hast. hier findest du sie aufgeschrieben und auf Papier schwarzer sein auf weiß: der Beweis dass seine Theorien und Gedankengänge richtig sind
+
+**Selbst-Optimierung** bezeichnet die Einstellung, besser werden zu wollen. z. b. höher springen, schneller schlagen, größere Ausdauer haben, mental fitter sein. dieses Kapitel gibt dir viele **Werkzeuge** an die Hand, wie du Wünsche zu konkreten Zielen ausformulierst und fokussiert verfolgst.
+
+##
 
 ## inhaltsverzeichnus - für Chatty
 
