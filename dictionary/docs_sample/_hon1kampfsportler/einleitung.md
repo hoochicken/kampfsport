@@ -1,6 +1,8 @@
 # Hallo
 
-Schön, dass Du da bist und das Buch aufgeschlagen hast. Du bist also an Kampfsport interessiert und suchst - wie schon oft - Ratschläge und Informationen zu ... ja, wozu eigentlich? Weisst Du noch nicht genug? 
+## Schön
+
+... dass Du da bist und das Buch aufgeschlagen hast. Du bist also an Kampfsport interessiert und suchst - wie schon oft - Ratschläge und Informationen zu ... ja, wozu eigentlich? Weisst Du noch nicht genug? 
 
 lass mich mal raten, was für eine Typ*e du bist:
 
@@ -17,6 +19,22 @@ Und, volle Punktzahl?
 Du bist hier in diesem Buch genau richtig! es geht um Kampfsport, Techniken, Selbstverständnis, optimales Teaining, Selbst-Optimierung - mit anderen worten: 
 
 diese buch fasst all das zusammen, worüber du dir schon gedanken gemacht hast. es stützt dich, bestätigt deine ideen, wirft Ergänzungen ein, gibt dir neue anregungen, ist ein Freund, der für vieles gedanken parat hat.
+
+## bitte lesen
+
+dieses Buch lässt sich auf verschiedene Arten lesen
+
+* **traditionell** : vorne anfangen bis hinten durchlesen 
+* **thematisch**: picke das raus , 
+    * was dich gerade interessiert oder
+    * wozu du gerade ein Training vorbereitest oder 
+    * wozu du dich gerade weiterbildest
+* **zufällig**: Schlag irgendwo auf und lies rein
+* **systematisch**: 
+    * inhaltsverzeichnis sichten
+    * Kapitel gewichten
+    * zeitplan erstellen z b. 1 Abschnitt / Woche durchgehen = lesen, nachsinnen
+
 
 ## inhaltsverzeichnus - für Chatty
 
