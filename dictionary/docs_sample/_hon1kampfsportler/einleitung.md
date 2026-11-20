@@ -1,118 +1,110 @@
-# Hallo
+# Hallo!
 
-## Schön
+## Schön, dass du da bist!
 
-... dass Du da bist und das Buch aufgeschlagen hast. Du bist also an Kampfsport interessiert und suchst - wie schon oft - Ratschläge und Informationen zu ... ja, wozu eigentlich? Weisst Du noch nicht genug? 
+... dass du da bist und das Buch aufgeschlagen hast. Du bist also an Kampfsport interessiert und suchst – wie schon oft – Ratschläge und Informationen zu ... ja, wozu eigentlich? Weißt du noch nicht genug?
 
-lass mich mal raten, was für eine Typ*e du bist:
+Lass mich mal raten, was für ein Typ Mensch du bist:
 
-* du trainierst mindestens 2-3 mal in der Woche 
-* du suchst nach lösungen von problemen - auch ausserhalb des trainings
-* nachts oder wenn du allein bist, gehst du  techniken durch
-* ein kleines detail in einer technik ist wichtig und deine gedanken kehren immer wieder dorthin zurück
-* du wiegst automatisch (fast) jeden gegenstand in der hand, suchst die griffweise mit dem besten grip
-* du nimmst selbst die einfachsten alltagshandlungen auseinander und prüfst auf parallelen zu einer Kampfsporthandlung
-* du schaust kampfszenen und labst dich an einzelnen techniken 
+- Du trainierst mindestens zwei- bis dreimal in der Woche.
+- Du suchst nach Lösungen für Probleme – auch außerhalb des Trainings.
+- Nachts oder wenn du allein bist, gehst du Techniken durch.
+- Ein kleines Detail in einer Technik ist wichtig, und deine Gedanken kehren immer wieder dorthin zurück.
+- Du wiegst automatisch (fast) jeden Gegenstand in der Hand und suchst nach der Griffweise mit dem besten Grip.
+- Du nimmst selbst die einfachsten Alltagshandlungen auseinander und prüfst sie auf Parallelen zu einer Kampfsporthandlung.
+- Du schaust Kampfszenen und labst dich an einzelnen Techniken.
 
 Und, volle Punktzahl?
 
-Du bist hier in diesem Buch genau richtig! es geht um Kampfsport, Techniken, Selbstverständnis, optimales Teaining, Selbst-Optimierung - mit anderen worten: 
+Du bist in diesem Buch genau richtig! Es geht um Kampfsport, Techniken, Selbstverständnis, optimales Training und Selbstoptimierung – mit anderen Worten:
 
-diese buch fasst all das zusammen, worüber du dir schon gedanken gemacht hast. es stützt dich, bestätigt deine ideen, wirft Ergänzungen ein, gibt dir neue anregungen, ist ein Freund, der für vieles gedanken parat hat.
+Dieses Buch fasst all das zusammen, worüber du dir bereits Gedanken gemacht hast. Es stützt dich, bestätigt deine Ideen, wirft Ergänzungen ein und gibt dir neue Anregungen. Es ist ein Freund, der für vieles Gedanken parat hat.
 
-## lesen, und zwar gezielt
+## Lesen – und zwar gezielt
 
-dieses Buch lässt sich auf verschiedene Arten lesen
+Dieses Buch lässt sich auf verschiedene Arten lesen:
 
-* **traditionell** : vorne anfangen bis hinten durchlesen 
-* **thematisch**: picke das raus , 
-    * was dich gerade interessiert oder
-    * wozu du gerade ein Training vorbereitest oder 
-    * wozu du dich gerade weiterbildest
-* **zufällig**: Schlag irgendwo auf und lies rein
-* **systematisch**: 
-    * inhaltsverzeichnis sichten
-    * Kapitel gewichten
-    * zeitplan erstellen z b. 1 Abschnitt / Woche durchgehen = lesen, nachsinnen
+- **Traditionell:** Du fängst vorne an und liest es bis zum Ende durch.
+- **Thematisch:** Du suchst dir gezielt das heraus,
+  - was dich gerade interessiert,
+  - wozu du gerade ein Training vorbereitest oder
+  - womit du dich gerade weiterbildest.
+- **Zufällig:** Du schlägst irgendwo auf und liest einfach hinein.
+- **Systematisch:**
+  - Inhaltsverzeichnis sichten
+  - Kapitel gewichten
+  - Zeitplan erstellen, z. B. einen Abschnitt pro Woche durchgehen: lesen und darüber nachsinnen.
 
-## was dich erwartet
+## Theorie, Beispiel, Übung
 
-... ist ein kleines kapitel zu **theorerie**. darin werden die Geschichte und (interessanter) Erscheinungsformen von Kampfsport und Kampfkunst aufgezählt. außerdem findest du ein kleines Sammelsurium an leer setzen darin.
+Bei den Kapiteln und Abschnitten habe ich mich bemüht, immer dem gleichen Aufbau zu folgen:
 
-in Kapitel **Selbstverständnis** gehst du zurück zu deinem schülersein und bewegst dich durch die einzelnen Entwicklungsphasen eines kampfsportlers oder Kämpfers durch. hier werden dir bekannte Perspektiven vertieft und neue Perspektiven aufgezeigt. 
+- **Überschrift:** Gibt das Thema an.
+- **In einem Satz:** Es folgt eine grobe Zusammenfassung.
+- **Der große Text:** Beinhaltet die Theorie.
+- **Geschichten:** Machen dir das Gesagte begreiflich.
+- **Beispiele:** Zeigen eine mögliche Umsetzung.
+- **Übungen:** Geben dir konkrete Anleitungen, die du sofort umsetzen kannst.
 
-beispielsweise wird das Kapitel Schüler sein dabei helfen, selbst damit fertig zu werden, wie du Schüler bist gleichzeitig schärft es deine Wahrnehmung, wenn du bereits als Trainer tätig bist und neue Schüler hast. hier findest du sie aufgeschrieben und auf Papier schwarzer sein auf weiß: der Beweis dass seine Theorien und Gedankengänge richtig sind
+Beachte: Das Buch hat viele Kapitel und Abschnitte. Entsprechend groß ist die Informationsflut. Lass dir Zeit, nimm dir Zeit. Zum Beispiel:
 
-**Selbst-Optimierung** bezeichnet die Einstellung, besser werden zu wollen. z. b. höher springen, schneller schlagen, größere Ausdauer haben, mental fitter sein. dieses Kapitel gibt dir viele **Werkzeuge** an die Hand, wie du Wünsche zu konkreten Zielen ausformulierst und fokussiert verfolgst.
+- Lies den Abschnitt durch.
+- Mach dir deine eigenen Gedanken und passe die Inhalte an.
+- Setze **einen konkreten Punkt** um.
 
-## theorie, beispiel, übung
+Arbeite also nicht an tausend Dingen gleichzeitig. Bleib fokussiert und schleife eines nach dem anderen ein.
 
-die Kapitel und abschnitte habe ich mich bemüht immer gleich aufzubauen. 
+## Lebenslauf
 
-* Überschrift gibt das Thema an
-* in einem Satz folgt eine grobe Zusammenfassung 
-* der große Text beinhaltet die Theorie 
-* geschichten machen das Gesagte begreiflich
-* Beispiele heben die Bedeutung in der Praxis hervor 
-* Übungen geben dir Anleitung zur Umsetzung
+Damit du mich ein bisschen kennenlernen kannst, hier ein kleiner Abriss meines Lebens.
 
+Zum Zeitpunkt des Schreibens dieses Buches bin ich 47 Jahre alt. Davon habe ich ungefähr die Hälfte auf der Matte gestanden. Aber alles hat erst ziemlich spät angefangen.
 
+Mit etwa zehn Jahren habe ich zunächst zehn Jahre lang Handball gespielt, was mir ein bisschen den Rücken ruiniert hat – wobei ich daran auch selbst nicht ganz unschuldig war.
 
+Während meines Studiums in Freiburg habe ich drei Jahre Karate trainiert. Offiziell hieß das Kung Fu, aber eigentlich war es Karate. Danach habe ich zwei Kinder bekommen und irgendwann mit Jiu-Jitsu begonnen.
 
-## inhaltsverzeichnus - für Chatty
+Seit 2007 betreibe ich Jiu-Jitsu beziehungsweise Jujutsu. In dieser Kampfsportart habe ich erfolgreich die Prüfung zum 4. Dan (JJVB) bestanden. Natürlich habe ich auch einen Trainerschein.
 
-1 einleitung
+Man kann einen Sport auf viele Arten betreiben. Beim Handball habe ich gelernt, dass man einen Sport mindestens ein- bis zweimal pro Woche ausüben sollte. Beim Kampfsport sind daraus schnell drei bis vier Einheiten pro Woche geworden. Zusätzlich nutze ich freies Training in Form von Joggen und Kraftsportübungen.
 
-2. wie du das buch liest
+Wenn ich also einen Sport betreibe, mache ich das nicht auf niedrigem Niveau. Damit du dir vorstellen kannst, wie das aussieht, hier ein vereinfachter Abriss meines Trainings:
 
-3. Theorie 
-31 Geschichte 
-32 Erscheinungsformen 
-33 Gürtelprüfung 
-34 klein sein 
-35 Lehrsätze
+## Wochenübersicht
 
-41 neuer sein 
-42 Schüler sein 
-43 Trainingspartner sein
-44 kampfsportler sein
-45 kämpfer sein 
-46 Trainer sein 
-47 Meister sein 
-48 Vereinsvorstand sein 
-49 Mensch sein 
-4.10 drin sein
+| Uhrzeit | Montag | Dienstag | Mittwoch | Donnerstag | Freitag |
+|---|---|---|---|---|---|
+| 05:30 | Aufstehen | Aufstehen | Aufstehen | Aufstehen | Aufstehen |
+| 05:45-06:30 | Kraftsport / Technik | Kraftsport / Technik | Kraftsport / Technik | Kraftsport / Technik | Kraftsport / Technik |
+| 06:30–06:45 | – | – | Joggen zum Bahnhof | Joggen zum Bahnhof | – |
+| 07:45–08:00 | – | – | Joggen zur Arbeit | Joggen zur Arbeit | – |
+| 12:00–13:00 | – | – | Mittagssport (HIIT) | – | – |
+| 17:30–17:45 | – | – | Joggen zum Bahnhof | Joggen zum Bahnhof | – |
+| 17:30–18:00 | Fahrrad zum Training | – | – | – | Fahrrad zum Training |
+| 18:00–21:30 | Kampfsport (Jiu-Jitsu, Kickboxen, Boxen) | – | – | – | Kampfsport (Jiu-Jitsu, Kickboxen, Boxen) |
+| 21:45–22:00 | Fahrrad nach Hause | – | – | – | Fahrrad nach Hause |
 
-5 solooptimierung 
-51 einleitung 
-5.2 Disziplin und navhhaltigkeit
-53 Fehlerbehebung
-54 wiederholung und memorierung
-55 Focus 
-56 Meditation 
-57 Bunkai und mentales Training 
-58 Kata 
-59 solo Drills (Intervalltraining) 
-5.10 randeri und Sparring 
-5.12 Kampf 
-5.12 Weiterbildung 
-513 Trainingsplan 
+Die Uhrzeiten variieren teils, je nachdem, welcher Wochentag ist.
 
-6 Zusammenfassung 
+Wenn ich mir das anschaue, ist das gar nicht mal so viel, wie ich gerne machen würde. Es zeigt aber, dass man auch mit 47 Jahren, einer Familie und einem Pendelweg von zwei Stunden am Tag durchaus etwas reißen kann.
 
-7 Literatur
+Insbesondere die Trainingseinheit am Morgen ist mir wichtig. Denn oft komme ich den ganzen Tag nicht dazu, irgendetwas zu machen. Da ist meine Devise: **Morgens Sport – dann muss ich mir den Tag über keine Gedanken mehr darüber machen.**
 
-## willkommen
+Beruflich habe ich Germanistik und Musikwissenschaft studiert. Danach habe ich als Webentwicklerin angefangen. Und immer noch entwickle Websoftware und Webseiten. Schau ma mal, was die neusten KI-Entwicklungen bringen.
 
-## wie du diese buch lesen kannst
+Neben dem Kampfsport gehören Musik (Klavier und Querflöte), Sprachen und Wandern zu meinen großen Hobbys.
 
+## Was dich jetzt erwartet
 
+... ist zunächst ein kleines Kapitel zur **Theorie**. Darin werden die Geschichte und – noch interessanter – die verschiedenen Erscheinungsformen von Kampfsport und Kampfkunst vorgestellt. Außerdem findest du darin ein kleines Sammelsurium an Lehrsätzen.
 
+Im Kapitel **Selbstverständnis** gehst du zurück zu deinem Schülersein und bewegst dich durch die einzelnen Entwicklungsphasen eines Kampfsportlers oder Kämpfers. Hier werden dir bekannte Perspektiven vertieft und neue Perspektiven aufgezeigt.
 
+Beispielsweise soll dir das Kapitel „Schüler sein“ dabei helfen, dein eigenes Schülersein besser zu verstehen und damit umzugehen. Gleichzeitig schärft es deine Wahrnehmung, wenn du bereits als Trainer tätig bist und neue Schüler hast. Hier findest du deine Gedanken aufgeschrieben und schwarz auf weiß – auch als Bestätigung, dass deine eigenen Theorien und Gedankengänge durchaus zutreffent sind.
 
-## willkommen
+**Selbstoptimierung** bezeichnet die Einstellung, besser werden zu wollen: zum Beispiel höher springen, schneller schlagen, mehr Ausdauer haben oder mental fitter werden. Dieses Kapitel gibt dir viele **Werkzeuge** an die Hand, mit denen du deine Wünsche in konkrete Ziele umformulieren und fokussiert verfolgen kannst.
 
-## wie du diese buch lesen kannst
+Ich wünsche dir viel Spass beim Lesen!
 
-
-
+Liebe Grüsse
+Mareike
