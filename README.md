@@ -12,7 +12,7 @@ cd dictionary
 python -m mkdocs gh-deploy #-d dictionary
 ~~~
 
-<https://hoochicken.github.io/dan-iv/index>
+<https://hoochicken.github.io/kampfsport/index>
 
 ~~~shell
 python.exe -m pip install --upgrade pip
