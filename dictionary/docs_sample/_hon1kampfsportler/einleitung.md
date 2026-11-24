@@ -82,7 +82,7 @@ Wenn ich also einen Sport betreibe, mache ich das nicht auf niedrigem Niveau. Da
 | 17:30–17:45 | – | – | Joggen zum Bahnhof | Joggen zum Bahnhof | – |
 | 17:30–18:00 | Fahrrad zum Training | – | – | – | Fahrrad zum Training |
 | 18:00–21:30 | Kampfsport (Jiu-Jitsu, Kickboxen, Boxen) | – | – | – | Kampfsport (Jiu-Jitsu, Kickboxen, Boxen) |
-| 21:45–22:00 | Fahrrad nach Hause | – | – | – | Fahrrad nach Hause |
+| 21:45–22:30 | Fahrrad nach Hause | – | – | – | Fahrrad nach Hause |
 
 Die Uhrzeiten variieren teils, je nachdem, welcher Wochentag ist.
 
