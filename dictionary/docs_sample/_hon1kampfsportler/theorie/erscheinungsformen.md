@@ -73,9 +73,9 @@ Es sei erwähnt, dass es gerade zum Thema Selbstverteidigung viele Möglichkeite
 
 Krav Maga sei hier besonders erwähnt. Hier steht ein sinnvolles Konzept dahinter, das die israelische Armee begründet hat. Da kannst du dir relativ sicher sein, dass du hier gute und sichere Techniken und Verhaltensweisen lernst.
 
-## Ernstfall- und Berufskampf
+## Ernstfall- und Berufskampf - kriegshandwerk
 
-Menschen, die aufgrund ihres Berufs kämpfen müssen, fallen in diese Gruppe. Es betrifft Berufe wie:
+Menschen, die aufgrund ihres Berufs kämpfen müssen, fallen in die Gruppe des kriegshandwerks. Es betrifft Berufe wie:
 
 * Soldaten, weil Krieg
 * Polizei, weil gefährliche Menschen
@@ -83,7 +83,7 @@ Menschen, die aufgrund ihres Berufs kämpfen müssen, fallen in diese Gruppe. Es
 * Auftragsmörder*
 * sonstige Menschen, die berufsbedingt mit aggressiven Personen zu tun haben
 
-*) Bizarr, nicht? Das Auftragsmörder hier erwähnt werden! Nur weil es uns nicht passt, dass es Menschen dieser Art gibt, heißt das nicht, dass man diese Art von Berufen totschweigen darf. Mir passt das auch nicht, dass es berufsmässige Mörder gibt. Aber es gibt sie nun mal, und man muss sie angemessen erwähnen.
+*) Bizarr, nicht? Dass Auftragsmörder hier erwähnt werden! Nur weil es uns nicht passt, dass es Menschen dieser Art gibt, heißt das nicht, dass man diese Art von Berufen totschweigen darf. Mir passt das auch nicht, dass es berufsmässige Mörder gibt. Aber es gibt sie nun mal, und man muss sie angemessen erwähnen.
 
 Den Fall der Ernstfall und Berufskämpfer betrachte ich als eigene Sparte. Was ist da der Unterschied zur Selbstverteidigung?
 
