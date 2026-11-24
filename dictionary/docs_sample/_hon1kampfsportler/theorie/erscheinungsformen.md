@@ -57,10 +57,10 @@ gerade beim Training stößt man da an Schwierigkeiten. einerseits möchte man w
 * wie kannst du dich gegen diese blinden Flecken verteidigen? das sind ja Techniken, die du nie trainiert hast und daher auch nicht verteidigen kannst?
 * worauf musst du dich da gefasst machen?
 * denke dir reelle Szenarien fpr Dich und dein leben aus. was würdest du in die Szenario tun, Beispiel: 
-    * du trägst Pizza aus und jemand steht dir das Portemonnaie 
+    * du trägst Pizza aus und jemand stiehlt dir das Portemonnaie 
     * du gehst aus der Disco und du wirst verfolgt dich oder lauerte sogar auf 
     * ein Arbeitskollege spricht schlecht über dich vorversammelten Team (Tipp: verbal lösen)
-    * eine Person pöbelt dich in der Kneipe an, massiv, du habe es seine Freundin angeguckt
+    * eine Person pöbelt dich in der Kneipe an, massiv, du habesr seine Freundin angeguckt
 
 beachte dabei die Folgen die dein Handeln nach sich ziehen könnte: psychisch physisch, juristisch.
 
@@ -69,9 +69,9 @@ Sparten, die sich dem Thema Selbstverteidigung widmen, sind:
 * **Krav Maga** und 
 * sonstige selbstverteidigungsanbieter
 
-Es sei erwähnt, dass es gerade zum Thema Selbstverteidigung viele Möglichkeiten gibt und viele Ideen. die stehen sich oft einander gegenüber. und es wird furchtbarer Bullshit gelehrt (beispielweise Systema).
+Es sei erwähnt, dass es gerade zum Thema Selbstverteidigung viele Möglichkeiten gibt und viele Ideen. die stehen sich oft einander gegenüber. und es wird furchtbarer Bullshit gelehrt (beispielweise *Systema*, brrr!).
 
-Krav Maga sei hier besonders erwähnt. Hier steht ein sinnvolles Konzept dahinter, das die israelische Armee begründet hat. Da kannst du dir relativ sicher sein, dass du hier gute und sichere Techniken und Verhaltensweisen lernst.
+**Krav Maga** sei hier besonders erwähnt. Hier steht ein **sinnvolles Konzept** dahinter, das die israelische **Armee** begründet hat. Da kannst du dir relativ sicher sein, dass du hier gute und sichere Techniken und Verhaltensweisen lernst.
 
 ## Ernstfall- und Berufskampf - kriegshandwerk
 
@@ -87,13 +87,13 @@ Menschen, die aufgrund ihres Berufs kämpfen müssen, fallen in die Gruppe des k
 
 Den Fall der Ernstfall und Berufskämpfer betrachte ich als eigene Sparte. Was ist da der Unterschied zur Selbstverteidigung?
 
-**Selbstverteidigung** ist ein zufälliger Ernstfall, bei dem es primär um Verteidigung geht. **Ernstfallkämpfer** hingegen sind Personen, die sich von Berufswegen mit körperlichen Auseinandersetzungen auseinandersetzen. Sie genießen tagtägliches Training, sich gegen andere Personen zur Wehr zu setzen bzw. diese außer Gefecht zu setzen und zu töten.
+**Selbstverteidigung** ist ein zufälliger Ernstfall, bei dem es primär um Verteidigung geht. **Ernstfallkämpfer** hingegen sind Personen, die sich von Berufswegen mit körperlichen Auseinandersetzungen auseinandersetzen. Sie genießen tagtägliches Training, sich gegen andere Personen zur Wehr zu setzen bzw. diese außer Gefecht zu setzen und / oder zu töten.
 
 Für uns westliche Maden im Speck, die wir einen Krieg nie kennengelernt haben, mag dies weit weg erscheinen. Für ein Soldaten oder Polizisten hängt davon jedoch das blanke Überleben ab. 
 
-Menschen dieser berufsschaden trainieren viel Punkt im Laufe ihres Lebens sehen sie auch viel. viele tragen davon ein posttraumatisches Stresssyndrom hinten davon, ihr privates Leben wird nachhaltig durch schlimme Erfahrungen geprägt. Manche vertragen das erst mal besser, andere schlechte. 
+Menschen dieser Berufssparten trainieren viel . im Laufe ihres Lebens sehen sie auch viel. viele tragen davon ein posttraumatisches Stresssyndrom  davon. ihr privates Leben wird nachhaltig durch schlimme Erfahrungen geprägt. Manche vertragen das erst mal besser, andere schlechter. 
 
-Wenn du in einer solchen Sparte arbeitest: Es ist durchaus ratsam, sich einer psychologischen Betreuung zu unterziehen. Die psychologischen und psychischen Herausforderungen dieser Berufe sind immens. Genauso wie du lernst, in einer körperlichen Auseinandersetzung angemessen zu reagieren, kannst du auch lernen mit psychischen Herausforderungen umzugehen. Es gibt durchaus Techniken. Lass sie dir beibringen. Somit kannst du lange seelisch gesund bleiben.
+Wenn du in einer solchen Sparte arbeitest: Es ist durchaus ratsam, sich eine psychologischen Betreuung zu suchen. Die psychologischen und psychischen Herausforderungen deines Berufs sind immens. Genauso wie du lernst, in einer körperlichen Auseinandersetzung angemessen zu reagieren, kannst du auch lernen mit psychischen Herausforderungen umzugehen. Es gibt durchaus Techniken. Lass sie dir beibringen. Somit kannst du lange seelisch gesund bleiben.
 
 <= das schreibt eine Laiin, die eher wenig von dieser Berufssparte versteht und die selber keine psychologische Betreuung in Anspruch nimmt. Sei klüger als ich!
 
@@ -111,7 +111,9 @@ es gibt im Grunde drei Ausformungen von Kampfsport, die alle miteinander kompeti
 * Kata: Zeigen einer festgelegten Folge von Bewegungsabläufen
 * Choreographie: Vorführen einer Bewegungsfolge, die spektakulär aussieht; nur zu zweit oder zu mehrt
 
-Alle drei Sparten sind ab einem gewissen Niveau sehr anspruchsvoll. Die entsprechende Ausdauer und Kraft wird gezielt trainiert, um Techniken auf einem gewissen Niveau performen zu können. Entsprechend gehören zu diesem Training: 
+Exkurs: daneben gibt es auch randerscheinungen wie Calcio Storico, Futbox, Rugboks und Jugger, allesamt Mannschaftssportarzen mit Ball ... und Schach-Boxen!
+
+Alle drei Sparten - Kampf, Kata, choreographie - sind sehr anspruchsvoll. Die entsprechende Ausdauer und Kraft wird gezielt trainiert, um Techniken auf höchstem Niveau performen zu können. Entsprechend gehören zu diesem Training: 
 
 * Ausdauertraining 
 * Krafttraining 
@@ -128,19 +130,20 @@ Kampfsportarten sind:
 * Ju-Jutsu 
 * Karate 
 * Wing tsun
+* Kung fu
 * sonstige
 
 Kampfsportler sind oft zielgerichtete und ausdauernde Persönlichkeiten. sie arbeiten lange und gefeilt an Techniken.
 
 ## Kampfkunst
 
-Kampfkunst ist eine Zusammensetzung aus Kampf und Kunst . was bedeutet kunsttier? Kunst bedeutet, dass Betätigung durch folgende Eigenschaften auszeichnen:
+Kampfkunst ist eine Zusammensetzung aus Kampf und Kunst . was bedeutet Kunst hier? Kunst bedeutet, dass Betätigung durch folgende Eigenschaften auszeichnen:
 
 * Schönheit der Bewegung
 * Beachtung der Tradition 
 * "Künst"lichkeit der Techniken 
 
-Kampfkunst bedingt immer ein Miteinander der beiden Partner. Aikidotechniken funktionieren nur dann, wenn beide mitmachen. Ist einer der Partner ein Boxer und bo t tatsächlich, wird der Aikidoka gnadenlos verlieren. Bei Kampfkunst steht weniger die Leistung und Wirksamkeit einer Technik im Vordergrund. Vielmehr werden vorgeübte und vorgedachte Techniken einstudiert.
+Kampfkunst bedingt immer ein Miteinander der beiden Partner. **Aikido**techniken funktionieren nur dann, wenn beide mitmachen. Ist einer der Partner ein Boxer und boxt tatsächlich, wird der Aikidoka gnadenlos verlieren. Bei Kampfkunst steht weniger die Leistung und Wirksamkeit einer Technik im Vordergrund. Vielmehr werden vorgeübte und vorgedachte Techniken einstudiert.
 
 Dies betrifft 
 
@@ -155,6 +158,10 @@ warum sollte überhaupt jemand Kampfkunst betreiben? wenn es doch so ineffektiv 
 für den Kampfkünstler selbst ist es unglaublich **schön**, diese Techniken auszuführen. es stehen **meditative und kognitive Aspekte** im Vordergrund. 
 
 viele Bewegungsfolgen sind hochkoordinativ. man muss sie lange üben, bis man sie ausführen kann. daraus resultiert eine tiefe Zufriedenheit. denn man kann Techniken wiederholen und wiederholen und immer tiefer einsteigen. darüber hinaus besitzt Kampfkunst und deren Techniken eine gewisse Ästhetik. Eine Kung-fu-Kata ist einfach schön anzusehen. darin spiegeln sich gegebenenfalls jahrhundertelange Traditionen. und das erfüllt einen doch mit einer gewissen Ehrfurcht.
+
+===
+
+der übergang zwischen kampfkunst und kampfsport ist fliessend. je nach Gruppe und Trainer kann beispielweise Kung-fu als Kampfsportkunst gelehrt oder als Kampfsport. den unterschied würde ich so zusammenfassen: der **kampfsportler** wird auf effektive Techniken und deren anwendung getrimmt. er lernt ebenso, techniken miteinander frei zu kombinieren und weist dadurch eine geistige flexibilität auf. der **kampfkünstler** ist ein experte von schönheit. durch das i. d. R. traditionelle  training wird er viel später (jahre später) geistige flexibilitt erlangen, wenn überhaupt. meiner erfahrung nach sind kampfkünstler beschränkter in ihren techniken und diesbbzüglichen denkweisen. aber eben gleichzeitig Experten suf einem bestimmten gebiet.
 
 ## Kunst, Sport und Praxis
 
