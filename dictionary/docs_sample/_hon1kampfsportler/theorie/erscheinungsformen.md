@@ -195,7 +195,7 @@ wenn du jung bist, wirst du eher im Kampfsport landen. ab einem gewissen Alter i
 
 ===
 
-
+den eigenen fortschritt zu erfahren , ist motivierend. dieser kann intrinsisch - von selbst erfahren werden und stolz machen. damit fortschritt auch von aussen sichbar ist , haben einige kamsportarten gürtelfarben und prüfungen eingeführt. und was es eine **Prüfung**, einem Meilenstein dei er Kampfsport-karriere  für dich bedeutet, das erfährst du im nächsten kapitel
 
 
 
