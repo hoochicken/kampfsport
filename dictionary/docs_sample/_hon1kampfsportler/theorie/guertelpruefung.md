@@ -151,13 +151,18 @@ die schönste Zeit ist die Zeit in der Unterstufe, als Gelbgurt, als orangegurt 
 
 am Ende einer Prüfung erfolgt die Verleihung einer Urkunde und gegebenenfalls des Gürtels. 
 
-für dich als Trainer ist es jetzt Zeit, die Prüflinge zu loben und einzelne Aktionen der Prüflinge hervorzuheben. dies bedingt eventuell, dass du noch weißt was die Prüflinge gemacht haben. gerne mache dir Notizen deine Prüfungsunterlagen.
+der Trainer hat nun die möglichkeit, euch Prüflinge zu loben und einzelne Aktionen der Prüflinge hervorzuheben. 
 
-so kannst du jeden Prüfling noch einmal in Erinnerung rufen, was er an einer bestimmten Stelle geleistet hat
+du bist der trainer?  mache dir Notizen, wofür du den prüfling loben kannst. so kannst du jeden Prüfling noch einmal in Erinnerung rufen, was er an einer bestimmten Stelle geleistet hat
 
 auch Kritik und Anregungen kannst du hier anbringen. hier kannst du den Fokus darauf legen, welche Bereiche des Kampfsports der Prüfling noch ein bisschen vertiefen sollte.
 
-übergang zum nächsten kapitel?
+===
+
+eine prüfung ist in der regel teamarbeit. je besser dein partner und du aufeinander abgestimmt sind, desto flüssiger wird es. 
+
+im nächsten kapitel erfährst du Grundlegendes über das körperliche verhältnis zweier partner und wie du mit grossen körperlichen unterschieden umgehst. 
+
 
 
 
