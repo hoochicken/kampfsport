@@ -52,11 +52,11 @@ gerade beim Training stößt man da an Schwierigkeiten. einerseits möchte man w
 
 * welche Regeln gelten in deiner Kampfsportart? 
 * welche Techniken sind verboten? 
-* was würdest du niemals machen, weil esdesaatröse Folgen für deinen Partner hat? denn du bist ja lieb 
+* was würdest du niemals machen, weil es desaströse Folgen für deinen Partner hat? denn du bist ja lieb 
 * was würde ein Mensch mit bösen Absichten tun? was wäre praktisch für ihn ? 
-* wie kannst du dich gegen diese blinden Flecken verteidigen? das sind ja Techniken, die du nie trainiert hast und daher auch nicht verteidigen kannst?
+* wie kannst du dich gegen diese blinden Flecken verteidigen? es gibt ja Techniken, die du nie trainiert hast und daher auch nicht verteidigen kannst?
 * worauf musst du dich da gefasst machen?
-* denke dir reelle Szenarien fpr Dich und dein leben aus. was würdest du in die Szenario tun, Beispiel: 
+* denke dir "reelle" Szenarien für Dich und dein leben aus. was würdest du in die Szenario tun, Beispiel: 
     * du trägst Pizza aus und jemand stiehlt dir das Portemonnaie 
     * du gehst aus der Disco und du wirst verfolgt dich oder lauerte sogar auf 
     * ein Arbeitskollege spricht schlecht über dich vorversammelten Team (Tipp: verbal lösen)
@@ -69,9 +69,11 @@ Sparten, die sich dem Thema Selbstverteidigung widmen, sind:
 * **Krav Maga** und 
 * sonstige selbstverteidigungsanbieter
 
-Es sei erwähnt, dass es gerade zum Thema Selbstverteidigung viele Möglichkeiten gibt und viele Ideen. die stehen sich oft einander gegenüber. und es wird furchtbarer Bullshit gelehrt (beispielweise *Systema*, brrr!).
-
 **Krav Maga** sei hier besonders erwähnt. Hier steht ein **sinnvolles Konzept** dahinter, das die israelische **Armee** begründet hat. Da kannst du dir relativ sicher sein, dass du hier gute und sichere Techniken und Verhaltensweisen lernst.
+
+**Info**: gerade zum Thema gibt es Selbstverteidigung viele Möglichkeiten und viele Ideen. die stehen sich oft einander gegenüber. und es wird furchtbarer Bullshit gelehrt (beispielweise *Systema*, brrr!).
+
+**exkurs zum thema sexuelle belästigung**: betracjten wir die mal vom täter aus: wen würdest du eher angreifen: eine junges unerfahrenes Ding oder einen alten Hasen, der mit allen Wassern gewascenhen ist. daraus folgt: und unerfahrener du wirkst, desto eher wirst du Ziel sexueller Gewalt. dann die Täter suchen gezielt nach unerfahrenen Personen. dies gilt insbesondere für Pädophile, die über ihren Vorsprung an Lebenserfahrung gezielt junge Personen von sich abhängig machen. das ist keine Liebe, das eisz Strategie 
 
 ## Ernstfall- und Berufskampf - kriegshandwerk
 
