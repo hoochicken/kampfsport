@@ -22,6 +22,10 @@ Selbst eine grosse Aussensichel, ein Anfängerwurf, ist bei einem grossen Partne
 Natürlich, man muss vorher das Gleichgewicht "brechen", aber wie?
 Man kommt mit dem ausgestreckten Arm ja kaum an das Kinn des Partners ...
 
+umgekehrt hat der grössere partner ebenfalls probleme: ein hüftrad bei einem "zwerg"?: unmöglich. 
+
+auch im standup 
+
 ### Was wäre, wenn ...
 
 Die folgenden Ausführungen und Berechnungen versuchen zu verdeutlichen, dass körperliche Unterschiede - wie Grösse und Gewicht - massive Auswirkungen auf die Techniken haben können.
