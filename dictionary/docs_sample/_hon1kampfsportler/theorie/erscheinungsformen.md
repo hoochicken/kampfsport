@@ -179,7 +179,7 @@ Vielen Ausübenden von Kampfsport und Kampfkunst ist nicht bewusst, dass sie in 
 
 Trainierst du in dieser Sparte (Kampfkunst Kampfsport), so sei Dir stets bewusst: die Realität kann dich in einer ernstzunehmenden Situation einholen. Nur weil bei einer Sport- oder Kunstart das Wort "Kampf" dabei steht, heißt das nicht dass man auch kämpfen kann. 
 
-**geschichte**: ich habe früher Vollkontakt-Karate betrieben. da durfte man nicht zum Kopf schlagen. auch nach 10 Jahren jiujitsu zu hatte ich noch keine richtige Abwehr (obwohl ich mir richtig Mühe gab). Das erste Kickbox-Sparring war furchtbar ernüchternd. ich bekam so viele Schläge an den Kopf. da wusste ich dass meine Deckung richtig kacke ist. 
+**geschichte**: ich habe früher Vollkontakt-Karate betrieben. da durfte man nicht zum Kopf schlagen. auch nach 10 Jahren jiujitsu zu hatte ich noch keine richtige Abwehr für Kopftreffer (obwohl ich mir richtig Mühe gab). Das erste Kickbox-Sparring war ziemlich ernüchternd. ich bekam so viele Schläge an den Kopf. da wusste ich dass meine Deckung richtig kacke ist. trotz 2. Dan jujutsu.
 
 das ist nur ein Beispiel dafür, was passiert wenn man aus einem bekannten Regelsystem in ein anderes System übergeht. Man kriegt erstmal die Hucke voll, weil Dinge passieren die man nie trainiert hat. letztendlich bin ich sehr froh, dass ich den Schritt ins Kickboxen gewagt habe. dadurch bin ich ein wesentlich besserer Kampfsportler geworden.
 
