@@ -24,7 +24,7 @@ Man kommt mit dem ausgestreckten Arm ja kaum an das Kinn des Partners ...
 
 umgekehrt hat der grössere partner ebenfalls probleme: ein hüftrad bei einem "zwerg"?: unmöglich. 
 
-auch im standup 
+im standup hat der grössere partner mit den längeten armeen und beinen eindeutung die überhand ... bis der kleinere Partner die distanz unterläuft. plötzlich ist der kleine zwerg direkt am bauxh und verteilt shpe shines. und man kriegt dan da erstmal gar nicht weg.
 
 ### Was wäre, wenn ...
 
@@ -43,7 +43,7 @@ Insgesamt gibt es 3 Körperverhältnisse zwischen Tori und Uke:
 
 Mit diesem Rechner kannst du bestimmen, wie schwer und gross dein Partner für die wäre, wenn man dieselben körperlichen Verhältnisse anlegt, die zwischen dir und deinem Partner bestehen, nur anders herum.
 
-{!assets/calculator.md!}
+XXXXX
 
 ### Tabelle - mit wem trainere ich
 
