@@ -4,6 +4,8 @@ Kampf(sport), die Beschäftigung mit Kampf kann mehrere Hintergründe haben. fü
 
 betrachten wir doch aber Kampfsport mal etwas globaler als Beschäftigung mit Kampf .  dann ergeben sich weitere erscheinungsformen , von denen ich die selbstverteidigung als die ursprüngliche betrachte
 
+**Hinweis zur Terminologie**: im allgemeinen verwendet man *Kampfsport* als *Überbegriff* für die drei Sparten Kampfsport Selbstverteidigung und Kampfkunst. Kampfsport wird zugleich als *spartenbezeichung* für Kampfsport  verwendet. in diesem kapitel wird Kampfsport explizit als Unterbegriff verwendet und bezeichnet die sportliche Beschäftigung mit Kampf. hilfsweise wird ein Überbegriff verwendet kampfbeschäftigung
+
 ## Selbstverteidigung
 
 Selbstverteidigung bezeichnet die Verteidigung der eigenen Personen oder andere Personen gegen einen gewalttätigen Angriff.
@@ -161,15 +163,15 @@ für den Kampfkünstler selbst ist es unglaublich **schön**, diese Techniken au
 
 viele Bewegungsfolgen sind hochkoordinativ. man muss sie lange üben, bis man sie ausführen kann. daraus resultiert eine tiefe Zufriedenheit. denn man kann Techniken wiederholen und wiederholen und immer tiefer einsteigen. darüber hinaus besitzt Kampfkunst und deren Techniken eine gewisse Ästhetik. Eine Kung-fu-Kata ist einfach schön anzusehen. darin spiegeln sich gegebenenfalls jahrhundertelange Traditionen. und das erfüllt einen doch mit einer gewissen Ehrfurcht.
 
-**Kampfsport - Kampfkunst - unterschied**
+**Kampfsport - Kampfkunst - vergleich**
 
 der übergang zwischen kampfkunst und kampfsport ist fliessend. je nach Gruppe und Trainer kann beispielweise Kung-fu als Kampfsportkunst gelehrt oder als Kampfsport. den unterschied würde ich so zusammenfassen.
 
-der **kampfsportler** wird auf effektive Techniken und deren anwendung getrimmt. er lernt ebenso, techniken miteinander frei zu kombinieren und weist dadurch eine geistige flexibilität auf. 
+der **kampfsportler (Kampf)** wird auf effektive Techniken und deren anwendung getrimmt. er lernt ebenso, techniken miteinander frei zu kombinieren und weist dadurch eine geistige flexibilität auf. 
 
-der **kampfkünstler** ist ein experte von schönheit. meiner erfahrung nach sind kampfkünstler beschränkter in ihren techniken und diesbezüglichen denkweisen. da kampfkünster oft absolute Experten auf ihrem gebiet sind, ist ihnen das nich durch das i. d. R. traditionelle  training wird er viel später (jahre später) geistige flexibilitt erlangen, wenn überhaupt. aber eben gleichzeitig Experten suf einem bestimmten gebiet.
+der **kampfkünstler** und **Kampfsportler (kata, choreographie)** sind experten von schönheit. meiner erfahrung nach sind - und diese meinung ist sicherlich nicht beliebt - diese personen einschränkter in ihren techniken und diesbezüglichen denkweisen. diese ausübenden sind oft absolute Experten auf ihrem gebiet. durch das i. d. R. traditionelle training wird er später (jahre später) geistige flexibilitt erlangen, wenn überhaupt. vielleicht luege ich hier auch einem klischee azf.
 
-
+beiden gruppen - kampfsportlern und kampfkünstlern - ist gemein, dass es ein schützendes Regelwerk gibt Punkt regeltragen dafür bei, das fair gekämpft werden kann und schlimme Verletzungen vermieden werden. oder kurz gefasst bei Kampfsport und Kampfkunst ist man darauf bedacht den anderen möglichst nicht zu verletzen. 
 
 ## Kunst, Sport und Praxis
 
