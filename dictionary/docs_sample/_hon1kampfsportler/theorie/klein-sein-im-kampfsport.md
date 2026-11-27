@@ -40,15 +40,35 @@ diese Verletzungen treten natürlich auch bei gleichwertigen Partnern auf. für 
 
 wenn du in einer ungleichen Paarung bist, also ein ganz leichten Partner hast oder ein ganz schweren Partner hast Punkt bedenke, dass das Verletzungsrisiko dabei erhöht ist. trainiere entsprechend sorgfältig. hast du einen komisches Bauchgefühl, verteile dies den Partner mit gegebenenfalls den Partner ab
 
-Geschichte Doppelpunkt im Training war ein neuer Punkt man konnte gleich sehen, dass der etwas drauf hat, auf Nachfrage stellte sich raus: ein Schwarzgurt Karate. ich habe ihn mittrainieren lassen beim Sparring. und das obwohl er gute 30 kg schwere als jeder andere in der grupoe. ich habe gedacht das geht schon gut ... ging es nicht: für eine Wurf hatte einem Trainee das knie verdreht.:-(  warum erlaubst du einen neuen Würfel? das habe ich nicht erlaubt. das kam durch eine Sprachbarriere zustande. aber: ich hätte meinen Training von Anfang an besser sitzen müssen.
+**Geschichte**: im Training war ein neuer . man konnte gleich sehen, dass der etwas drauf hat, auf Nachfrage stellte sich raus: ein Schwarzgurt Karate. ich habe ihn mittrainieren lassen beim Sparring. und das obwohl er gute 30 kg schwere als jeder andere in der gruppe. ich habe gedacht das geht schon gut ... ging es nicht: bei einem Wurf hatte einem Trainee das knie verdreht.:-(  warum erlaubst du einen neuen Würfe? das habe ich nicht erlaubt. das kam durch eine Sprachbarriere zustande. aber: ich hätte meinen Training von Anfang an besser sitzen müssen.
 
 für sparring gilt seitdem:   maximal 15 kg Unterschied. ansonsten wird gedrillt.
 
 dem Traiee geht es gut, das Knie hatte dann nur zwei Wochen "Schnupfen". aber es ist wäre eine absolut vermeidbare Verletzung gewesen
 
+## gewicht verzeiht fehler
 
+dss gewicht hat - wie du schon weisst - also starken einfluss auf die Wirksamkeit einer Technik.
 
+**du bist gross und gewichtig?** super, du wirst techniken schnell und effektiv lernen. du wirst schnell selbstverttauen aufbauen. und möglicherweise stejst du dann auch irgendwann als trainer auf der matte.
 
+**du bist leicht und klein?** herzlichen glückwunsch zu diesser Kack-Kombination. fortan werden grosse, gewichtige menschen dir erklären, wie du eine technik "richtig"  ausführst. 
+
+grosse, gewichtig menschen haben klare gwwichts-und distanzvorteile. manche haben nie erfahren (oder es vergessen), wie es ist, körperlich unterlegen zu sein. 
+
+die sicherheit ihrer techniken gründet u. a. auf körperlicher sicherheit. und dies ist durchaus berechtigt. sie haben ja dafür trainiert. allerdings fehlt es haben sie ein blinden Fleck: Unterlegenheit kennen diese Person nicht. 
+
+für große Personen es ist zum Teil ausreichend, genau eine Ausführung einer Technik zu können. diese kann sogar schlampig sein. die ausführung wird trotzdem funktionieren, weil masse und kraft schlampigkeit ausgleichen. 
+
+kleine personen hingegen müssen eine technik viel genauer erarbeiten. alles was unter 100% korrekt ist, führt zum scheitern des wurfs oder des hebels.
+
+dadurch ergibt sich ein durchaus interessantes Bild auf der Matte. große Person zeigen Ausführungen, die gegen gleich große oder kleinere Personen angewandt werden können. kleine Person en können diese Technik Ausführung nur gegen einen gleich kleinen Partner verwenden. gegen einen großen Partner ist es um oft unmöglich diese Art der Ausführung zu verwenden. 
+
+ganz einfach ausgedrückt: bei einer kleinen Person sieht eine Technik Ausführung von einer größeren Partner scheiße aus Punkt daher wird diese Person viel seltener zu einem Trainer oder Referenten. dies verstärkt die Schieflage und trägt dazu bei, dass weiterhin keine Techniken für kleine Person gelehrt werden
+
+**es fehlen kleine trainer*innen!**
+
+eine hochgradige ju-jutsu-trainerin (1.55 m) sagte  einmal treffend: "ich muss jede Technik quasi neu erfinden." 
 
 
 
