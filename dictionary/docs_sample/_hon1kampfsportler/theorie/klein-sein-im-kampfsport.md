@@ -56,6 +56,8 @@ dss gewicht hat - wie du schon weisst - also starken einfluss auf die Wirksamkei
 
 grosse, gewichtig menschen haben klare gwwichts-und distanzvorteile. manche haben nie erfahren (oder es vergessen), wie es ist, körperlich unterlegen zu sein. 
 
+## "körperblind"
+
 die sicherheit ihrer techniken gründet u. a. auf körperlicher sicherheit. und dies ist durchaus berechtigt. sie haben ja dafür trainiert. allerdings fehlt es haben sie ein blinden Fleck: Unterlegenheit kennen diese Person nicht. 
 
 für große Personen es ist zum Teil ausreichend, genau eine Ausführung einer Technik zu können. diese kann sogar schlampig sein. die ausführung wird trotzdem funktionieren, weil masse und kraft schlampigkeit ausgleichen. 
@@ -70,20 +72,14 @@ ganz einfach ausgedrückt: bei einer kleinen Person sieht eine Technik Ausführu
 
 eine hochgradige ju-jutsu-trainerin (1.55 m) sagte  einmal treffend: "ich muss jede Technik quasi neu erfinden." 
 
-
+**geschichte**: ein Bekannter erklärte mir den Hüftwurf. er war 1.95 m groß und sicherlich 130 kg schwer. er meinte: "so mache man das nicht vor", und nicht anders. ich sagte ihm: und jetzt macht diesen hüftdorf bei einem Partner der 2,50 m groß ist und 200 Kilo wiegt. sie hat mich dann so ein bisschen verdutzt angeguckt. ich weiß bis heute nicht ob er das verstanden hat
 
 
 Die gezeigte Ausführung war in der Tat möglich ... bei einem gleichwertigen oder kleineren Partner. Sobald es aber Abweichungen hinsichtlich Grösse oder Schwere gibt, muss eine körperlich unterlegene Person die Technik neu erfinden.
 
-## Klein sein und Kampfsport - ein Lamentat
+## Klein sein und Kampfsport - ein Lamenta
 
-
-
-Diese kleine Szene erreignete sich bei einem herausragenden JJ-Referenten geschätzt im Jahr 2012.
-
-
-
-Ich möchte eine kleine Liste an Techniken geben, welche z. B. Probleme bereitet:
+Ich möchte eine kleine Liste an wurf-Techniken geben, welche z. B. Probleme bereitet:
 
 * Iriminage, denn eine wesentlich höhere Schulterhöhe bei Uke
 * Uchi-mata, bei einem Langbeiner fast unmöglich
@@ -99,7 +95,7 @@ umgekehrt hat der grössere partner ebenfalls probleme: ein hüftrad bei einem "
 
 im standup hat der grössere partner mit den längeten armeen und beinen eindeutung die überhand ... bis der kleinere Partner die distanz unterläuft. plötzlich ist der kleine zwerg direkt am bauxh und verteilt shpe shines. und man kriegt dan da erstmal gar nicht weg.
 
-**geschichte**: "So funktioniert der Wurf, und er ist butterweich!", so der Referent, geschätzte 110 kg, kurz vor der Ausführung des Harai-goshi an einem ca. 70 kg wiegendem Uke. *hust
+**geschichte**: "So funktioniert der Wurf, und er ist butterweich!", so der Referent, geschätzte 110 kg, kurz vor der Ausführung des Harai-goshi an einem ca. 70 kg wiegendem Uke. ich dachte: "ja, das stimmt. wenn mein Partner 10 Jahre alt wäre, würd das so klappen ..."
 
 ## Was wäre, wenn ...
 
@@ -165,7 +161,7 @@ Die Tabelle wird wie folgt gelesen:
 
 **Was wäre, wenn du der andere wärst**: Wie schwer wäre Dein Partner, wenn Du der andere (hier: der Überlegene) wärst?
 
-* wenn du der amdere wärst, dann hättest du ja logischerweise denselben Gewichtsquotienten wie dein Partner
+* wenn du der andere wärst, dann hättest du ja logischerweise denselben Gewichtsquotienten wie dein Partner
 * Gewichtsquotient **deines Partners** Partners = 1.190 (s. o.)
 * Gehe zur Zeile 59.9 => Dein Gewicht
 * Suche in deiner Gewichtszeile die ungeführen Wert 1.190, das wäre 1.210
@@ -214,7 +210,7 @@ Die Grösse ist in 5er-Schritten berechtet. Davon leitet sich die Gewichtsschrit
 | 195         | 83.7                    |
 | 200         | 88.0                    |
 
-### Kleiner Rant
+## Kleiner Rant
 
 Klein sein, leicht sein, Frau sein im Kampfsport  ... kann ziemlich scheisse sein.
 
