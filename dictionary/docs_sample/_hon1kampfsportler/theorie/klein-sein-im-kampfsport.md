@@ -184,37 +184,13 @@ Die Tabelle wird wie folgt gelesen:
 ### Fazit
 
 Über die Berechnung des Quotienten und des anschliessend angenommenen Gwichts des Partners, erreicht man die Einsicht, dass Körperverhältnisse verschieden sind.
-Und massgeblich daszu beitragen, ob eine Technik gelingt oder nicht.
-
-### BMI 22
-
-Hinweis: bezüglich der ausgesuchten Werte in den Tabellen zu Grösse und Gewicht bin ich dem BMI-22 ausgegangen.
-
-> BMI -Formel = Körpergewicht (in kg ) geteilt durch Körpergröße (in m ) zum Quadrat
-
-Barmer, 02.05.2024
-
-Die Grösse ist in 5er-Schritten berechtet. Davon leitet sich die Gewichtsschritte via BMI-22 ab.
-
-| Grösse (cm) | Gewicht für BMI 22 (kg) |
-|-------------|-------------------------|
-| 150         | 49.5                    |
-| 155         | 52.9                    |
-| 160         | 56.3                    |
-| 165         | 59.9                    |
-| 170         | 63.6                    |
-| 175         | 67.4                    |
-| 180         | 71.3                    |
-| 185         | 75.3                    |
-| 190         | 79.4                    |
-| 195         | 83.7                    |
-| 200         | 88.0                    |
+Und massgeblich daszu beitragen, ob eine Technik gelingt oder nicht.                   
 
 ## Kleiner Rant
 
 Klein sein, leicht sein, Frau sein im Kampfsport  ... kann ziemlich scheisse sein.
 
-Was ein kleiner Mensch im Kampfsport bisweilen zu tragen hat, hat oft nichts mit Sportlichkeit zu tun.
+Was ein kleiner Mensch im Kampfsport bisweilen zu ertragen hat, hat oft nichts mit Sportlichkeit zu tun.
 Oft gehörte Sprüche, meist aus dem Munde von Menschen, die ihrer Lebtag noch nie einen körperlich wesentlich überlegenem
 Gegener gegenüberstanden:
 
@@ -222,13 +198,10 @@ Gegener gegenüberstanden:
 * "Weisst du, was den Schulterwurf betrifft, hast du eigentlich einen Vorteil." <= wie bitte?!
 * blankes Auslachen des kleineren Partners durch den körperlich überlegenen "Partner", weil er es für "lustig" hält
 * viele Techniken, die gezeigt werden, sind für ein ungleiches Körperverhältnis so nicht ausführbar
+* hochnäsiges verhalten beim fahren, weil man ja eh gewinnen will
 
 Wie man sieht, bekommt man eine gute Mischung aus Irrtümern und Respektlosigkeit zu spüren.
 
-**Folge: vor allem männliche Referenten**: Das körperliche Ungleichgewicht zu ungunsten kleiner Menschen hat auch eine doofe Folge:
-Kleine Menschen (und Frauen sind meist klein) werden kaum als Referenten eingeladen.
-Kleine Menschen wirken oft wenig kompetent. Denn eine Technik muss zu 345 % stimmen, damit sie bei einem grösseren Partner funktioniert.
-Und das muss man erstmal schaffen.
-Grosse Menschen können es sich leisten, Techniken schlampig auszuführen. Und es sieht trotzdem wirksam aus.
-Und das hat aber wiederum zur Folge, dass der grosse (männliche) Referent bevorzugt wird.
-Und dadurch werden weiterhin Techniken so gelehrt, dass für körperlich Unterlegenen kaum effektiv ist.
+massnahemen XXXXX??
+
+
