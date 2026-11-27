@@ -4,10 +4,10 @@
 
 menschen haben unterschiedliche Körper. im Grunde unterscheiden sich menschliche Körper vor allem durch folgende Parameter
 
-* Grösse (gross, kleun)
+* Grösse (gross, klein)
 * gewicht (dürr, mittel, schwer)
 
-
+beim Kampfsport Treffen in der Regel zwei Menschen aufeinander. diese haben in der Regel unterschiedliche Körper besonders das Gewicht ist hier zu erwähnen an einer dies ist entscheidend, wie stark die Schläge sind
 
 
 
