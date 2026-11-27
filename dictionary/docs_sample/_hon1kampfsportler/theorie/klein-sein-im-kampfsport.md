@@ -1,13 +1,32 @@
 # Körperverhältnisse - gross und klein
 
-## "Körperblind"
+## impuls 
 
 menschen haben unterschiedliche Körper. im Grunde unterscheiden sich menschliche Körper vor allem durch folgende Parameter
 
 * Grösse (gross, klein)
 * gewicht (dürr, mittel, schwer)
 
-beim Kampfsport Treffen in der Regel zwei Menschen aufeinander. diese haben in der Regel unterschiedliche Körper besonders das Gewicht ist hier zu erwähnen an einer dies ist entscheidend, wie stark die Schläge sind
+beim Kampfsport Treffen in der Regel zwei Menschen aufeinander. diese haben in der Regel unterschiedliche Körper . besonders das Gewicht ist hier zu erwähnen. denn die wirksamkeit bzw. der impuls eines schlages errechnet sich aus masse x Geschwindingkeit (p = m * v). 
+
+dies bedeutet, dass es eine direkte Verbindung vom Impuls des Schlages zur Masse der ausführenden Personen gibt. oder mit einfachen Worten: 
+
+* wenn du schwer bist, ist dein schlag (fast) automatisch hart. 
+* wenn du ein Fliegengewicht bist, ist ein Schlag eher sanfter. 
+
+treffen zwei Menschen gleicher Körpermasse aufeinander , so ist der Unterschied unerheblich . beide haben die gleiche Masse . da können beide den gleichen Impuls aufbauen . die Schläge werden einigermaßen gleich stark sein genau aus diesem Grund gibt es auch gewichtsklassen . es sorgt für physikalisches Fairness
+
+treffen Menschen unterschiedlicher Körpermasse aufeinander, hat Gewichtsdifferenz schwerwiegende Konsequenzen auf sämtliche Techniken und parameter
+
+* schläge
+* würfe
+* hebel
+* distanz
+
+
+
+* 
+
 
 
 
