@@ -38,6 +38,14 @@ diese Verletzungen treten natürlich auch bei gleichwertigen Partnern auf. für 
 
 ## sicher trainieren
 
+wenn du in einer ungleichen Paarung bist, also ein ganz leichten Partner hast oder ein ganz schweren Partner hast Punkt bedenke, dass das Verletzungsrisiko dabei erhöht ist. trainiere entsprechend sorgfältig. hast du einen komisches Bauchgefühl, verteile dies den Partner mit gegebenenfalls den Partner ab
+
+Geschichte Doppelpunkt im Training war ein neuer Punkt man konnte gleich sehen, dass der etwas drauf hat, auf Nachfrage stellte sich raus: ein Schwarzgurt Karate. ich habe ihn mittrainieren lassen beim Sparring. und das obwohl er gute 30 kg schwere als jeder andere in der grupoe. ich habe gedacht das geht schon gut ... ging es nicht: für eine Wurf hatte einem Trainee das knie verdreht.:-(  warum erlaubst du einen neuen Würfel? das habe ich nicht erlaubt. das kam durch eine Sprachbarriere zustande. aber: ich hätte meinen Training von Anfang an besser sitzen müssen.
+
+für sparring gilt seitdem:   maximal 15 kg Unterschied. ansonsten wird gedrillt.
+
+dem Traiee geht es gut, das Knie hatte dann nur zwei Wochen "Schnupfen". aber es ist wäre eine absolut vermeidbare Verletzung gewesen
+
 
 
 
