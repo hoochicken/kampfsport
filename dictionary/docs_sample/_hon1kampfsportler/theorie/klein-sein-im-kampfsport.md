@@ -23,7 +23,7 @@ treffen Menschen unterschiedlicher Körpermasse aufeinander, hat Gewichtsdiffere
 * hebel
 * distanz
 
-
+kurzum gesagt: der schwerere partner hat wesentliche kraftvorteile
 
 * 
 
