@@ -1,14 +1,25 @@
+# Körperverhältnisse - gross und klein
+
+## "Körperblind"
+
+menschen haben unterschiedliche Körper. im Grunde unterscheiden sich menschliche Körper vor allem durch folgende Parameter
+
+* Grösse (gross, kleun)
+* gewicht (dürr, mittel, schwer)
+
+
+
+
+
+Die gezeigte Ausführung war in der Tat möglich ... bei einem gleichwertigen oder kleineren Partner. Sobald es aber Abweichungen hinsichtlich Grösse oder Schwere gibt, muss eine körperlich unterlegene Person die Technik neu erfinden.
+
 ## Klein sein und Kampfsport - ein Lamentat
 
-> So funktioniert der Wurf, und er ist butterweich!
 
-Referent, geschätzte 110 kg kurz vor der Ausführung des Harai-goshi an einem ca. 70 kg wiegendem Uke.
-
-### Szenen aus dem Leben
 
 Diese kleine Szene erreignete sich bei einem herausragenden JJ-Referenten geschätzt im Jahr 2012.
-Die gezeigte Ausführung ist in der Tat möglich ... bei einem gleichwertigen oder kleineren Partner.
-Sobald es aber Abweichungen hinsichtlich Grösse oder Schwere gibt, muss eine körperlich unterlegene Person die Technik neu erfinden.
+
+
 
 Ich möchte eine kleine Liste an Techniken geben, welche z. B. Probleme bereitet:
 
@@ -26,7 +37,9 @@ umgekehrt hat der grössere partner ebenfalls probleme: ein hüftrad bei einem "
 
 im standup hat der grössere partner mit den längeten armeen und beinen eindeutung die überhand ... bis der kleinere Partner die distanz unterläuft. plötzlich ist der kleine zwerg direkt am bauxh und verteilt shpe shines. und man kriegt dan da erstmal gar nicht weg.
 
-### Was wäre, wenn ...
+**geschichte**: "So funktioniert der Wurf, und er ist butterweich!", so der Referent, geschätzte 110 kg, kurz vor der Ausführung des Harai-goshi an einem ca. 70 kg wiegendem Uke. *hust
+
+## Was wäre, wenn ...
 
 Die folgenden Ausführungen und Berechnungen versuchen zu verdeutlichen, dass körperliche Unterschiede - wie Grösse und Gewicht - massive Auswirkungen auf die Techniken haben können.
 
