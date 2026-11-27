@@ -18,14 +18,25 @@ treffen zwei Menschen gleicher Körpermasse aufeinander , so ist der Unterschied
 
 treffen Menschen unterschiedlicher Körpermasse aufeinander, hat Gewichtsdifferenz schwerwiegende Konsequenzen auf sämtliche Techniken und parameter
 
-* schläge
-* würfe
-* hebel
-* distanz
+* schläge sind im vergleich viel schwächer
+* würfe sind teils wesentlich erschwert
+* hebel sind aufgrund von bemessung und kraft meist wesentlich erschwert
+* distanz ist erschwert, ein nebenefekt und der Tat geschuldet, dass der größere Partner meist auch der größer ist
 
-kurzum gesagt: der schwerere partner hat wesentliche kraftvorteile
+kurzum gesagt: der schwerere partner hat wesentliche kraftvorteile. das Verletzungsrisiko des kleineren Partners ist immer so. "beliebte" vorfälle sind
 
-* 
+* knock out
+* nasenbruch
+* knieverletzungen
+* rippenbruch
+
+diese Verletzungen treten natürlich auch bei gleichwertigen Partnern auf. für einen kleineren Partner sind sie aber viel wahrscheinlicher. dies gilt auch dann, wenn der größere Partner"langsam" und rücksichtsvoll trainiert.
+
+**geschichte**: ich habe mit Valentin trainiert valentin ist riesengroß, wiegt sicherlich 90 kg und Kickbox Weltmeister . er war ganz lieb. als er einmal geschlagen hat, bin ich nach links raus, genau in seine stehende Faust. ich (das ist dämlich, aber sowas passiert halt). meine Nase war ziemlich ramponiert danach und hat gesaftet. das heißt: zwei Menschen haben miteinander trainiert, beide haben aufeinander aufgepasst, und es kann trotzdem zum unfall.
+
+
+
+
 
 
 
