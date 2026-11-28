@@ -4,6 +4,16 @@ Neu in einer Gruppe zu sein, ist immer eine neue Erfahrung. Man kennt die Gruppe
 
 Typischerweise kommt man sich zunächst wie das fünfte Rad am Wagen vor. Dieses Kapitel hilft dir dabei, mit dieser unangenehmen Situation und den damit verbundenen Unannehmlichkeiten und Unsicherheiten umzugehen.
 
+## Erfahrung hilft
+
+Diese Erfahrungen machst du unabhängig davon, ob du bereits Erfahrung im Kampfsport hast oder nicht.
+
+Wenn du schon Kampfsporterfahrung hast, wird es dir wesentlich leichter fallen, in einer neuen Gruppe anzukommen. Du kennst bereits die Mechanismen, die in Gruppen wirken, und bist mit einigen Techniken vertraut. Du stehst also nicht vor einem riesigen Berg von Dingen, die du erst noch lernen musst.
+
+Wenn du ganz neu im Kampfsport bist, prasseln all diese Dinge gleichzeitig auf dich ein: neue Techniken, unbekannte Menschen, unbekannte Gruppendynamiken und ein Trainingsablauf, den du noch nicht einschätzen kannst.
+
+wenn du noch keine Erfahrung mit Gruppen besitzt, zu helfen dir die folgenden Abschnitte, dich bewusst und planvoll in einer neuen Gruppe einzufinden
+
 ## Die Gruppe der anderen
 
 Eine Gruppe wirkt von außen betrachtet erst einmal geschlossen. Dieser Eindruck wird verstärkt, wenn die Anwesenden in irgendeiner Weise eine Art Uniform tragen, die sie als Mitglieder der Gruppe kennzeichnet. In der Regel sind das die Sportklamotten, die sie anhaben.
@@ -156,15 +166,14 @@ Bei den ersten Probetrainings kannst du dir folgende Fragen stellen. Diese und a
 - Stehen scharfe oder harte Gegenstände herum?
 - wie sauber und hygienisch ist es?
 
-## Erfahrung hilft
+**generell** 
 
-Diese Erfahrungen machst du unabhängig davon, ob du bereits Erfahrung im Kampfsport hast oder nicht.
+* fühlst du dich in der Gruppe wohl? 
+* fühlst du dich sicher?
 
-Wenn du schon Kampfsporterfahrung hast, wird es dir wesentlich leichter fallen, in einer neuen Gruppe anzukommen. Du kennst bereits die Mechanismen, die in Gruppen wirken, und bist mit einigen Techniken vertraut. Du stehst also nicht vor einem riesigen Berg von Dingen, die du erst noch lernen musst.
+**geschichte**: ich war zu einem Probetraining bei einer Gruppe. der Meister hat vorbei geschaut und ich hatte gleich ein komisches Gefühl. ich dachte aber: nein nicht so wichtig,jeder hat eine Chance verdient das ist nur ein komischer Eindruck, den ich auch mit nichts belegen konnte. drei Jahre später wurde ich sexuell belästigt. ob das in einem Zusammenhang steht kann ich nicht sagen. aber irgendwie habe ich von Anfang an gerochen.
 
-Wenn du ganz neu im Kampfsport bist, prasseln all diese Dinge gleichzeitig auf dich ein: neue Techniken, unbekannte Menschen, unbekannte Gruppendynamiken und ein Trainingsablauf, den du noch nicht einschätzen kannst.
-
-XXXXX
+===
 
 + übergang nächstes kapitel
 
