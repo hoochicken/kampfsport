@@ -18,7 +18,7 @@ Das führt dann auch zu Schamgefühlen, die noch zu der Unsicherheit hinzukommen
 
 Keiner derjenigen, die du dort siehst, war von Anfang an dabei. Alle sahen einmal so aus wie du, und alle sind da durchgegangen. Keiner von ihnen erwartet von dir, dass du perfekt bist oder genauso aussiehst wie sie. Im Gegenteil: Es ist sogar sehr nützlich!
 
-Dass du wie ein Anfänger aussiehst, ist gut! Denn die anderen erkennen sofort, dass sie Rücksicht auf dich nehmen und dir vielleicht Dinge ausführlicher erklären sollten. Anders auszusehen, ist also in Wirklichkeit kein Nachteil. Es ist ein Vorteil, der dir hilft, in dieser Gruppe angenommen zu werden.
+Dass du wie ein Anfänger aussiehst, ist gut! Denn die anderen erkennen sofort, dass sie Rücksicht auf dich nehmen und dir vielleicht Dinge ausführlicher erklären sollten. Anders auszusehen, ist ein Vorteil, der dir hilft, in dieser Gruppe angenommen zu werden.
 
 ## Gruppentest
 
