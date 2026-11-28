@@ -33,7 +33,7 @@ Deine ersten Trainingseinheiten sind auch eine Art Gruppentest. Wie geht die Gru
 
 **Schlechtes Beispiel**: Eine Schülerin hatte Angst, bei uns zum Training zu kommen. Sie hatte vorher woanders trainiert und war dort sehr schlecht behandelt worden. Schließlich war sie ja auch nur eine Frau. Dort wurde sehr viel Wert auf Kämpfen, Sparring und „Leistung“ gelegt – was auch immer die unter Leistung verstehen. Sie ist dabei vollkommen untergegangen. Freundlich war man dort jedenfalls nicht.
 
-**Gutes Beispiel**: Ich war ganz neu in der Gruppe. Total unsicher war ich, und das habe ich nicht einmal gemerkt. Der Trainer hat sich sofort meinen Namen gemerkt und mich direkt angesprochen. Selbst nach dem Training kannte er meinen Namen noch. Dadurch habe ich mich wertgeschätzt gefühlt.
+**Gutes Beispiel**: Ich war ganz neu in der Gruppe. Total unsicher war ich, und das habe ich nicht einmal gemerkt. Der Trainer hat sich sofort meinen Namen gemerkt und mich direkt angesprochen. Selbst nach dem Training kannte er meinen Namen noch. Dadurch habe ich mich wertgeschätzt gefühlt. danke, Henri!
 
 Meine Trainingspartner haben mich von der ersten Stunde an beim Erlernen der schwierigen Jiu-Jitsu-Techniken unterstützt. Dafür vielen herzlichen Dank! Nur mit euch ist es möglich, dass wir so weit kommen!
 
@@ -52,7 +52,7 @@ während des trainings:
 * kümmern sich um dich
 * erklären dir Techniken
 * sie geben dir Tipps 
-* helfen dir beim Verstehen von "Ritualen" enden, die bei Verbeugung in traditionellen Kampfsportarten
+* helfen dir beim Verstehen von "Ritualen", wie bei Verbeugung in traditionellen Kampfsportarten
 
 nach dem Training 
 
@@ -61,7 +61,9 @@ nach dem Training
 
 **Tipp für dich als Leitender** (Vereinsvorstand, Kampfsportschule Inhaber): Dies ist ein bisschen eine Gebrauchsanweisung, wie du neue Mitglieder dich heimisch fühlen lässt. So werden  Neuankömmlinge in ihrer Unsicherheit gut aufgefangen, fühlen sich wohl und werden auch (u. a. zahlendes) Mitglied. Durch ein nettes, rücksichtsvolles Miteinander! 
 
-## Biestige Cruppe
+wenn du zu viel zu tun hast als Trainer: übertrage einfach eine Aufgabe an einen trainee. idealerweise ist der Trainee gleichen Geschlecht so dass sie miteinander in die Umkleide gehen können und dort die Betreuung weiterläuft
+
+## Biestige Gruppe
 
 Was tun, wenn die Gruppe biestig ist?
 
@@ -71,13 +73,15 @@ Denk daran: Du hast immer die Möglichkeit, einfach zu gehen. Wenn sie dich nich
 
 Ich wünsche dir, dass die Gruppe, in die du kommst, nett ist, dich freundlich aufnimmt und dich an die Hand nimmt.
 
+**geschichte**: zu meiner Handvoll Zeit bin ich in Freiburg in eine neue Mannschaft gekommen. die Mannschaft ist mit mir einfach schlecht umgegangen. es gab Leistungsträger, alle anderen waren buchstäblich die Hütchen die aufgestellt wurden an denen die anderen trainieren dürfen. selten habe ich mich so unwillkommen gefühlt. aus heutiger Sicht würde ich sofort aus diesem Team austreten
+
 ## Zwei Mal schauen
 
 Wenn du unsicher bist, kannst du selbst einiges tun, um leichter in der Gruppe anzukommen.
 
 **Zwei mal testen**: gib dem Training eine Chance. Es kann sein, dass beim ersten Mal ein fauler Apfel dabei war (also jemand, der dich schlecht behandelt). Das gibt sich vielleicht, wenn du zwei oder dreimal zum Probetraining kommst. Dann kannst du die Gruppe genauer einschätzen. 
 
-Damit kannst du gegebenenfalls fehlerhafte erste Eindrücke korrigieren. ielleicht ist die Gruppe viel netter, als der erste Eindruck verheisst ... oder umgekehrt. 
+Damit kannst du gegebenenfalls fehlerhafte erste Eindrücke korrigieren. vielleicht ist die Gruppe viel netter, als der erste Eindruck verheisst ... oder umgekehrt. 
 
 Erfahrungsgemäß verbringt man mit dieser Trainingsgruppe viel Zeit. Idealerweise ist es eine Zeit unter Freunden. Du solltest dich also grundsätzlich wohlfühlen.
 
@@ -101,11 +105,11 @@ Sei entspannt. Niemand erwartet etwas von dir, und du musst dich nicht unter Dru
 
 **Härte zeigen? Bitte nicht!**
 
-Manchmal geht man extra hart ins Training, weil man beweisen will, dass man es in der Gruppe schafft. Das kenne ich zum Beispiel von mir selbst: Ich bin dann so unsicher, dass ich zu hart trainiere.
+Manchmal geht man extra hart ins Training, weil man beweisen will, dass man es in der Gruppe schafft. Das kennst du vielleicht selbst: du bist dann so unsicher, dass du zu hart trainierst.
 
-Ich sollte es eigentlich besser wissen. Trotzdem bin ich manchmal so unsicher, dass es mir immer wieder passiert. Das ist doof und auch gefährlich.
+(Ich sollte es eigentlich besser wissen. Trotzdem bin ich manchmal so unsicher, dass es mir immer wieder passiert. Das ist doof und auch gefährlich.)
 
-Ich sage dann zum Beispiel:
+wenn du Härte an dir bemerkst,  sage dann zum Beispiel:
 
 „Entschuldigung, das war zu hart. Ich bin gerade so nervös, dass ich zu hart trainiere. Das tut mir leid. Ich mache jetzt lockerer.“
 
@@ -150,6 +154,7 @@ Bei den ersten Probetrainings kannst du dir folgende Fragen stellen. Diese und a
 - Ist der Trainingsraum sicher, soweit du das beurteilen kannst?
 - Ist der Trainingsraum mit Matten ausgelegt?
 - Stehen scharfe oder harte Gegenstände herum?
+- wie sauber und hygienisch ist es?
 
 ## Erfahrung hilft
 
@@ -158,3 +163,8 @@ Diese Erfahrungen machst du unabhängig davon, ob du bereits Erfahrung im Kampfs
 Wenn du schon Kampfsporterfahrung hast, wird es dir wesentlich leichter fallen, in einer neuen Gruppe anzukommen. Du kennst bereits die Mechanismen, die in Gruppen wirken, und bist mit einigen Techniken vertraut. Du stehst also nicht vor einem riesigen Berg von Dingen, die du erst noch lernen musst.
 
 Wenn du ganz neu im Kampfsport bist, prasseln all diese Dinge gleichzeitig auf dich ein: neue Techniken, unbekannte Menschen, unbekannte Gruppendynamiken und ein Trainingsablauf, den du noch nicht einschätzen kannst.
+
+XXXXX
+
++ übergang nächstes kapitel
+
