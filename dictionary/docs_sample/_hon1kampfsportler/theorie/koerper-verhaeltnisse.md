@@ -14,14 +14,16 @@ dies bedeutet, dass es eine direkte Verbindung vom Impuls des Schlages zur Masse
 * wenn du schwer bist, ist dein schlag (fast) automatisch hart. 
 * wenn du ein Fliegengewicht bist, ist ein Schlag eher sanfter. 
 
-treffen zwei Menschen gleicher Körpermasse aufeinander , so ist der Unterschied unerheblich . beide haben die gleiche Masse . da können beide den gleichen Impuls aufbauen . die Schläge werden einigermaßen gleich stark sein genau aus diesem Grund gibt es auch gewichtsklassen . es sorgt für physikalisches Fairness
+treffen zwei Menschen gleicher Körpermasse aufeinander , so ist der Unterschied unerheblich . beide haben die gleiche Masse, da können beide den gleichen Impuls aufbauen . die Schläge werden einigermaßen gleich stark sein. genau aus diesem Grund gibt es auch gewichtsklassen . es sorgt für physikalisches Fairness
 
-treffen Menschen unterschiedlicher Körpermasse aufeinander, hat Gewichtsdifferenz schwerwiegende Konsequenzen auf sämtliche Techniken und parameter
+treffen Menschen unterschiedlicher Körpermasse aufeinander, hat Gewichtsdifferenz schwerwiegende Konsequenzen auf sämtliche Techniken und parameter. für den kleineren der beiden kontrahenten gilt:
 
-* schläge sind im vergleich viel schwächer
+* schläge sind im vergleich viel kräftiger schwächer
 * würfe sind teils wesentlich erschwert
 * hebel sind aufgrund von bemessung und kraft meist wesentlich erschwert
-* distanz ist erschwert, ein nebenefekt und der Tat geschuldet, dass der größere Partner meist auch der größer ist
+* distanz ist herausforderrnder
+
+*) ein nebeneffekt und der Tatsache geschuldet, dass der schwerere Partner meist auch der größer ist
 
 ## verletzungs-risiko ...
 
@@ -32,31 +34,29 @@ kurzum gesagt: der schwerere partner hat wesentliche kraftvorteile. das Verletzu
 * knieverletzungen
 * rippenbruch
 
-diese Verletzungen treten natürlich auch bei gleichwertigen Partnern auf. für einen kleineren Partner sind sie aber viel wahrscheinlicher. dies gilt auch dann, wenn der größere Partner"langsam" und rücksichtsvoll trainiert.
+diese Verletzungen treten natürlich auch bei gleichwertigen Partnern auf. für einen kleineren Partner sind sie aber viel wahrscheinlicher. dies gilt auch dann, wenn der größere Partner  langsam" und rücksichtsvoll trainiert.
 
-**geschichte**: ich habe mit Valentin trainiert valentin ist riesengroß, wiegt sicherlich 90 kg und Kickbox Weltmeister . er war ganz lieb. als er einmal geschlagen hat, bin ich nach links raus, genau in seine stehende Faust. ich (das ist dämlich, aber sowas passiert halt). meine Nase war ziemlich ramponiert danach und hat gesaftet. das heißt: zwei Menschen haben miteinander trainiert, beide haben aufeinander aufgepasst, und es kann trotzdem zum unfall.
+**geschichte**: ich habe mit Valentin trainiert valentin ist riesengroß, wiegt sicherlich 90 kg und Kickbox Weltmeister . er war ganz lieb. als er einmal geschlagen hat, bin ich nach links raus, genau in seine stehende Faust. (das ist dämlich, aber sowas passiert halt). meine Nase war ziemlich ramponiert danach und hat gesaftet. das heißt: zwei Menschen haben miteinander trainiert, beide haben aufeinander aufgepasst, und es kam trotzdem zum unfall.
 
 ## sicher trainieren
 
-wenn du in einer ungleichen Paarung bist, also ein ganz leichten Partner hast oder ein ganz schweren Partner hast Punkt bedenke, dass das Verletzungsrisiko dabei erhöht ist. trainiere entsprechend sorgfältig. hast du einen komisches Bauchgefühl, verteile dies den Partner mit gegebenenfalls den Partner ab
+wenn du in einer ungleichen Paarung bist, also ein ganz leichten Partner hast oder ein ganz schweren Partner hast , bedenke, dass das Verletzungsrisiko dabei erhöht ist. trainiere entsprechend sorgfältig. hast du einen komisches Bauchgefühl, teile dies den Partner mit - oder lehne gegebenenfalls die Runde mit dem Partner ab
 
-**Geschichte**: im Training war ein neuer . man konnte gleich sehen, dass der etwas drauf hat, auf Nachfrage stellte sich raus: ein Schwarzgurt Karate. ich habe ihn mittrainieren lassen beim Sparring. und das obwohl er gute 30 kg schwere als jeder andere in der gruppe. ich habe gedacht das geht schon gut ... ging es nicht: bei einem Wurf hatte einem Trainee das knie verdreht.:-(  warum erlaubst du einen neuen Würfe? das habe ich nicht erlaubt. das kam durch eine Sprachbarriere zustande. aber: ich hätte meinen Training von Anfang an besser sitzen müssen.
+**Geschichte**: im Training war ein neuer . man konnte gleich sehen, dass der etwas drauf hat, auf Nachfrage stellte sich raus: ein Schwarzgurt Karate. ich habe ihn mittrainieren lassen beim Sparring. und das obwohl er gute 30 kg schwere als jeder andere in der gruppe. ich habe gedacht das geht schon gut ... ging es nicht: bei einem Wurf hatte einem Trainee das knie verdreht.:-(  warum erlaubst du einen neuen Würfe? das habe ich nicht erlaubt. das kam durch eine Sprachbarriere zustande. aber: ich hätte meinen Trainee von Anfang an besser schützen müssen. - für sparring gilt seitdem:   maximal 15 kg Unterschied. ansonsten wird gedrillt.
 
-für sparring gilt seitdem:   maximal 15 kg Unterschied. ansonsten wird gedrillt.
-
-dem Traiee geht es gut, das Knie hatte dann nur zwei Wochen "Schnupfen". aber es ist wäre eine absolut vermeidbare Verletzung gewesen
+nachtrag: dem Traiee geht es gut, das Knie hatte dann nur zwei Wochen "Schnupfen". aber es ist wäre eine absolut vermeidbare Verletzung gewesen
 
 ## gewicht verzeiht fehler
 
 dss gewicht hat - wie du schon weisst - also starken einfluss auf die Wirksamkeit einer Technik.
 
-**du bist gross und gewichtig?** super, du wirst techniken schnell und effektiv lernen. du wirst schnell selbstverttauen aufbauen. und möglicherweise stejst du dann auch irgendwann als trainer auf der matte.
+**du bist gross und gewichtig?** super, du wirst techniken schnell und effektiv lernen. du wirst schnell selbstverttauen aufbauen. und möglicherweise stejhst du dann auch irgendwann als trainer auf der matte.
 
 **du bist leicht und klein?** herzlichen glückwunsch zu diesser Kack-Kombination. fortan werden grosse, gewichtige menschen dir erklären, wie du eine technik "richtig"  ausführst. 
 
-grosse, gewichtig menschen haben klare gwwichts-und distanzvorteile. manche haben nie erfahren (oder es vergessen), wie es ist, körperlich unterlegen zu sein. 
+grosse, gewichtig menschen haben unwissentlich klare gewichts- und distanzvorteile. manche haben nie erfahren (oder es vergessen), wie es ist, körperlich unterlegen zu sein. sie sind ...
 
-## "körperblind"
+## ... "körperblind"
 
 die sicherheit ihrer techniken gründet u. a. auf körperlicher sicherheit. und dies ist durchaus berechtigt. sie haben ja dafür trainiert. allerdings fehlt es haben sie ein blinden Fleck: Unterlegenheit kennen diese Person nicht. 
 
@@ -64,38 +64,17 @@ für große Personen es ist zum Teil ausreichend, genau eine Ausführung einer T
 
 kleine personen hingegen müssen eine technik viel genauer erarbeiten. alles was unter 100% korrekt ist, führt zum scheitern des wurfs oder des hebels.
 
-dadurch ergibt sich ein durchaus interessantes Bild auf der Matte. große Person zeigen Ausführungen, die gegen gleich große oder kleinere Personen angewandt werden können. kleine Person en können diese Technik Ausführung nur gegen einen gleich kleinen Partner verwenden. gegen einen großen Partner ist es um oft unmöglich diese Art der Ausführung zu verwenden. 
+dadurch ergibt sich ein durchaus interessantes Bild auf der Matte. große Person zeigen Ausführungen, die gegen gleich große oder kleinere Personen angewandt werden können. kleine Person können diese Technikausführung nur gegen einen gleich kleinen Partner verwenden. gegen einen großen Partner ist es um oft unmöglich diese Art der Ausführung zu verwenden. 
 
-ganz einfach ausgedrückt: bei einer kleinen Person sieht eine Technik Ausführung von einer größeren Partner scheiße aus Punkt daher wird diese Person viel seltener zu einem Trainer oder Referenten. dies verstärkt die Schieflage und trägt dazu bei, dass weiterhin keine Techniken für kleine Person gelehrt werden
+ganz einfach ausgedrückt: bei einer kleinen Person sieht eine Technik Ausführung von einer größeren Partner scheiße aus . daher wird diese Person viel seltener zu einem Trainer oder Referenten. dies verstärkt die Schieflage und trägt dazu bei, dass weiterhin keine Techniken für kleine Person gelehrt werden
 
 **es fehlen kleine trainer*innen!**
 
 eine hochgradige ju-jutsu-trainerin (1.55 m) sagte  einmal treffend: "ich muss jede Technik quasi neu erfinden." 
 
-**geschichte**: ein Bekannter erklärte mir den Hüftwurf. er war 1.95 m groß und sicherlich 130 kg schwer. er meinte: "so mache man das nicht vor", und nicht anders. ich sagte ihm: und jetzt macht diesen hüftdorf bei einem Partner der 2,50 m groß ist und 200 Kilo wiegt. sie hat mich dann so ein bisschen verdutzt angeguckt. ich weiß bis heute nicht ob er das verstanden hat
-
+**geschichte**: ein Bekannter erklärte mir den Hüftwurf. er war 1.95 m groß und sicherlich 130 kg schwer. er meinte: "so mache man das!", und nicht anders. ich sagte ihm: und jetzt macht diesen hüftwurf bei einem Partner der 2,50 m groß ist und 200 Kilogramm wiegt. sie hat mich dann so ein bisschen verdutzt angeguckt. ich weiß bis heute nicht ob er das verstanden hat
 
 Die gezeigte Ausführung war in der Tat möglich ... bei einem gleichwertigen oder kleineren Partner. Sobald es aber Abweichungen hinsichtlich Grösse oder Schwere gibt, muss eine körperlich unterlegene Person die Technik neu erfinden.
-
-## Klein sein und Kampfsport - ein Lamenta
-
-Ich möchte eine kleine Liste an wurf-Techniken geben, welche z. B. Probleme bereitet:
-
-* Iriminage, denn eine wesentlich höhere Schulterhöhe bei Uke
-* Uchi-mata, bei einem Langbeiner fast unmöglich
-* Hüftwurf, bei einem Langbeiner
-* Kreuzfesselgriff im Stand
-* ...
-
-Selbst eine grosse Aussensichel, ein Anfängerwurf, ist bei einem grossen Partner eine Herausforderung.
-Natürlich, man muss vorher das Gleichgewicht "brechen", aber wie?
-Man kommt mit dem ausgestreckten Arm ja kaum an das Kinn des Partners ...
-
-umgekehrt hat der grössere partner ebenfalls probleme: ein hüftrad bei einem "zwerg"?: unmöglich. 
-
-im standup hat der grössere partner mit den längeten armeen und beinen eindeutung die überhand ... bis der kleinere Partner die distanz unterläuft. plötzlich ist der kleine zwerg direkt am bauxh und verteilt shpe shines. und man kriegt dan da erstmal gar nicht weg.
-
-**geschichte**: "So funktioniert der Wurf, und er ist butterweich!", so der Referent, geschätzte 110 kg, kurz vor der Ausführung des Harai-goshi an einem ca. 70 kg wiegendem Uke. ich dachte: "ja, das stimmt. wenn mein Partner 10 Jahre alt wäre, würd das so klappen ..."
 
 ## Was wäre, wenn ...
 
@@ -186,21 +165,30 @@ Die Tabelle wird wie folgt gelesen:
 Über die Berechnung des Quotienten und des anschliessend angenommenen Gwichts des Partners, erreicht man die Einsicht, dass Körperverhältnisse verschieden sind.
 Und massgeblich daszu beitragen, ob eine Technik gelingt oder nicht.                   
 
-## Kleiner Rant
+## klein - was tun ...
 
 Klein sein, leicht sein, Frau sein im Kampfsport  ... kann ziemlich scheisse sein.
 
-Was ein kleiner Mensch im Kampfsport bisweilen zu ertragen hat, hat oft nichts mit Sportlichkeit zu tun.
-Oft gehörte Sprüche, meist aus dem Munde von Menschen, die ihrer Lebtag noch nie einen körperlich wesentlich überlegenem
+Was du  kleiner Mensch im Kampfsport bisweilen zu ertragen hat, hat oft nichts mit Sportlichkeit zu tun. dies sind Oft gehörte Sprüche, meist aus dem Munde von Menschen, die ihrer Lebtag noch nie einen körperlich wesentlich überlegenem
 Gegener gegenüberstanden:
 
 * "Du musst die Technik nur sauber durchführen ..."
 * "Weisst du, was den Schulterwurf betrifft, hast du eigentlich einen Vorteil." <= wie bitte?!
 * blankes Auslachen des kleineren Partners durch den körperlich überlegenen "Partner", weil er es für "lustig" hält
 * viele Techniken, die gezeigt werden, sind für ein ungleiches Körperverhältnis so nicht ausführbar
-* hochnäsiges verhalten beim fahren, weil man ja eh gewinnen will
 
 Wie man sieht, bekommt man eine gute Mischung aus Irrtümern und Respektlosigkeit zu spüren.
+
+als gegenmassnahmen bietet es sich an
+
+* trainer rufen und problem konkret benennen: gewichtsdifferenz, schulterhöhendifferenz, distanz und nach technik-details fragen
+* den partner nach tipps fragen
+
+
+konkret fragen: XXXXX
+
+
+
 
 massnahemen XXXXX??
 
